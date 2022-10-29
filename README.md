@@ -19,11 +19,11 @@ These videos will be playing **ON LOOP** throughout the weekend so use this as a
 11. Disney Halloween DTV (1987)
 12. Halloween Commercial Block 004
 13. Cry Baby Lane - Nickelodeon Broadcast (2000)
-14. Nick At Nite Halloween Munster Mash (1995)
+14. Nick At Nite Halloween Munster Mash (Nick 1995)
 15. Halloween Commercial Block 005
 16. The Simpsons - Treehouse of Horror I (Fox 1990)
 17. The.Simpsons - Treehouse of Horror Marathon (Fox 1994)
-18. ABC Primetime 10-30-80 WOC Grinch Halloween
+18. Halloween Is Grinch Night & The Halloween That Almost Wasn't (ABC 1980)
 19. My VHS Saga Part 3  - Monster Vision - Halloween 3, Season of the Witch - (TNT)
 20. Halloween Commercial Block 006
 21. Freddy's Nightmares - Photo Finish (1989)
