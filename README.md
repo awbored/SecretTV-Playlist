@@ -24,7 +24,7 @@ These videos will be playing **ON LOOP** throughout the weekend so use this as a
 16. The Simpsons - Treehouse of Horror I (Fox 1990)
 17. The.Simpsons - Treehouse of Horror Marathon (Fox 1994)
 18. ABC Primetime 10-30-80 WOC Grinch Halloween
-19. My VHS Saga Part 3  - Monster Vision - Halloween 3, Season of the Witch - (TNT Broadcast)
+19. My VHS Saga Part 3  - Monster Vision - Halloween 3, Season of the Witch - (TNT)
 20. Halloween Commercial Block 006
 21. Freddy's Nightmares - Photo Finish (1989)
 22. Freddy's Nightmares - Tricks and Treats (1988)
@@ -35,4 +35,4 @@ These videos will be playing **ON LOOP** throughout the weekend so use this as a
 27. Growing Pains - Happy Halloween 1&2 (1990)
 28. PERFECT STRANGERS HALLOWEEN EP (1988)
 29. Family Matters - S08E07 Stevil (DVD Rip)
-30. Family Matters - Stevil II - This Time He's Not Alone (1997 Broadcast)
+30. Family Matters - Stevil II - This Time He's Not Alone (ABC 1997)
