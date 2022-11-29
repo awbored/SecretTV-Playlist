@@ -8,6 +8,10 @@ Here is the playlist for the week
 2. 900CreepPhone.mp4
 3. UHF - U62 Promo.mp4
 4. The Twilight Zone DISC_3.mkv
+  a. To Protect and Serve
+  b. asdf
+  c. asdf
+  d. asdf
 5. Artie's Workout.mov
 6. 900FreakPhone.mp4
 7. KatyPerrySlimed.mp4
