@@ -25,10 +25,10 @@ Here is the playlist for the week
 11. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
 12. Peckham - Wind Beneath My Wings Interpretive Dance
 13. Schwarzenegger - Hamlet (Taken from Last Action Hero)
-14. Beyond Belief - Season 3 Episode 7 [Episode Guide WIKI](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_3_(2000))
+14. Beyond Belief - Season 3 Episode 7 [Episode Guide WIKI. Warning: SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_3_(2000))
 15. Sifl N Olly - Chester Lover
-16. Beyond Belief - Season 3 Episode 8 [Episode Guide WIKI](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_3_(2000))
+16. Beyond Belief - Season 3 Episode 8 [Episode Guide WIKI. Warning: SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_3_(2000))
 17. UHF - Emo
-18. Beyond Belief - Season 3 Episode 9 [Episode Guide WIKI](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_3_(2000))
+18. Beyond Belief - Season 3 Episode 9 [Episode Guide WIKI. Warning: SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_3_(2000))
 19. Sifl N Olly - Claire Danes
 20. Undertale - Napping with Ghost (Ending video)
