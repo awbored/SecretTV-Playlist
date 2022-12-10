@@ -14,3 +14,5 @@ All times EST:
  - 9pm [@Zenmodernlife](https://twitch.tv/Zenmodernlife) & [@OpenSet](https://twitch.tv/OpenSet) | 
  - 10pm [@TotoRobyn](https://twitch.tv/TotoRobyn) & [@Vjpcat](https://twitch.tv/Vjpcat) | 
  - 11pm [@CivicTV83](https://twitch.tv/CivicTV83) & [@theKaossEngine](https://twitch.tv/theKaossEngine) | 
+
+Follow the [Collabonanza Tumblr Page](https://www.tumblr.com/collabonanza)
