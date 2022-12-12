@@ -1,18 +1,23 @@
-# 2022/12/10 - Collabonanza Raid Train
+# 2022/12/13 - SecretTV Playlist
 
-All times EST: 
- - 11am [@CIVICTV83](https://twitch.tv/CIVICTV83) & [@chumslick](https://twitch.tv/chumslick) | 
- - 12pm [@Wienervision](https://twitch.tv/Wienervision) & [@ComeTalk_](https://twitch.tv/ComeTalk_) |
- - 1pm [@AWBored](https://twitch.tv/AWBored) & [@CivicTV83](https://twitch.tv/CivicTV83) |
- - 2pm [@Regular_human_music](https://twitch.tv/Regular_human_music) & [@adulaidyeet](https://twitch.tv/adulaidyeet) |
- - 3pm [@Fox_Walks](https://twitch.tv/Fox_Walks) & [@JessicasBell](https://twitch.tv/JessicasBell) | 
- - 4pm [@AntlerJones](https://twitch.tv/AntlerJones) & [@P_Chops](https://twitch.tv/P_Chops) | 
- - 5pm [@Vjpcat](https://twitch.tv/Vjpcat) & [@Dreamcadaver](https://twitch.tv/Dreamcadaver) | 
- - 6pm [@Dronehands](https://twitch.tv/Dronehands) & [@Jaynothin](https://twitch.tv/Jaynothin) | 
- - 7pm [@CoincidenceMachine](https://twitch.tv/CoincidenceMachine) & [@ThereminPlayer](https://twitch.tv/ThereminPlayer) | 
- - 8pm [@OpenSet](https://twitch.tv/OpenSet) & [@Zenmodernlife](https://twitch.tv/Zenmodernlife) | 
- - 9pm [@Zenmodernlife](https://twitch.tv/Zenmodernlife) & [@OpenSet](https://twitch.tv/OpenSet) | 
- - 10pm [@TotoRobyn](https://twitch.tv/TotoRobyn) & [@Vjpcat](https://twitch.tv/Vjpcat) | 
- - 11pm [@CivicTV83](https://twitch.tv/CivicTV83) & [@theKaossEngine](https://twitch.tv/theKaossEngine) | 
-
-Follow the [Collabonanza Tumblr Page](https://www.tumblr.com/collabonanza)
+1. SecretTVRollerCoaster
+2. 900CreepPhone
+3. UHF - U62 Promo
+4. The Twilight Zone (2002) - DVD DISC 5 [Episode Guide WIKI](https://en.wikipedia.org/wiki/The_Twilight_Zone_(2002_TV_series)#Episodes)
+    - [fill out after encoding is done]
+5. Artie's Workout
+6. 900 Freak Phone
+7. Katy Perry Slimed
+8. La Choy Dragon Commercial
+9. Middle School Weezer Cover Goes Horribly Wrong
+10. UHF - Is this It
+11. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
+12. Peckham - Wind Beneath My Wings Interpretive Dance
+13. Schwarzenegger - Hamlet (Taken from Last Action Hero)
+14. Beyond Belief - Season 3 Episode 13 [Episode Guide WIKI. Warning: SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_3_(2000))
+15. Sifl N Olly - Chester Lover
+16. Beyond Belief - Season 2 Episode 1 [Episode Guide WIKI. Warning: SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(2000))
+17. UHF - Emo
+18. Beyond Belief - Season 2 Episode 2 [Episode Guide WIKI. Warning: SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(2000))
+19. Sifl N Olly - Claire Danes
+20. Undertale - Napping with Ghost (Ending video)
