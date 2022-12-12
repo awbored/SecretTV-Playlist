@@ -4,7 +4,12 @@
 2. 900CreepPhone
 3. UHF - U62 Promo
 4. The Twilight Zone (2002) - DVD DISC 5 [Episode Guide WIKI](https://en.wikipedia.org/wiki/The_Twilight_Zone_(2002_TV_series)#Episodes)
-    - [fill out after encoding is done]
+    - The Monsters Are On Maple Street
+    - It's Still a Good Life
+    - How Much Do You Love Your Kid?
+    - Memphis
+    - Cold Fusion
+    - Burned
 5. Artie's Workout
 6. 900 Freak Phone
 7. Katy Perry Slimed
