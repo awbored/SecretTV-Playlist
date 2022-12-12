@@ -16,8 +16,8 @@
 13. Schwarzenegger - Hamlet (Taken from Last Action Hero)
 14. Beyond Belief - Season 3 Episode 13 [Episode Guide WIKI. Warning: SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_3_(2000))
 15. Sifl N Olly - Chester Lover
-16. Beyond Belief - Season 2 Episode 1 [Episode Guide WIKI. Warning: SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(2000))
+16. Beyond Belief - Season 2 Episode 1 [Episode Guide WIKI. Warning: SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
 17. UHF - Emo
-18. Beyond Belief - Season 2 Episode 2 [Episode Guide WIKI. Warning: SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(2000))
+18. Beyond Belief - Season 2 Episode 2 [Episode Guide WIKI. Warning: SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
 19. Sifl N Olly - Claire Danes
 20. Undertale - Napping with Ghost (Ending video)
