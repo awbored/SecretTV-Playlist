@@ -6,13 +6,13 @@ News: December 24th-26th will be the SecretTVChristmas Marathon!  Please submit 
 2. 900CreepPhone
 3. UHF - U62 Promo
 4. The Twilight Zone (2002) - DVD DISC 6 (the last disc!) [Episode Guide WIKI](https://en.wikipedia.org/wiki/The_Twilight_Zone_(2002_TV_series)#Episodes)
-    - asdf
-    - asfd
-    - asdf
-    - asdf
-    - asdf
-    - asdf
-    - asdf
+    - Sunrise
+    - The Collection
+    - The Pharaoh's Curse
+    - Eye of the Beholder
+    - Developing
+    - Homecoming
+    - The Executions of Grady Finch
 5. Artie's Workout
 6. 900 Freak Phone
 7. Katy Perry Slimed
