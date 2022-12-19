@@ -1,4 +1,4 @@
-# 2022/12/19 - SecretTV Playlist
+# 2022/12/20 - SecretTV Playlist
 
 News: December 24th-26th will be the SecretTVChristmas Marathon!  Please submit your favorite Christmas specials or commercials on our Discord server: https://discord.gg/f47fSkZN6v
 
