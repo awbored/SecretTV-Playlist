@@ -1,6 +1,8 @@
 # 2022/12/Christmas Weekend - SecretTV Playlist
 
-During Christmas weekend (Saturday-Monday) the following will be playing ON LOOP so we don't know the exact time for each special, but use this guide to find out where we are on the playlist
+During Christmas weekend (Saturday-Monday) the following will be playing ON LOOP so we don't know the exact time for each special, but use this guide to find out where we are on the playlist.
+
+Use !santa to get a gift.  You can also "!santa @username" to give something to someone else.
 
 1. [under construction]
 
@@ -25,5 +27,4 @@ The commands I like to brag about are:
  - !art - Is what we're watching high art or definitely nart (not art)?  Let the bot decide
  - !reverse [sentence] - this will reverse anything you write after the command
  - !cres [blank/person/thing] - If no entry is after the command then the bot will determine if YOU are crescent fresh.  Anything you write AFTER the command the bot will determine if it's crescent fresh or not
- - !fun [blank/person] - The bot will pull a random adjective from the internet and determine the percentage of fun you're having that day.  If blank it will choose YOUR fun.  If anything is written after the command THAT is the object that has fun.  So you can give fun to other people
- - !santa [blank/person] - Like the fun command, you can use it on yourself or another person.  Santa will gift you or someone else a random NOUN gift so it could be any noun
+ - !fun [blank/person] - The bot will pull a random adjective from the internet and determine the percentage of fun you're having that day.  If blank it will choose YOUR fun.  If anything is written after the command THAT is the object that has fun.  So you can give fun to other people.  This was made for the fun raid train.
