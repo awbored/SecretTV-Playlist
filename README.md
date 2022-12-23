@@ -6,7 +6,7 @@ During Christmas weekend (Saturday-Monday) the following will be playing ON LOOP
 
 
 
-# Info about SecretTVBot
+## Info about SecretTVBot
 
 A public version of SecretTVBot is available on the [PyTwitchBot Repo](https://github.com/awbored/PyTwitchBot) which is written in Python.  The initial nuts and bolts of the programming was from a YouTube video which I have credited in the code.
 
