@@ -16,53 +16,61 @@ Use "!santa" to get a gift.  You can also "!santa @username" to give something t
 10. Holiday Greetings 1998 Nipawin Businesses
 11. A Flintstone Christmas (1977)
 12. Jim Henson's A Muppet Family Christmas
-13. Holiday Special's Christmas tape featuring:
+13. Holiday Special's Christmas Tape Featuring:
     - Rudolph the Red Nose Reindeer
     - Bugs Bunny's Looney Christmas Tales
     - Rankin Bass The Night Before Christmas
-14. Professor Brothers Prisoner Christmas - Webisodes - Adult Swim Video
-15. North Pole Nutrias XMAS VHS - New Orleans
+14. Professor Brothers Prisoner Christmas (Adult Swim Short)
+15. North Pole Nutrias XMAS VHS
 16. Jan Terri - Rock N Roll Santa
 17. A Country Christmas ad
 18. I Hate People Scrooge The Musical
-19. Boston Pops - Seasons Greetings - 1988.ia
-20. Jim Henson's Emmet Otter's Jug Band Christmas 1977
-21. Emmet Otter's Jug Band Christmas Outtakes [Highest Quality, Full Version]
-22. Hawaiian Punch with Donny & Marie - "Season's Greetings" (Commercial, 1981)
-23. Community.S02E11.720p.BluRay.x264-YELLOWBiRD
-24. CBS Television Network-Seasons Greetings
-25. FOX-CBS Primetime Christmas 1989 VHS
+19. Boston Pops - Seasons Greetings (1988)
+20. Jim Henson's Emmet Otter's Jug Band Christmas (1977)
+21. Emmet Otter's Jug Band Christmas Outtakes
+22. Hawaiian Punch with Donny & Marie - "Season's Greetings" Commercial (1981)
+23. Community - S02E11 - Abed's Uncontrollable Christmas
+24. CBS Television Network - Seasons Greetings
+25. FOX-CBS Primetime Christmas VHS Tape (1989) Featuring...
+    - Simpsons Christmas Special
+    - A Charlie Brown Christmas
+    - Rankin Bass Frosty the Snowman
+    - A Very Brady Christmas
 26. CBS Season's Greetings ad '66
-27. Mixed.Nuts.1994.DVDRip.x264-tRuE
+27. Mixed Nuts (1994)
 28. Channel 47 Seasons Greetings 1987
 29. XMAS STORY TNT WOC
-30. Christmas 1987
-31. WLS Channel 7 - Eyewitness News - Season's Greetings (Long Version, 1980)
-32. Santa Claus The Movie ABC WOC 1988-12-24.mpg
-33. Season's Greeting from Tarzan, Tonto and Frankenstein II - SNL
-34. Seasons Greetings Drive In
-35. SIMPSONS_XMAS_89
-36. clayxmas
-37. WGN Channel 9 - Season's Greetings From The WGN Family (Bumper, 1977)
-38. DinoDracChristmasCommercials
-39. Drive-In Movie Ads Drive in Intermission 1960's
-40. Empire Carpet Commercial (1990) New Carpet Before The Holidays
-41. WLS Channel 7 - Eyewitness News at 10pm - Christmas & Snowfighter (Excerpt, 11231979)
-42. Gwar Christmas
-43. Holiday Greetings 1998 Nipawin Businesses2
-44. My So-Called Life 1x15 So-Called Angels [rtv]
-45. Holiday Greetings 1998 Nipawin Businesses3
-46. Max Headroom's Giant Christmas Turkey
-47. Elvira's Movie Macabre - Santa Claus Conquers the Martians -CG
-48. What a Cartoon Show - George and Junior's Christmas Spectacular [Ant]
-49. Space Ghost, Coast to Coast- Brak Clip - S1E12 - A Space Ghost Christmas-1
-50. WMAQ Channel 5 - Rudolph's Season's Greetings (1975)
-51. Star.Wars.Holiday.Special.1978.480p.Rifftrax.2ch.v2
-52. The.Muppet.Christmas.Carol.1992.720p.BluRay.x264-x0r
-53. Twilight.Zone.S02E11.The.Night.of.the.Meek.480p.WEBRip.x264-Sticky83
-54. WSNS Channel 44 - Season's Greetings (Bumper, 1978)
-55. Christmas Cartoons_ 14 Christmas Cartoon Classics - 2 Hours of Holiday Favorites.ia
-56. nasa-seasons-greetings-2010-BOddPaD-2-g
+30. Christmas 1987 (Home movie of some family celebrating christmas)
+31. WLS Channel 7 - Eyewitness News - Season's Greetings
+32. Santa Claus The Movie ABC (1988-12-24)
+34. Season's Greeting from Tarzan, Tonto and Frankenstein II - SNL
+35. Seasons Greetings Drive In
+36. SIMPSONS_XMAS_89 Tape Featuring...
+     - Holiday Edition of America's Most Wanted
+     - Simpsons Christmas Special (ya I'll run it again!)
+     - A Very Bundy Christmas
+     - The Tracey Ullman Show
+37. Will Vintons Claymation Celebration
+38. WGN Channel 9 - Season's Greetings From The WGN Family (Bumper, 1977)
+39. [Dinosaur Dracula](https://dinosaurdracula.com/)'s Christmas Commercials
+40. Drive-In Movie Ads Drive in Intermission 1960's
+41. Empire Carpet Commercial (1990) New Carpet Before The Holidays
+42. WLS Channel 7 - Eyewitness News at 10pm - Christmas & Snowfighter
+43. Gwar Christmas
+44. Holiday Greetings 1998 Nipawin Businesses2
+45. My So-Called Life - S01E15 - So-Called Angels
+46. Holiday Greetings 1998 Nipawin Businesses3
+47. Max Headroom's Giant Christmas Turkey
+48. Elvira's Movie Macabre - Santa Claus Conquers the Martians
+49. What a Cartoon Show - George and Junior's Christmas Spectacular
+50. Space Ghost, Coast to Coast- Brak Clip - S01E12 - A Space Ghost Christmas
+51. WMAQ Channel 5 - Rudolph's Season's Greetings (1975)
+52. Star Wars Holiday Special (1978) Rifftrax edition
+53. The Muppet Christmas Carol (1992)
+54. Twilight Zone - S02E11 - The Night of the Meek
+55. WSNS Channel 44 - Season's Greetings (Bumper, 1978)
+56. Christmas Cartoon Classics - 2 Hours of Holiday Favorites
+57. NASA Seasons Greetings (2010)
 
 
 ## Info about SecretTVBot
