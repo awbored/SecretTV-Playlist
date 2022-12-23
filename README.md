@@ -30,19 +30,20 @@ Use "!santa" to get a gift.  You can also "!santa @username" to give something t
 21. Emmet Otter's Jug Band Christmas Outtakes
 22. Hawaiian Punch with Donny & Marie - "Season's Greetings" Commercial (1981)
 23. Community - S02E11 - Abed's Uncontrollable Christmas
-24. CBS Television Network - Seasons Greetings
-25. FOX-CBS Primetime Christmas VHS Tape (1989) Featuring...
+24. Hallmark movie: Love at the Christmas Contest (2022)
+25. CBS Television Network - Seasons Greetings
+26. FOX-CBS Primetime Christmas VHS Tape (1989) Featuring...
     - Simpsons Christmas Special
     - A Charlie Brown Christmas
     - Rankin Bass Frosty the Snowman
     - A Very Brady Christmas
-26. CBS Season's Greetings ad '66
-27. Mixed Nuts (1994)
-28. Channel 47 Seasons Greetings 1987
-29. XMAS STORY TNT WOC
-30. Christmas 1987 (Home movie of some family celebrating christmas)
-31. WLS Channel 7 - Eyewitness News - Season's Greetings
-32. Santa Claus The Movie ABC (1988-12-24)
+27. CBS Season's Greetings ad '66
+28. Mixed Nuts (1994)
+29. Channel 47 Seasons Greetings 1987
+30. XMAS STORY TNT WOC
+31. Christmas 1987 (Home movie of some family celebrating christmas)
+32. WLS Channel 7 - Eyewitness News - Season's Greetings
+33. Santa Claus The Movie ABC (1988-12-24)
 34. Season's Greeting from Tarzan, Tonto and Frankenstein II - SNL
 35. Seasons Greetings Drive In
 36. SIMPSONS_XMAS_89 Tape Featuring...
