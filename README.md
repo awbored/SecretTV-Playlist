@@ -2,6 +2,8 @@
 
 During Christmas weekend (Saturday-Monday) the following will be playing ON LOOP so we don't know the exact time for each special, but use this guide to find out where we are on the playlist.
 
+Fun things, I'm running the Simpsons and Charlie Brown specials twice because they're from different sources!
+
 Use "!santa" to get a gift.  You can also "!santa @username" to give something to someone else.
 
 1. WSNS Channel 44 - Psychedelic Station ID (1975)
@@ -60,18 +62,19 @@ Use "!santa" to get a gift.  You can also "!santa @username" to give something t
 43. Gwar Christmas
 44. Holiday Greetings 1998 Nipawin Businesses2
 45. My So-Called Life - S01E15 - So-Called Angels
-46. Holiday Greetings 1998 Nipawin Businesses3
-47. Max Headroom's Giant Christmas Turkey
-48. Elvira's Movie Macabre - Santa Claus Conquers the Martians
-49. What a Cartoon Show - George and Junior's Christmas Spectacular
-50. Space Ghost, Coast to Coast- Brak Clip - S01E12 - A Space Ghost Christmas
-51. WMAQ Channel 5 - Rudolph's Season's Greetings (1975)
-52. Star Wars Holiday Special (1978) Rifftrax edition
-53. The Muppet Christmas Carol (1992)
-54. Twilight Zone - S02E11 - The Night of the Meek
-55. WSNS Channel 44 - Season's Greetings (Bumper, 1978)
-56. Christmas Cartoon Classics - 2 Hours of Holiday Favorites
-57. NASA Seasons Greetings (2010)
+46. Charlie Brown Christmas original '66 airing (ya I'm running it again!)
+47. Holiday Greetings 1998 Nipawin Businesses3
+48. Max Headroom's Giant Christmas Turkey
+49. Elvira's Movie Macabre - Santa Claus Conquers the Martians
+50. What a Cartoon Show - George and Junior's Christmas Spectacular
+51. Space Ghost, Coast to Coast- Brak Clip - S01E12 - A Space Ghost Christmas
+52. WMAQ Channel 5 - Rudolph's Season's Greetings (1975)
+53. Star Wars Holiday Special (1978) Rifftrax edition
+54. The Muppet Christmas Carol (1992)
+55. Twilight Zone - S02E11 - The Night of the Meek
+56. WSNS Channel 44 - Season's Greetings (Bumper, 1978)
+57. Christmas Cartoon Classics - 2 Hours of Holiday Favorites
+58. NASA Seasons Greetings (2010)
 
 
 ## Info about SecretTVBot
