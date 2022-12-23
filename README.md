@@ -17,7 +17,7 @@ Use "!santa" to get a gift.  You can also "!santa @username" to give something t
 9. Christmas With Dennis
 10. Holiday Greetings 1998 Nipawin Businesses
 11. A Flintstone Christmas (1977)
-12. Jim Henson's A Muppet Family Christmas
+12. Jim Henson's A Muppet Family Christmas (Holiday Special's tape)
 13. Holiday Special's Christmas Tape Featuring:
     - Rudolph the Red Nose Reindeer
     - Bugs Bunny's Looney Christmas Tales
@@ -42,15 +42,15 @@ Use "!santa" to get a gift.  You can also "!santa @username" to give something t
 27. CBS Season's Greetings ad '66
 28. Mixed Nuts (1994)
 29. Channel 47 Seasons Greetings 1987
-30. XMAS STORY TNT WOC
+30. A Christmas Story (TNT Tape with commercials)
 31. Christmas 1987 (Home movie of some family celebrating christmas)
 32. WLS Channel 7 - Eyewitness News - Season's Greetings
 33. Santa Claus The Movie ABC (1988-12-24)
 34. Season's Greeting from Tarzan, Tonto and Frankenstein II - SNL
 35. Seasons Greetings Drive In
-36. SIMPSONS_XMAS_89 Tape Featuring...
+36. SIMPSONS XMAS 89 Tape Featuring...
      - Holiday Edition of America's Most Wanted
-     - Simpsons Christmas Special (ya I'll run it again!)
+     - Simpsons Christmas Special (2nd run in this playlist, different tape source)
      - A Very Bundy Christmas
      - The Tracey Ullman Show
 37. Will Vintons Claymation Celebration
@@ -62,7 +62,7 @@ Use "!santa" to get a gift.  You can also "!santa @username" to give something t
 43. Gwar Christmas
 44. Holiday Greetings 1998 Nipawin Businesses2
 45. My So-Called Life - S01E15 - So-Called Angels
-46. Charlie Brown Christmas original '66 airing (ya I'm running it again!)
+46. Charlie Brown Christmas - The original '66 CBS airing with Coca Cola ads
 47. Holiday Greetings 1998 Nipawin Businesses3
 48. Max Headroom's Giant Christmas Turkey
 49. Elvira's Movie Macabre - Santa Claus Conquers the Martians
