@@ -2,7 +2,7 @@
 
 During Christmas weekend (Saturday-Monday) the following will be playing ON LOOP so we don't know the exact time for each special, but use this guide to find out where we are on the playlist.
 
-Use !santa to get a gift.  You can also "!santa @username" to give something to someone else.
+Use "!santa" to get a gift.  You can also "!santa @username" to give something to someone else.
 
 1. [under construction]
 
