@@ -1,6 +1,6 @@
 # 2022/12/Christmas Weekend - SecretTV Playlist
 
-During Christmas weekend (Saturday-Monday) the following will be playing ON LOOP so we don't know the exact time for each special, but use this guide to find out where we are on the playlist.
+During Christmas weekend (Saturday-Monday) the following will be playing ON LOOP so we don't know the exact time for each special, but use this guide to find out where we are on the playlist.  This playlist is 33 hours long!
 
 Fun things, I'm running the Simpsons and Charlie Brown specials twice because they're from different sources!
 
