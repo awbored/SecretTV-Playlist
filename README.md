@@ -65,16 +65,17 @@ Use "!santa" to get a gift.  You can also "!santa @username" to give something t
 46. Charlie Brown Christmas - The original '66 CBS airing with Coca Cola ads
 47. Holiday Greetings 1998 Nipawin Businesses3
 48. Max Headroom's Giant Christmas Turkey
-49. Elvira's Movie Macabre - Santa Claus Conquers the Martians
-50. What a Cartoon Show - George and Junior's Christmas Spectacular
-51. Space Ghost, Coast to Coast- Brak Clip - S01E12 - A Space Ghost Christmas
-52. WMAQ Channel 5 - Rudolph's Season's Greetings (1975)
-53. Star Wars Holiday Special (1978) Rifftrax edition
-54. The Muppet Christmas Carol (1992)
-55. Twilight Zone - S02E11 - The Night of the Meek
-56. WSNS Channel 44 - Season's Greetings (Bumper, 1978)
-57. Christmas Cartoon Classics - 2 Hours of Holiday Favorites
-58. NASA Seasons Greetings (2010)
+49. Scrooge Doom Fall
+50. Elvira's Movie Macabre - Santa Claus Conquers the Martians
+51. What a Cartoon Show - George and Junior's Christmas Spectacular
+52. Space Ghost, Coast to Coast- Brak Clip - S01E12 - A Space Ghost Christmas
+53. WMAQ Channel 5 - Rudolph's Season's Greetings (1975)
+54. Star Wars Holiday Special (1978) Rifftrax edition
+55. The Muppet Christmas Carol (1992)
+56. Twilight Zone - S02E11 - The Night of the Meek
+57. WSNS Channel 44 - Season's Greetings (Bumper, 1978)
+58. Christmas Cartoon Classics - 2 Hours of Holiday Favorites
+59. NASA Seasons Greetings (2010)
 
 
 ## Info about SecretTVBot
