@@ -65,7 +65,7 @@ Use "!santa" to get a gift.  You can also "!santa @username" to give something t
 46. Charlie Brown Christmas - The original '66 CBS airing with Coca Cola ads
 47. Holiday Greetings 1998 Nipawin Businesses3
 48. Max Headroom's Giant Christmas Turkey
-49. Scrooge Doom Fall
+49. Scrooge Doom Fall (Clip from 1970 Scrooge)
 50. Elvira's Movie Macabre - Santa Claus Conquers the Martians
 51. What a Cartoon Show - George and Junior's Christmas Spectacular
 52. Space Ghost, Coast to Coast- Brak Clip - S01E12 - A Space Ghost Christmas
