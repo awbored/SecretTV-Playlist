@@ -17,20 +17,21 @@
 15. CRAZY DAVE TAPE 3 CRAP (AGAIN)
 16. [Twilight Zone 80's - S01E05](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_1_(1985%E2%80%9386))
 17. Katy Perry Slimed
-18. [Twilight Zone 80's - S01E06](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_1_(1985%E2%80%9386))
-19. Harvey Leeds - State of Shock
-20. Word With Chester - Acting
-21. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-22. Sifl N Olly - Chester Lover
-23. Japanese Commercial Block (Yūyake nyan'-CUT-25)
-24. [Beyond Belief S02E06](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
-25. UHF - Emo
-26. [Beyond Belief S02E07](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
-27. 900 Creep Phone
-28. [Beyond Belief S02E08](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
-29. Sky High Solar Powered Radio Helmet
-30. Sifl + Olly - Fake Blood
-31. Undertale - Napping with Ghost (outro / raid to another channel)
+18. Harvey Leeds - State of Shock
+19. Word With Chester - Acting
+20. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
+21. [Beyond Belief S02E06 - WARNING LINK CONTAINS SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
+22. UHF - Emo
+23. [Beyond Belief S02E07 - WARNING LINK CONTAINS SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
+24. 900 Creep Phone
+25. [Beyond Belief S02E08 - WARNING LINK CONTAINS SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
+26. Sifl N Olly - Chester Lover
+27. [Beyond Belief E02S09 - WARNING LINK CONTAINS SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
+28. Japanese Commercial Block (Yūyake nyan'-CUT-25)
+29. [Beyond Belief E02S10 - WARNING LINK CONTAINS SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
+30. Sky High Solar Powered Radio Helmet
+31. Sifl + Olly - Fake Blood
+32. Undertale - Napping with Ghost (outro / raid to another channel)
 
 
 ## Info about SecretTVBot
