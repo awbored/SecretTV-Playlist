@@ -3,7 +3,7 @@
 1. SecretTV Roller Coaster (intro)
 2. Amazon Women On the Moon - Arsenio Hall 
 3. How to open a door - Finnish instructional video from 1979 
-4. Twilight Zone 80's - S01E01
+4. (https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_1_(1985%E2%80%9386))[Twilight Zone 80's - S01E01]
 5. 900 Freak Phone 
 6. I bought her some nachos
 7. Twilight Zone 80's - S01E02
