@@ -6,28 +6,28 @@
 4. [Twilight Zone 80's - S01E01](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_1_(1985%E2%80%9386))
 5. 900 Freak Phone 
 6. I bought her some nachos
-7. Twilight Zone 80's - S01E02
+7. [Twilight Zone 80's - S01E02](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_1_(1985%E2%80%9386))
 8. Artie's Workout
 9. Japanese Ninja Gaiden Commercial (JP Superbowl XXIII Broadcast 1989)
-10. Twilight Zone 80's - S01E03
+10. [Twilight Zone 80's - S01E03](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_1_(1985%E2%80%9386))
 11. UHF - U62 Promo
 12. Japanese They Live Trailer (JP Superbowl XXIII Broadcast 1989)
-13. Twilight Zone 80's - S01E04
+13. [Twilight Zone 80's - S01E04](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_1_(1985%E2%80%9386))
 14. if meat is bad for you
 15. CRAZY DAVE TAPE 3 CRAP (AGAIN)
-16. Twilight Zone 80's - S01E05
+16. [Twilight Zone 80's - S01E05](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_1_(1985%E2%80%9386))
 17. Katy Perry Slimed
-18. Twilight Zone 80's - S01E06
+18. [Twilight Zone 80's - S01E06](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_1_(1985%E2%80%9386))
 19. Harvey Leeds - State of Shock
 20. Word With Chester - Acting
 21. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
 22. Sifl N Olly - Chester Lover
 23. Japanese Commercial Block (Yūyake nyan'-CUT-25)
-24. Beyond Belief S02E06
+24. [Beyond Belief S02E06](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
 25. UHF - Emo
-26. Beyond Belief S02E07
+26. [Beyond Belief S02E07](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
 27. 900 Creep Phone
-28. Beyond Belief S02E08
+28. [Beyond Belief S02E08](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
 29. Sky High Solar Powered Radio Helmet
 30. Sifl + Olly - Fake Blood
 31. Undertale - Napping with Ghost (outro / raid to another channel)
