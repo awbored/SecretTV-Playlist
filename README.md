@@ -20,15 +20,15 @@
 18. Harvey Leeds - State of Shock
 19. Word With Chester - Acting
 20. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-21. [Beyond Belief S02E06 - WARNING LINK CONTAINS SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
+21. [Beyond Belief S02E06 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
 22. UHF - Emo
-23. [Beyond Belief S02E07 - WARNING LINK CONTAINS SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
+23. [Beyond Belief S02E07 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
 24. 900 Creep Phone
-25. [Beyond Belief S02E08 - WARNING LINK CONTAINS SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
+25. [Beyond Belief S02E08 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
 26. Sifl N Olly - Chester Lover
-27. [Beyond Belief E02S09 - WARNING LINK CONTAINS SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
+27. [Beyond Belief E02S09 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
 28. Japanese Commercial Block (Yūyake nyan'-CUT-25)
-29. [Beyond Belief E02S10 - WARNING LINK CONTAINS SPOILERS](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
+29. [Beyond Belief E02S10 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_2_(1998))
 30. Sky High Solar Powered Radio Helmet
 31. Sifl + Olly - Fake Blood
 32. Undertale - Napping with Ghost (outro / raid to another channel)
