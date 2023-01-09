@@ -53,5 +53,5 @@ The commands I like to brag about are:
  - !random [x] - x = number.  This will dump a random number of emotes to the chat
  - !art - Is what we're watching high art or definitely nart (not art)?  Let the bot decide
  - !reverse [sentence] - this will reverse anything you write after the command
- - !cres [blank/person/thing] - If no entry is after the command then the bot will determine if YOU are crescent fresh.  Anything you write AFTER the command the bot will determine if it's crescent fresh or not
+ - !cres [blank/person/thing] - Crescent Fresh decider.  If no entry is after the command then the bot will determine if YOU are crescent fresh.  Anything you write AFTER the command the bot will determine if it's crescent fresh or not
  - !fun [blank/person] - The bot will pull a random adjective from the internet and determine the percentage of fun you're having that day.  If blank it will choose YOUR fun.  If anything is written after the command THAT is the object that has fun.  So you can give fun to other people.  This was made for the fun raid train.
