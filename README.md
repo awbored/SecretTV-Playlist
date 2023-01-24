@@ -8,19 +8,20 @@
 6. [Beyond Belief S04E08 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
 7. UHF - U62 Promo
 8. [Ripley's Believe It or Not! (1982 TV series) - Ninja Assassins](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
-9. Artie's Workout
-10. Sifl N Olly - Star Wars.mp4
-11. CRAZY DAVE TAPE 3 CRAP (AGAIN)
-12. Katy Perry Slimed
-13. UHF - Emo
-14. [Twilight Zone 80's - S01E08](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
-15. 900 Freak Phone
-16. [Beyond Belief S04E09 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
-17. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-18. [Ripley's Believe It or Not! (1982 TV series) - Orchestra](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
-19. Sky High Solar Powered Radio Helmet
-20. Sifl N Olly - Claire Danes.mp4
-21. Undertale - Napping with Ghost (outro / raid to another channel)
+9. Big Bill Hell's
+10. Artie's Workout
+11. Sifl N Olly - Star Wars.mp4
+12. CRAZY DAVE TAPE 3 CRAP (AGAIN)
+13. Katy Perry Slimed
+14. UHF - Emo
+15. [Twilight Zone 80's - S01E08](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
+16. 900 Freak Phone
+17. [Beyond Belief S04E09 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
+18. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
+19. [Ripley's Believe It or Not! (1982 TV series) - Orchestra](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+20. Sky High Solar Powered Radio Helmet
+21. Sifl N Olly - Claire Danes.mp4
+22. Undertale - Napping with Ghost (outro / raid to another channel)
 
 
 ## Info about SecretTVBot
