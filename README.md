@@ -1,38 +1,26 @@
-# 2023/01/03 - SecretTV Playlist
+# 2023/01/24 - SecretTV Playlist
 
 1. SecretTV Roller Coaster (intro)
 2. Amazon Women On the Moon - Arsenio Hall 
 3. How to open a door - Finnish instructional video from 1979 
-4. [Twilight Zone 80's - S01E11](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_1_(1985%E2%80%9386))
-5. 900 Freak Phone 
-6. I bought her some nachos
-7. [Twilight Zone 80's - S01E12](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_1_(1985%E2%80%9386))
-8. Artie's Workout
-9. Japanese Ninja Gaiden Commercial (JP Superbowl XXIII Broadcast 1989)
-10. [Twilight Zone 80's - S01E13](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_1_(1985%E2%80%9386))
-11. UHF - U62 Promo
-12. Japanese They Live Trailer (JP Superbowl XXIII Broadcast 1989)
-13. [Twilight Zone 80's - S01E14](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_1_(1985%E2%80%9386))
-14. if meat is bad for you
-15. Sifl N Olly - Crescent Fresh Song
-16. CRAZY DAVE TAPE 3 CRAP (AGAIN)
-17. [Twilight Zone 80's - S01E15](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_1_(1985%E2%80%9386))
-18. Katy Perry Slimed
-19. Harvey Leeds - State of Shock
-20. Word With Chester - Acting
-21. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-22. [Beyond Belief S04E03 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
-23. UHF - Emo
-24. [Beyond Belief S04E04 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
-25. 900 Creep Phone
-26. [Beyond Belief S04E05 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
-27. Sifl N Olly - Chester Lover
-28. [Beyond Belief E04S06 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
-29. Japanese Commercial Block (Yūyake nyan'-CUT-25)
-30. [Beyond Belief E04S07 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
-31. Sky High Solar Powered Radio Helmet
-32. Sifl + Olly - Fake Blood
-33. Undertale - Napping with Ghost (outro / raid to another channel)
+4. [Twilight Zone 80's - S01E07](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
+5. 900 Creep Phone
+6. [Beyond Belief S04E08 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
+7. UHF - U62 Promo
+8. [Ripley's Believe It or Not! (1982 TV series) - Ninja Assassins](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+9. Artie's Workout
+10. Sifl N Olly - Star Wars.mp4
+11. CRAZY DAVE TAPE 3 CRAP (AGAIN)
+12. Katy Perry Slimed
+13. UHF - Emo
+14. [Twilight Zone 80's - S01E08](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
+15. 900 Freak Phone
+16. [Beyond Belief S04E09 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
+17. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
+18. [Ripley's Believe It or Not! (1982 TV series) - Orchestra](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+19. Sky High Solar Powered Radio Helmet
+20. Sifl N Olly - Claire Danes.mp4
+21. Undertale - Napping with Ghost (outro / raid to another channel)
 
 
 ## Info about SecretTVBot
