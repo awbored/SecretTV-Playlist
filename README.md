@@ -4,6 +4,8 @@
 2. Amazon Women On the Moon - Arsenio Hall 
 3. How to open a door - Finnish instructional video from 1979 
 4. [Twilight Zone 80's - S01E07](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
+   - Teacher's Aide
+   - Paladin of the Lost Hour 
 5. 900 Creep Phone
 6. [Beyond Belief S04E08 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
 7. UHF - U62 Promo
