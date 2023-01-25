@@ -17,6 +17,9 @@
 13. Katy Perry Slimed
 14. UHF - Emo
 15. [Twilight Zone 80's - S01E08](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
+    - Act Break
+    - The Burning Man
+    - Dealer's Choice
 16. 900 Freak Phone
 17. [Beyond Belief S04E09 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
 18. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
