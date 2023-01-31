@@ -8,6 +8,10 @@
    - Wong's Lost and Found Emporium
 5. 900 Creep Phone
 6. [Beyond Belief S04E10 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
+   - Moonstruck Beach
+   - Healing Hands
+   - Aspen Sunny Side
+   - Night Walker & Hot Car
 7. UHF - U62 Promo
 8. [Ripley's Believe It or Not! (1982 TV series) - Money](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 9. Big Bill Hell's
@@ -22,6 +26,10 @@
     - Opening Day
 16. 900 Freak Phone
 17. [Beyond Belief S04E11 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
+    - The Mystery of Douglas Hibbard
+    - Wheelchair Man
+    - The Vigil
+    - The Mandarin's Bowl & Ghost Writer
 18. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
 19. [Ripley's Believe It or Not! (1982 TV series) - Cats](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 20. Sky High Solar Powered Radio Helmet
