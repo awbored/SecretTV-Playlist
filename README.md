@@ -16,7 +16,7 @@
 8. [Ripley's Believe It or Not! (1982 TV series) - Money](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 9. Big Bill Hell's
 10. Artie's Workout
-11. Sifl N Olly - Star Wars.mp4
+11. Sifl N Olly - Claire Danes
 12. CRAZY DAVE TAPE 3 CRAP (AGAIN)
 13. Katy Perry Slimed
 14. UHF - Emo
@@ -33,7 +33,7 @@
 18. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
 19. [Ripley's Believe It or Not! (1982 TV series) - Cats](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 20. Sky High Solar Powered Radio Helmet
-21. Sifl N Olly - Claire Danes.mp4
+21. Sifl N Olly - Star Wars
 22. Undertale - Napping with Ghost (outro / raid to another channel)
 
 
