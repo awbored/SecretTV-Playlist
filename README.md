@@ -1,37 +1,38 @@
-# 2023/01/31 - SecretTV Playlist
+# 2023/02/07 - SecretTV Playlist
 
 1. SecretTV Roller Coaster (intro)
 2. Amazon Women On the Moon - Arsenio Hall 
 3. How to open a door - Finnish instructional video from 1979 
-4. [Twilight Zone 80's - S01E09](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
-   - Dead Woman's Shoes
-   - Wong's Lost and Found Emporium
+4. [Twilight Zone 80's - S01E11](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
+   - The Beacon
+   - One Life, Furnished in Early Poverty
 5. 900 Creep Phone
-6. [Beyond Belief S04E10 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
-   - Moonstruck Beach
-   - Healing Hands
-   - Aspen Sunny Side
-   - Night Walker & Hot Car
+6. [Beyond Belief S04E12 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
+   - Witness to Murder
+   - Roulette Wheel
+   - The Phrenologist's Head
+   - The Bridge
+   - The Cigar Box
 7. UHF - U62 Promo
-8. [Ripley's Believe It or Not! (1982 TV series) - Money](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+8. [Ripley's Believe It or Not! (1982 TV series) - Shark Proof Suit](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 9. Big Bill Hell's
 10. Artie's Workout
 11. Sifl N Olly - Claire Danes
 12. CRAZY DAVE TAPE 3 CRAP (AGAIN)
 13. Katy Perry Slimed
 14. UHF - Emo
-15. [Twilight Zone 80's - S01E10](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
-    - The Shadow Man
-    - The Uncle Devil Show
-    - Opening Day
+15. [Twilight Zone 80's - S01E12](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
+    - Her Pilgrim Soul
+    - I of Newton
 16. 900 Freak Phone
-17. [Beyond Belief S04E11 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
-    - The Mystery of Douglas Hibbard
-    - Wheelchair Man
-    - The Vigil
-    - The Mandarin's Bowl & Ghost Writer
+17. [Beyond Belief S04E13 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
+    - The Hand
+    - The Battered Doll
+    - Poker Justice
+    - Above the Clouds
+    - Screen Saver
 18. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-19. [Ripley's Believe It or Not! (1982 TV series) - Cats](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+19. [Ripley's Believe It or Not! (1982 TV series) - Sports](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 20. Sky High Solar Powered Radio Helmet
 21. Sifl N Olly - Star Wars
 22. Undertale - Napping with Ghost (outro / raid to another channel)
