@@ -39,7 +39,7 @@ Sorry for running a little late lol!  At 5:00 pm Pacific today I did visuals for
 ## 2023/02/14 - CivicTV and Chumslick Presents Blind Date  - Schedule
 
 PACIFIC TIMES
- - [12:00 PM - travkam0 - CIVICTV83](https://twitch.tv/travkam0)
+ - [12:00 PM - travkam0 - CIVICTV83](https://twitch.tv/CIVICTV83)
  - [1:00 PM - EmIsMe8 - CoincidenceMachine](https://twitch.tv/EmIsMe8)
  - [2:00 PM - TotoRobyn - vjpcat](https://twitch.tv/TotoRobyn)
  - [3:00 PM - CRACKMOTHER - wienervision](https://twitch.tv/CRACKMOTHER)
@@ -52,7 +52,7 @@ PACIFIC TIMES
  - [10:00 PM - bonus_creature - OpenSet](https://twitch.tv/bonus_creature)
 
 EASTERN TIMES
- - [3:00 PM - travkam0 - CIVICTV83](https://twitch.tv/travkam0)
+ - [3:00 PM - travkam0 - CIVICTV83](https://twitch.tv/CIVICTV83)
  - [4:00 PM - EmIsMe8 - CoincidenceMachine](https://twitch.tv/EmIsMe8)
  - [5:00 PM - TotoRobyn - vjpcat](https://twitch.tv/TotoRobyn)
  - [6:00 PM - CRACKMOTHER - wienervision](https://twitch.tv/CRACKMOTHER)
