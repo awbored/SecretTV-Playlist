@@ -1,32 +1,8 @@
 # 2023/02/14 - SecretTV Playlist
 
-PACIFIC TIMES
- - [12:00 PM - travkam0 - CIVICTV83](https://twitch.tv/travkam0)
- - [1:00 PM    EmIsMe8    CoincidenceMachine](https://twitch.tv/EmIsMe8)
- - [2:00 PM    TotoRobyn    vjpcat](https://twitch.tv/TotoRobyn)
- - [3:00 PM    CRACKMOTHER    wienervision](https://twitch.tv/CRACKMOTHER)
- - [4:00 PM    VideodromeTV    KidPochoclo](https://twitch.tv/VideodromeTV)
- - [5:00 PM    LowkeyDoom666    AWBored](https://twitch.tv/LowkeyDoom666)
- - [6:00 PM    zwian    TraumTikaani](https://twitch.tv/zwian)
- - [7:00 PM    skullzy_p    GnomeFire77](https://twitch.tv/skullzy_p)
- - [8:00 PM    AnaRchYinBedRoK    Galaddis](https://twitch.tv/AnaRchYinBedRoK)
- - [9:00 PM    chumslick    zenmodernlife](https://twitch.tv/chumslick)
- - [10:00 PM    bonus_creature    OpenSet](https://twitch.tv/bonus_creature)
+Sorry for running a little late lol!  At 5:00 pm Pacific today I did visuals for [lowkeydoom666](twitch.tv/lowkeydoom666) in part of The Blind Date Collab Raid Train which was organized by CivicTV and the Chumslick.  If you're watching SecretTV tonight I encourage you to also check in on the current streamer for Blind Date, the full schedule is below!  Please and Thank you!
 
-
-EASTERN TIMES
-[3:00 PM    travkam0    CIVICTV83](https://twitch.tv/travkam0)
-[4:00 PM    EmIsMe8    CoincidenceMachine](https://twitch.tv/EmIsMe8)
-[5:00 PM    TotoRobyn    vjpcat](https://twitch.tv/TotoRobyn)
-[6:00 PM    CRACKMOTHER    wienervision](https://twitch.tv/CRACKMOTHER)
-[7:00 PM    VideodromeTV    KidPochoclo](https://twitch.tv/VideodromeTV)
-[8:00 PM    LowkeyDoom666    AWBored](https://twitch.tv/LowkeyDoom666)
-[9:00 PM    zwian    TraumTikaani](https://twitch.tv/zwian)
-[10:00 PM    skullzy_p    GnomeFire77](https://twitch.tv/skullzy_p)
-[11:00 PM    AnaRchYinBedRoK    Galaddis](https://twitch.tv/AnaRchYinBedRoK)
-[12:00 AM    chumslick    zenmodernlife](https://twitch.tv/chumslick)
-[1:00 AM    bonus_creature    OpenSet](https://twitch.tv/bonus_creature)
-
+(Also last week was the last episodes of Beyond Belief Frakes or Friction!  We will beef up the theme this week, continuing with a mystery or sci-fi theme!)
 
 1. SecretTV Roller Coaster (intro)
 2. Amazon Women On the Moon - Arsenio Hall 
@@ -64,6 +40,35 @@ EASTERN TIMES
 20. Sky High Solar Powered Radio Helmet
 21. Sifl N Olly - Star Wars
 22. Undertale - Napping with Ghost (outro / raid to another channel)
+
+
+## 2023/02/14 - CivicTV and Chumslick Presents Blind Date  - Schedule
+
+PACIFIC TIMES
+ - [12:00 PM - travkam0 - CIVICTV83](https://twitch.tv/travkam0)
+ - [1:00 PM - EmIsMe8 - CoincidenceMachine](https://twitch.tv/EmIsMe8)
+ - [2:00 PM - TotoRobyn - vjpcat](https://twitch.tv/TotoRobyn)
+ - [3:00 PM - CRACKMOTHER - wienervision](https://twitch.tv/CRACKMOTHER)
+ - [4:00 PM - VideodromeTV - KidPochoclo](https://twitch.tv/VideodromeTV)
+ - [5:00 PM - LowkeyDoom666 - AWBored](https://twitch.tv/LowkeyDoom666)
+ - [6:00 PM - zwian - TraumTikaani](https://twitch.tv/zwian)
+ - [7:00 PM - skullzy_p - GnomeFire77](https://twitch.tv/skullzy_p)
+ - [8:00 PM - AnaRchYinBedRoK - Galaddis](https://twitch.tv/AnaRchYinBedRoK)
+ - [9:00 PM - chumslick - zenmodernlife](https://twitch.tv/chumslick)
+ - [10:00 PM - bonus_creature - OpenSet](https://twitch.tv/bonus_creature)
+
+EASTERN TIMES
+ - [3:00 PM - travkam0 - CIVICTV83](https://twitch.tv/travkam0)
+ - [4:00 PM - EmIsMe8 - CoincidenceMachine](https://twitch.tv/EmIsMe8)
+ - [5:00 PM - TotoRobyn - vjpcat](https://twitch.tv/TotoRobyn)
+ - [6:00 PM - CRACKMOTHER - wienervision](https://twitch.tv/CRACKMOTHER)
+ - [7:00 PM - VideodromeTV - KidPochoclo](https://twitch.tv/VideodromeTV)
+ - [8:00 PM - LowkeyDoom666 - AWBored](https://twitch.tv/LowkeyDoom666)
+ - [9:00 PM - zwian - TraumTikaani](https://twitch.tv/zwian)
+ - [10:00 PM - skullzy_p - GnomeFire77](https://twitch.tv/skullzy_p)
+ - [11:00 PM - AnaRchYinBedRoK - Galaddis](https://twitch.tv/AnaRchYinBedRoK)
+ - [12:00 AM - chumslick - zenmodernlife](https://twitch.tv/chumslick)
+ - [1:00 AM - bonus_creature - OpenSet](https://twitch.tv/bonus_creature)
 
 
 ## Info about SecretTVBot
