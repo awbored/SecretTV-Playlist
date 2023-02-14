@@ -2,7 +2,7 @@
 
 Sorry for running a little late lol!  At 5:00 pm Pacific today I did visuals for [lowkeydoom666](twitch.tv/lowkeydoom666) in part of The Blind Date Collab Raid Train which was organized by CivicTV and the Chumslick.  If you're watching SecretTV tonight I encourage you to also check in on the current streamer for Blind Date, the full schedule is below!  Please and Thank you!
 
-(Also last week was the last episodes of Beyond Belief Frakes or Friction!  We will beef up the theme this week, continuing with a mystery or sci-fi theme!)
+(Also last week was the last episodes of Beyond Belief Frakes or Friction!  We will beef up the theme this week, continuing with something mysterious and spooky!)
 
 1. SecretTV Roller Coaster (intro)
 2. Amazon Women On the Moon - Arsenio Hall 
