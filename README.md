@@ -7,36 +7,30 @@ Sorry for running a little late lol!  At 5:00 pm Pacific today I did visuals for
 1. SecretTV Roller Coaster (intro)
 2. Amazon Women On the Moon - Arsenio Hall 
 3. How to open a door - Finnish instructional video from 1979 
-4. [Twilight Zone 80's - S01E11](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
-   - The Beacon
-   - One Life, Furnished in Early Poverty
-5. 900 Creep Phone
-6. [Beyond Belief S04E12 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
-   - Witness to Murder
-   - Roulette Wheel
-   - The Phrenologist's Head
-   - The Bridge
-   - The Cigar Box
+4. [Twilight Zone 80's - S01E13](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
+   - "Night of the Meek"
+   - "But Can She Type?"
+   - "The Star"
+6. [Twilight Zone 80's - S01E14](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
+   - "Still Life"
+   - "The Little People of Killany Woods"
+   - "The Misfortune Cookie"
 7. UHF - U62 Promo
-8. [Ripley's Believe It or Not! (1982 TV series) - Shark Proof Suit](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+8. [Ripley's Believe It or Not! (1982 TV series) - Knights](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 9. Big Bill Hell's
 10. Artie's Workout
 11. Sifl N Olly - Claire Danes
 12. CRAZY DAVE TAPE 3 CRAP (AGAIN)
 13. Katy Perry Slimed
 14. UHF - Emo
-15. [Twilight Zone 80's - S01E12](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
-    - Her Pilgrim Soul
-    - I of Newton
+15. [Twilight Zone 80's - S01E15](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
+   - "Monsters!"
+   - "A Small Talent for War"
+   - "A Matter of Minutes"
 16. 900 Freak Phone
-17. [Beyond Belief S04E13 - WARNING! LINK CONTAINS SPOILERS!](https://en.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction#Season_4_(2002))
-    - The Hand
-    - The Battered Doll
-    - Poker Justice
-    - Above the Clouds
-    - Screen Saver
+17. [Ripley's Believe It or Not! (1982 TV series) - Lizards](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 18. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-19. [Ripley's Believe It or Not! (1982 TV series) - Sports](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+19. [Ripley's Believe It or Not! (1982 TV series) - Maps](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 20. Sky High Solar Powered Radio Helmet
 21. Sifl N Olly - Star Wars
 22. Undertale - Napping with Ghost (outro / raid to another channel)
