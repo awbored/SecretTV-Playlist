@@ -1,8 +1,7 @@
 # 2023/02/14 - SecretTV Playlist
 
-***PACIFIC TIMES***
+PACIFIC TIMES
 [12:00 PM - travkam0 - CIVICTV83](https://twitch.tv/travkam0)
-
 [1:00 PM    EmIsMe8    CoincidenceMachine](https://twitch.tv/EmIsMe8)
 [2:00 PM    TotoRobyn    vjpcat](https://twitch.tv/TotoRobyn)
 [3:00 PM    CRACKMOTHER    wienervision](https://twitch.tv/CRACKMOTHER)
@@ -15,7 +14,7 @@
 [10:00 PM    bonus_creature    OpenSet](https://twitch.tv/bonus_creature)
 
 
-***EASTERN TIMES***
+EASTERN TIMES
 [3:00 PM    travkam0    CIVICTV83](https://twitch.tv/travkam0)
 [4:00 PM    EmIsMe8    CoincidenceMachine](https://twitch.tv/EmIsMe8)
 [5:00 PM    TotoRobyn    vjpcat](https://twitch.tv/TotoRobyn)
