@@ -1,17 +1,17 @@
 # 2023/02/14 - SecretTV Playlist
 
 PACIFIC TIMES
-[12:00 PM - travkam0 - CIVICTV83](https://twitch.tv/travkam0)
-[1:00 PM    EmIsMe8    CoincidenceMachine](https://twitch.tv/EmIsMe8)
-[2:00 PM    TotoRobyn    vjpcat](https://twitch.tv/TotoRobyn)
-[3:00 PM    CRACKMOTHER    wienervision](https://twitch.tv/CRACKMOTHER)
-[4:00 PM    VideodromeTV    KidPochoclo](https://twitch.tv/VideodromeTV)
-[5:00 PM    LowkeyDoom666    AWBored](https://twitch.tv/LowkeyDoom666)
-[6:00 PM    zwian    TraumTikaani](https://twitch.tv/zwian)
-[7:00 PM    skullzy_p    GnomeFire77](https://twitch.tv/skullzy_p)
-[8:00 PM    AnaRchYinBedRoK    Galaddis](https://twitch.tv/AnaRchYinBedRoK)
-[9:00 PM    chumslick    zenmodernlife](https://twitch.tv/chumslick)
-[10:00 PM    bonus_creature    OpenSet](https://twitch.tv/bonus_creature)
+ - [12:00 PM - travkam0 - CIVICTV83](https://twitch.tv/travkam0)
+ - [1:00 PM    EmIsMe8    CoincidenceMachine](https://twitch.tv/EmIsMe8)
+ - [2:00 PM    TotoRobyn    vjpcat](https://twitch.tv/TotoRobyn)
+ - [3:00 PM    CRACKMOTHER    wienervision](https://twitch.tv/CRACKMOTHER)
+ - [4:00 PM    VideodromeTV    KidPochoclo](https://twitch.tv/VideodromeTV)
+ - [5:00 PM    LowkeyDoom666    AWBored](https://twitch.tv/LowkeyDoom666)
+ - [6:00 PM    zwian    TraumTikaani](https://twitch.tv/zwian)
+ - [7:00 PM    skullzy_p    GnomeFire77](https://twitch.tv/skullzy_p)
+ - [8:00 PM    AnaRchYinBedRoK    Galaddis](https://twitch.tv/AnaRchYinBedRoK)
+ - [9:00 PM    chumslick    zenmodernlife](https://twitch.tv/chumslick)
+ - [10:00 PM    bonus_creature    OpenSet](https://twitch.tv/bonus_creature)
 
 
 EASTERN TIMES
