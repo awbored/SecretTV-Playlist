@@ -24,9 +24,9 @@ Sorry for running a little late lol!  At 5:00 pm Pacific today I did visuals for
 13. Katy Perry Slimed
 14. UHF - Emo
 15. [Twilight Zone 80's - S01E15](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
-   - "Monsters!"
-   - "A Small Talent for War"
-   - "A Matter of Minutes"
+    - "Monsters!"
+    - "A Small Talent for War"
+    - "A Matter of Minutes"
 16. 900 Freak Phone
 17. [Ripley's Believe It or Not! (1982 TV series) - Lizards](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 18. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
