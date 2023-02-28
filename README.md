@@ -3,30 +3,28 @@
 1. SecretTV Roller Coaster (intro)
 2. Amazon Women On the Moon - Arsenio Hall 
 3. How to open a door - Finnish instructional video from 1979 
-4. [Twilight Zone 80's - S01E16](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
-   - "The Elevator"
-   - "To See the Invisible Man"
-   - "Tooth and Consequences"
+4. [Twilight Zone 80's - S01E19](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
+   - "The Leprechaun-Artist"
+   - "Dead Run"
 5. 900 Creep Phone
-6. [Twilight Zone 80's - S01E17](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
-   - "Welcome to Winfield"
-   - "Quarantine"
+6. [Twilight Zone 80's - S01E20](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
+   - "Profile in Silver"
+   - "Button, Button"
 7. UHF - U62 Promo
-8. [Ripley's Believe It or Not! (1982 TV series) - Eiffel Tower](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+8. [Ripley's Believe It or Not! (1982 TV series) - Pony Express](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 9. Big Bill Hell's
 10. Artie's Workout
 11. Sifl N Olly - Claire Danes
 12. CRAZY DAVE TAPE 3 CRAP (AGAIN)
 13. Katy Perry Slimed
 14. UHF - Emo
-15. [Twilight Zone 80's - S01E18](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
-    - "Gramma"
-    - "Personal Demons"
-    - "Cold Reading"
+15. [Twilight Zone 80's - S01E21](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
+    - "Need to Know"
+    - "Red Snow"
 16. 900 Freak Phone
-17. [Ripley's Believe It or Not! (1982 TV series) - Flying Men of Japan](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+17. [Ripley's Believe It or Not! (1982 TV series) - Petrified Giant Man](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 18. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-19. [Ripley's Believe It or Not! (1982 TV series) - Jack The Ripper](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+19. [Ripley's Believe It or Not! (1982 TV series) - Baby Shoes](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 20. Sky High Solar Powered Radio Helmet
 21. Sifl N Olly - Star Wars
 22. Undertale - Napping with Ghost (outro / raid to another channel)
