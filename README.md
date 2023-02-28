@@ -10,20 +10,20 @@
 6. [Twilight Zone 80's - S01E20](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
    - "Profile in Silver"
    - "Button, Button"
-7. UHF - U62 Promo
+7. Full House - Alternate Intro
 8. [Ripley's Believe It or Not! (1982 TV series) - Pony Express](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 9. Big Bill Hell's
 10. Artie's Workout
-11. Sifl N Olly - Claire Danes
+11. Sifl N Olly - Chester Lover
 12. CRAZY DAVE TAPE 3 CRAP (AGAIN)
 13. Katy Perry Slimed
-14. UHF - Emo
+14. UHF - Conan the Librarian
 15. [Twilight Zone 80's - S01E21](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
     - "Need to Know"
     - "Red Snow"
 16. 900 Freak Phone
 17. [Ripley's Believe It or Not! (1982 TV series) - Petrified Giant Man](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
-18. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
+18. Garfield - 01-26-1995
 19. [Ripley's Believe It or Not! (1982 TV series) - Baby Shoes](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 20. Sky High Solar Powered Radio Helmet
 21. Sifl N Olly - Star Wars
