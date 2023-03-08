@@ -19,11 +19,11 @@
 12. CRAZY DAVE TAPE 3 CRAP (AGAIN)
 13. Katy Perry Slimed
 14. UHF - Conan the Librarian
-15. [Twilight Zone 80's - S02E01E02](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
-    - "The Once and Future King"
-    - "A Saucer of Loneliness"
+15. [Twilight Zone 80's - S01E24](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
+    - "A Day in Beaumont"
+    - "The Last Defender of Camelot"
 16. 900 Freak Phone
-17. [Ripley's Believe It or Not! (1982 TV series) - Bloddy Axe](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+17. [Ripley's Believe It or Not! (1982 TV series) - Bloody Axe](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 18. Garfield - 01-26-1995
 19. [Ripley's Believe It or Not! (1982 TV series) - The Deck of Cards](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 20. Sky High Solar Powered Radio Helmet
