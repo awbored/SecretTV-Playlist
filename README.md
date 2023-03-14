@@ -1,34 +1,35 @@
 # 2023/03/14 - SecretTV Playlist
 
 1. SecretTV Roller Coaster (intro)
-2. Amazon Women On the Moon - Arsenio Hall 
-3. How to open a door - Finnish instructional video from 1979 
-4. [Twilight Zone 80's - S02E01](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_2_(1986%E2%80%9387))
+2. Amazon Women On the Moon - Video Pirates
+3. [Twilight Zone 80's - S02E01](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_2_(1986%E2%80%9387))
    - "The Once and Future King"
    - "A Saucer of Loneliness"
-5. 900 Creep Phone
-6. [Twilight Zone 80's - S02E02](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_2_(1986%E2%80%9387))
+4. Beavis and Butthead - "I bought her some nachos"
+5. [Twilight Zone 80's - S02E02](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_2_(1986%E2%80%9387))
    - "What Are Friends For?"
    - "Aqua Vita"
-7. Full House - Alternate Intro
-8. [Ripley's Believe It or Not! (1982 TV series) - 01](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
-9. Big Bill Hell's
-10. Artie's Workout
-11. Sifl N Olly - Chester Lover
-12. CRAZY DAVE TAPE 3 CRAP (AGAIN)
-13. Katy Perry Slimed
-14. UHF - Conan the Librarian
-15. [Twilight Zone 80's - S02E03](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_2_(1986%E2%80%9387))
+6. La Choy Dragon Grocery Store
+7. [Ripley's Believe It or Not! (1982 TV series) - 01](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+8. Artie's Workout
+9. American Psycho with Huey Lewis and Weird Al
+10. Big Bill Hell's
+11. Dog Police - Dog Police
+12. Full House Alternate Intro
+13. Harvey Leeds - State of Shock
+14. Ninja Gaiden Commercial (JP Superbowl XXIII Broadcast 1989)
+15. Sifl N Olly - Word With Chester - Acting
+16. UHF - Spatula City
+17. [Twilight Zone 80's - S02E03](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_2_(1986%E2%80%9387))
     - "The Storyteller"
     - "Nightsong"
-16. 900 Freak Phone
-17. [Ripley's Believe It or Not! (1982 TV series) - 02](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
-18. Garfield - 01-26-1995
-19. [Ripley's Believe It or Not! (1982 TV series) - 03](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
-20. Sky High Solar Powered Radio Helmet
-21. Sifl N Olly - Star Wars
-22. Undertale - Napping with Ghost (outro / raid to another channel)
-
+18. Last Action Hero - Hamlet
+19. [Ripley's Believe It or Not! (1982 TV series) - 02](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+20. Garfield - 01-26-1995
+21. [Ripley's Believe It or Not! (1982 TV series) - 03](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+22. Sky High Solar Powered Radio Helmet
+23. Sifl N Olly - Fake Blood
+24. Undertale - Napping with Ghost (outro / raid to another channel)
 
 
 ## Info about SecretTVBot
