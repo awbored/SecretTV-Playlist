@@ -1,34 +1,34 @@
-# 2023/03/07 - SecretTV Playlist
+# 2023/03/14 - SecretTV Playlist
 
 1. SecretTV Roller Coaster (intro)
 2. Amazon Women On the Moon - Arsenio Hall 
 3. How to open a door - Finnish instructional video from 1979 
-4. [Twilight Zone 80's - S01E22](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
-   - "Take My Life...Please!"
-   - "Devil's Alphabet"
-   - "The Library"
+4. [Twilight Zone 80's - S02E01](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_2_(1986%E2%80%9387))
+   - "The Once and Future King"
+   - "A Saucer of Loneliness"
 5. 900 Creep Phone
-6. [Twilight Zone 80's - S01E23](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
-   - "Shadow Play"
-   - "Grace Note"
+6. [Twilight Zone 80's - S02E02](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_2_(1986%E2%80%9387))
+   - "What Are Friends For?"
+   - "Aqua Vita"
 7. Full House - Alternate Intro
-8. [Ripley's Believe It or Not! (1982 TV series) - S01E10 - ABC - 5Dec1982](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+8. [Ripley's Believe It or Not! (1982 TV series) - 01](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 9. Big Bill Hell's
 10. Artie's Workout
 11. Sifl N Olly - Chester Lover
 12. CRAZY DAVE TAPE 3 CRAP (AGAIN)
 13. Katy Perry Slimed
 14. UHF - Conan the Librarian
-15. [Twilight Zone 80's - S01E24](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes)
-    - "A Day in Beaumont"
-    - "The Last Defender of Camelot"
+15. [Twilight Zone 80's - S02E03](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_2_(1986%E2%80%9387))
+    - "The Storyteller"
+    - "Nightsong"
 16. 900 Freak Phone
-17. [Ripley's Believe It or Not! (1982 TV series) - Bloody Axe](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+17. [Ripley's Believe It or Not! (1982 TV series) - 02](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 18. Garfield - 01-26-1995
-19. [Ripley's Believe It or Not! (1982 TV series) - The Deck of Cards](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+19. [Ripley's Believe It or Not! (1982 TV series) - 03](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 20. Sky High Solar Powered Radio Helmet
 21. Sifl N Olly - Star Wars
 22. Undertale - Napping with Ghost (outro / raid to another channel)
+
 
 
 ## Info about SecretTVBot
