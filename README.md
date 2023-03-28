@@ -1,38 +1,34 @@
-# 2023/03/21 - SecretTV Playlist
+# 2023/03/28 - SecretTV Playlist
 
 1. SecretTV Roller Coaster (intro)
 2. Amazon Women On the Moon - Video Pirates
-3. [Twilight Zone 80's - S02E04](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_2_(1986%E2%80%9387))
-   - "The After Hours"
-   - "Lost and Found"
-   - "The World Next Door"
-4. Beavis and Butthead - "I bought her some nachos"
-5. [Twilight Zone 80's - S02E05](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_2_(1986%E2%80%9387))
-   - "The Toys of Caliban"
-6. [Twilight Zone 80's - S02E06](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_2_(1986%E2%80%9387))
-   - "The Convict's Piano"
-7. La Choy Dragon Grocery Store
-8. [Twilight Zone 80's - S02E07](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_2_(1986%E2%80%9387))
-   - "The Road Less Traveled"
-9. Artie's Workout
-10. American Psycho with Huey Lewis and Weird Al
-11. Big Bill Hell's
-12. Dog Police - Dog Police
+3. [Twilight Zone 80's - S02 - "Joy Ride"](https://en.wikipedia.org/wiki/Joy_Ride_(The_Twilight_Zone))
+4. [Twilight Zone 80's - S02 - "Private Channel"](https://en.wikipedia.org/wiki/Private_Channel)
+5. [Twilight Zone 80's - S02 - "Shelter Skelter"](https://en.wikipedia.org/wiki/Shelter_Skelter)
+6. 900FreakPhone
+7. [Twilight Zone 80's - S02 - "Time and Teresa Golowitz"](https://en.wikipedia.org/wiki/Time_and_Teresa_Golowitz)
+8. [Twilight Zone 80's - S02 - "Voices in the Earth"](https://en.wikipedia.org/wiki/Voices_in_the_Earth)
+9. La Choy Dragon Grocery Store
+10. [Ripley's Believe It or Not! (1982 TV series) - "Bridge in Japan"](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+11. Artie's Workout
+12. Big Bill Hell's
 13. Full House Alternate Intro
-14. Harvey Leeds - State of Shock
-15. Ninja Gaiden Commercial (JP Superbowl XXIII Broadcast 1989)
-16. Sifl N Olly - Word With Chester - Acting
-17. UHF - Spatula City
-18. [Twilight Zone 80's - S02E08/E09](https://en.wikipedia.org/wiki/List_of_The_Twilight_Zone_(1985_TV_series)_episodes#Season_2_(1986%E2%80%9387))
-    - "The Card"
-    - "The Junction"
-19. Last Action Hero - Hamlet
-20. [Ripley's Believe It or Not! (1982 TV series) - 04](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
-21. Garfield - 01-26-1995
-22. [Ripley's Believe It or Not! (1982 TV series) - 05](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
-23. Sky High Solar Powered Radio Helmet
-24. Sifl N Olly - Fake Blood
-25. Undertale - Napping with Ghost (outro / raid to another channel)
+14. Sify&Olly - A Word With Chester - Squirrel
+15. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
+16. Sony Walkman Feel The Music Commercial 1981
+17. KFC Simpsons Commercial 1993
+18. Mr. Gatti's Pizza Louisville KY Delivery Commercial (1985)
+19. SLAY-52s - Raining Lobsters
+20. UHF - Emo
+21. [Twilight Zone 80's - S02 - "Song of the Younger World"](https://en.wikipedia.org/wiki/Song_of_the_Younger_World)
+22. [Twilight Zone 80's - S02 - "The Girl I Married"](https://en.wikipedia.org/wiki/The_Girl_I_Married)
+23. UHF - Is this it
+24. [Ripley's Believe It or Not! (1982 TV series) - Divers](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+25. Lasagna Cat - 10-20-1984
+26. [Ripley's Believe It or Not! (1982 TV series) - Dodge ems](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+27. Sky High Solar Powered Radio Helmet
+28. Sifl N Olly - Fake Blood
+29. Undertale - Napping with Ghost (outro / raid to another channel)
 
 
 ## Info about SecretTVBot
