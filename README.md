@@ -1,6 +1,6 @@
 # 2023/04/04 - SecretTV Playlist
 
-Honoring the passing of Maestro,[Ryuichi Sakamoto](https://en.wikipedia.org/wiki/Ryuichi_Sakamoto) we will be playing a few classic specials and concerts.  The links here go to the original YouTube's so you can save them!
+Honoring the passing of Maestro, [Ryuichi Sakamoto](https://en.wikipedia.org/wiki/Ryuichi_Sakamoto) we will be playing a few classic specials and concerts.  The links here go to the original YouTube's so you can save them!
 
 1. [David Bowie | Ryuichi Sakamoto | "Y.M.O Special" | NHK Japanese TV | 31 December 1983](https://www.youtube.com/watch?v=Lmd89LdKKNk)
 2. [Tokyo melody un film sur Ryuichi Sakamoto](https://www.youtube.com/watch?v=Yv3Iqzpv3_I)
