@@ -1,15 +1,32 @@
-# 2023/04/04 - SecretTV Playlist
+# 2023/04/11 - SecretTV Playlist
 
-Honoring the passing of Maestro, [Ryuichi Sakamoto](https://en.wikipedia.org/wiki/Ryuichi_Sakamoto) we will be playing a few classic specials and concerts.  The links here go to the original YouTube's so you can save them!
+1. Secret TV Roller Coaster (intro)
+2. UHF - U62 Promo
+3. [1988 - The Twilight Zone - S03E01 - "The Curious Case of Edgar Witherspoon"](https://en.wikipedia.org/wiki/The_Curious_Case_of_Edgar_Witherspoon)
+4. [1988 - The Twilight Zone - S03E02 - "Extra Innings"](https://en.wikipedia.org/wiki/Extra_Innings_(The_Twilight_Zone))
+5. KFC Simpsons Commercial 1993
+6. [1988 - The Twilight Zone - S03E03 - "The Crossing"](https://en.wikipedia.org/wiki/The_Crossing_(The_Twilight_Zone))
+7. [1988 - The Twilight Zone - S03E04 - "The Hunters"](https://en.wikipedia.org/wiki/The_Hunters_(The_Twilight_Zone))
+8. Mr. Gatti's Pizza Louisville KY Delivery Commercial (1985)
+9. [Ripley's Believe It or Not -  John Stiles' Heart](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+10. Artie's Workout
+11. Zoobooks
+12. Full House Alternate Intro
+13. Talking Kermits Once In A Lifetime
+14. Sony Walkman Feel The Music Commercial 1981
+15. SLAY-52s - Raining Lobsters
+16. Sifl N Olly - Crescent Fresh Song HD
+17. Super Mario Land 2 (1992)(Nintendo)[a2]
+18. [1988 - The Twilight Zone - S03E05 - "Dream Me a Life"](https://en.wikipedia.org/wiki/Dream_Me_a_Life)
+19. [1988 - The Twilight Zone - S03E06 - "Memories"](https://en.wikipedia.org/wiki/Memories_(The_Twilight_Zone))
+20. 900-Creep-Phone
+21. [Ripleys Believe it or Not - Monks](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+22. Shake Hands With Danger # 8
+23. [Ripley's Believe It or Not -  Mr Hyde](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+24. Lasagna Cat - 01-26-1995
+25. Sifl N Olly - Fake Blood
+26. Undertale - Napping with Ghost
 
-1. [David Bowie | Ryuichi Sakamoto | "Y.M.O Special" | NHK Japanese TV | 31 December 1983](https://www.youtube.com/watch?v=Lmd89LdKKNk)
-2. [Tokyo melody un film sur Ryuichi Sakamoto](https://www.youtube.com/watch?v=Yv3Iqzpv3_I)
-3. [坂本龍一-MEDIA BAHN LIVE (1986)](https://www.youtube.com/watch?v=7YL1X-PHRhM)
-4. [Ryuichi Sakamoto Beauty Tour 1990](https://www.youtube.com/watch?v=2iJT8OcDJ2A)
-5. [Ryuichi Sakamoto Heartbeat Japan Tour 1992 HQ](https://www.youtube.com/watch?v=jrakRJDlydU)
-6. [「TV-YMO」Yellow Magic Orchestra YMO イエロー・マジック・オーケストラ](https://www.youtube.com/watch?v=tgQhiE_m-LA)
-7. [Yellow Magic Orchestra 1979 LIVE at GREEK THEATRE](https://www.youtube.com/watch?v=QUn6V49PG00)
-8. [ymo complete hurrah](https://www.youtube.com/watch?v=zYuYIfiTVCE)
 
 
 
