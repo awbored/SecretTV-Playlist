@@ -13,10 +13,10 @@
 11. Zoobooks
 12. Full House Alternate Intro
 13. Talking Kermits Once In A Lifetime
-14. Sony Walkman Feel The Music Commercial 1981
+14. Sony Walkman Feel The Music Commercial (1981)
 15. SLAY-52s - Raining Lobsters
-16. Sifl N Olly - Crescent Fresh Song HD
-17. Super Mario Land 2 (1992)(Nintendo)[a2]
+16. Sifl N Olly - Crescent Fresh Song
+17. Super Mario Land 2 (1992)(Nintendo)
 18. [The Twilight Zone (1988) - S03E05 - "Dream Me a Life"](https://en.wikipedia.org/wiki/Dream_Me_a_Life)
 19. [The Twilight Zone (1988) - S03E06 - "Memories"](https://en.wikipedia.org/wiki/Memories_(The_Twilight_Zone))
 20. 900-Creep-Phone
