@@ -1,14 +1,14 @@
-# 2023/04/11 - SecretTV Playlist
+# 2023/04/18 - SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
 2. UHF - U62 Promo
-3. [The Twilight Zone (1988) - S03E01 - "The Curious Case of Edgar Witherspoon"](https://en.wikipedia.org/wiki/The_Curious_Case_of_Edgar_Witherspoon)
-4. [The Twilight Zone (1988) - S03E02 - "Extra Innings"](https://en.wikipedia.org/wiki/Extra_Innings_(The_Twilight_Zone))
+3. [The Twilight Zone (1988) - S03E07 - "The Hellgramite Method"](https://en.wikipedia.org/wiki/The_Hellgramite_Method)
+4. [The Twilight Zone (1988) - S03E08 - "Our Selena Is Dying"](https://en.wikipedia.org/wiki/Our_Selena_Is_Dying)
 5. KFC Simpsons Commercial 1993
-6. [The Twilight Zone (1988) - S03E03 - "The Crossing"](https://en.wikipedia.org/wiki/The_Crossing_(The_Twilight_Zone))
-7. [The Twilight Zone (1988) - S03E04 - "The Hunters"](https://en.wikipedia.org/wiki/The_Hunters_(The_Twilight_Zone))
+6. [The Twilight Zone (1988) - S03E09 - "The Call"](https://en.wikipedia.org/wiki/The_Call_(The_Twilight_Zone))
+7. [The Twilight Zone (1988) - S03E10 - "The Trance"](https://en.wikipedia.org/wiki/The_Trance_(The_Twilight_Zone))
 8. Mr. Gatti's Pizza Louisville KY Delivery Commercial (1985)
-9. [Ripley's Believe It or Not (1982) -  John Stiles' Heart](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+9. [Ripley's Believe It or Not (1982) -  Rodeos](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 10. Artie's Workout
 11. Zoobooks
 12. Full House Alternate Intro
@@ -17,12 +17,12 @@
 15. SLAY-52s - Raining Lobsters
 16. Sifl N Olly - Crescent Fresh Song
 17. Super Mario Land 2 (1992)(Nintendo)
-18. [The Twilight Zone (1988) - S03E05 - "Dream Me a Life"](https://en.wikipedia.org/wiki/Dream_Me_a_Life)
-19. [The Twilight Zone (1988) - S03E06 - "Memories"](https://en.wikipedia.org/wiki/Memories_(The_Twilight_Zone))
+18. [The Twilight Zone (1988) - S03E11 - "Acts of Terror"](https://en.wikipedia.org/wiki/Acts_of_Terror_(The_Twilight_Zone))
+19. [The Twilight Zone (1988) - S03E12 - "20/20 Vision"](https://en.wikipedia.org/wiki/20/20_Vision_(The_Twilight_Zone))
 20. 900-Creep-Phone
-21. [Ripleys Believe it or Not (1982) - Monks](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+21. [Ripleys Believe it or Not (1982) - Operation Valkyrie](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 22. Shake Hands With Danger # 8
-23. [Ripley's Believe It or Not (1982) -  Mr Hyde](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+23. [The Undersea World of Jacques Cousteau - E02 - "Savage World of the Coral Jungle" (1968)](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
 24. Lasagna Cat - 01-26-1995
 25. Sifl N Olly - Fake Blood
 26. Undertale - Napping with Ghost
