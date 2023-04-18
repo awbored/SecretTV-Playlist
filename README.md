@@ -21,7 +21,7 @@
 19. [The Twilight Zone (1988) - S03E12 - "20/20 Vision"](https://en.wikipedia.org/wiki/20/20_Vision_(The_Twilight_Zone))
 20. 900-Creep-Phone
 21. [Ripleys Believe it or Not (1982) - Operation Valkyrie](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
-22. Shake Hands With Danger # 8
+22. Shake Hands With Danger # 7
 23. [The Undersea World of Jacques Cousteau - E02 - "Savage World of the Coral Jungle" (1968)](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
 24. Lasagna Cat - 01-26-1995
 25. Sifl N Olly - Fake Blood
