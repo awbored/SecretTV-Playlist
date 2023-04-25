@@ -1,31 +1,29 @@
-# 2023/04/18 - SecretTV Playlist
+# 2023/04/25 - SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
-2. UHF - U62 Promo
-3. [The Twilight Zone (1988) - S03E07 - "The Hellgramite Method"](https://en.wikipedia.org/wiki/The_Hellgramite_Method)
-4. [The Twilight Zone (1988) - S03E08 - "Our Selena Is Dying"](https://en.wikipedia.org/wiki/Our_Selena_Is_Dying)
-5. KFC Simpsons Commercial 1993
-6. [The Twilight Zone (1988) - S03E09 - "The Call"](https://en.wikipedia.org/wiki/The_Call_(The_Twilight_Zone))
-7. [The Twilight Zone (1988) - S03E10 - "The Trance"](https://en.wikipedia.org/wiki/The_Trance_(The_Twilight_Zone))
-8. Mr. Gatti's Pizza Louisville KY Delivery Commercial (1985)
-9. [Ripley's Believe It or Not (1982) -  Rodeos](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
-10. Artie's Workout
-11. Zoobooks
-12. Full House Alternate Intro
-13. Talking Kermits Once In A Lifetime
-14. Sony Walkman Feel The Music Commercial (1981)
-15. SLAY-52s - Raining Lobsters
-16. Sifl N Olly - Crescent Fresh Song
-17. Super Mario Land 2 (1992)(Nintendo)
-18. [The Twilight Zone (1988) - S03E11 - "Acts of Terror"](https://en.wikipedia.org/wiki/Acts_of_Terror_(The_Twilight_Zone))
-19. [The Twilight Zone (1988) - S03E12 - "20/20 Vision"](https://en.wikipedia.org/wiki/20/20_Vision_(The_Twilight_Zone))
-20. 900-Creep-Phone
-21. [Ripleys Believe it or Not (1982) - Operation Valkyrie](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
-22. Shake Hands With Danger # 7
-23. [The Undersea World of Jacques Cousteau - E02 - "Savage World of the Coral Jungle" (1968)](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
-24. Lasagna Cat - 01-26-1995
-25. Sifl N Olly - Fake Blood
-26. Undertale - Napping with Ghost
+2. Amazon - Arsenio Hall
+3. [The Twilight Zone (1988) - S03E13 - "There Was an Old Woman"](https://en.wikipedia.org/wiki/There_Was_an_Old_Woman_(The_Twilight_Zone))
+4. [The Twilight Zone (1988) - S03E14 - "The Trunk"](https://en.wikipedia.org/wiki/The_Trunk_(The_Twilight_Zone))
+5. UHF - Is this it
+6. [Ripley's Believe It or Not (1982) -  Episode 06](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+7. Beavis and Butthead - I bought her some nachos
+8. [The Undersea World of Jacques Cousteau - Special - Conshelf Adventure (1966)](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+9. Artie's Workout
+10. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
+11. CRAZY DAVE TAPE 3 CRAP (AGAIN)
+12. Middle School Weezer Cover Goes Horribly Wrong
+13. UHF - Emo
+14. Sifl N Olly - Claire Danes
+15. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
+16. [The Twilight Zone (1988) - S03E15 - "Appointment on Route 17"](https://en.wikipedia.org/wiki/Appointment_on_Route_17)
+17. [The Twilight Zone (1988) - S03E16 - "The Cold Equations"](https://en.wikipedia.org/wiki/The_Cold_Equations_(The_Twilight_Zone))
+18. Ninja Gaiden Commercial (JP Superbowl XXIII Broadcast 1989)
+19. [Carl Sagan Cosmos Special Edition 1986 ep01](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
+20. They Live Trailer (JP Superbowl XXIII Broadcast 1989)
+21. [The Undersea World of Jacques Cousteau - Episode 1 - "Sharks" (1968)](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+22. Sky High Solar Powered Radio Helmet.mp4
+23. Sifl N Olly - Fake Blood
+24. Undertale - Napping with Ghost
 
 
 
