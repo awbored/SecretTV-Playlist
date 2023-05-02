@@ -1,29 +1,30 @@
-# 2023/04/25 - SecretTV Playlist
+# 2023/05/02 - SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
 2. Amazon - Arsenio Hall
-3. [The Twilight Zone (1988) - S03E13 - "There Was an Old Woman"](https://en.wikipedia.org/wiki/There_Was_an_Old_Woman_(The_Twilight_Zone))
-4. [The Twilight Zone (1988) - S03E14 - "The Trunk"](https://en.wikipedia.org/wiki/The_Trunk_(The_Twilight_Zone))
+3. [The Twilight Zone (1988) - S03E17 - "Stranger in Possum Meadows"](https://en.wikipedia.org/wiki/Stranger_in_Possum_Meadows)
+4. [The Twilight Zone (1988) - S03E18 - "Street of Shadows"](https://en.wikipedia.org/wiki/Street_of_Shadows_(The_Twilight_Zone))
 5. UHF - Is this it
-6. [Ripley's Believe It or Not (1982) -  Episode 06](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
-7. Beavis and Butthead - I bought her some nachos
-8. [The Undersea World of Jacques Cousteau - Special - Conshelf Adventure (1966)](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+6. [Ripley's Believe It or Not (1982) -  Rasputin](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+7. Pepsi Young MC Cool Cans
+8. [The Undersea World of Jacques Cousteau - Episode 3 - "Search in the Deep / Submarines" (1968)](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
 9. Artie's Workout
 10. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
 11. CRAZY DAVE TAPE 3 CRAP (AGAIN)
-12. Middle School Weezer Cover Goes Horribly Wrong
-13. UHF - Emo
-14. Sifl N Olly - Claire Danes
-15. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-16. [The Twilight Zone (1988) - S03E15 - "Appointment on Route 17"](https://en.wikipedia.org/wiki/Appointment_on_Route_17)
-17. [The Twilight Zone (1988) - S03E16 - "The Cold Equations"](https://en.wikipedia.org/wiki/The_Cold_Equations_(The_Twilight_Zone))
-18. Ninja Gaiden Commercial (JP Superbowl XXIII Broadcast 1989)
-19. [Carl Sagan Cosmos Special Edition 1986 ep01](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
-20. They Live Trailer (JP Superbowl XXIII Broadcast 1989)
-21. [The Undersea World of Jacques Cousteau - Episode 1 - "Sharks" (1968)](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
-22. Sky High Solar Powered Radio Helmet.mp4
-23. Sifl N Olly - Fake Blood
-24. Undertale - Napping with Ghost
+12. THE ONLY 80'S DATING VIDEO YOU NEED TO SEE
+13. Drinking Out Of Cups (Official) - (Liam Lynch & Dan Deacon)
+14. UHF - Emo
+15. Sifl & Olly - A Word With Chester - Squirrel
+16. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
+17. [The Twilight Zone (1988) - S03E19 - "Something in the Walls"](https://en.wikipedia.org/wiki/Something_in_the_Walls)
+18. [The Twilight Zone (1988) - S03E20 - "A Game of Pool"](https://en.wikipedia.org/wiki/A_Game_of_Pool_(The_Twilight_Zone,_1985))
+19. Taco Bell MC Hammer Escapes Via Parachute Hammer Pants Commercial 1980s & 1990s Commercials
+20. [Carl Sagan Cosmos Special Edition 1986 ep01](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
+21. They Live Trailer (JP Superbowl XXIII Broadcast 1989)
+22. [The Undersea World of Jacques Cousteau - Episode 4 - "Whales" (1968)](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+23. Steamed Hams but it's a German Expressionist Film
+24. Sifl N Olly - Fake Blood
+25. Undertale - Napping with Ghost
 
 
 
