@@ -19,7 +19,7 @@
 17. [The Twilight Zone (1988) - S03E19 - "Something in the Walls"](https://en.wikipedia.org/wiki/Something_in_the_Walls)
 18. [The Twilight Zone (1988) - S03E20 - "A Game of Pool"](https://en.wikipedia.org/wiki/A_Game_of_Pool_(The_Twilight_Zone,_1985))
 19. Taco Bell MC Hammer Escapes Via Parachute Hammer Pants Commercial 1980s & 1990s Commercials
-20. [Carl Sagan Cosmos Special Edition 1986 ep01](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
+20. [Carl Sagan Cosmos Special Edition 1986 ep02](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
 21. They Live Trailer (JP Superbowl XXIII Broadcast 1989)
 22. [The Undersea World of Jacques Cousteau - Episode 4 - "Whales" (1968)](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
 23. Steamed Hams but it's a German Expressionist Film
