@@ -11,20 +11,18 @@
 9. Artie's Workout
 10. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
 11. CRAZY DAVE TAPE 3 CRAP (AGAIN)
-12. The Only 80's Dating Video You Need to See
-13. Drinking Out Of Cups - (Liam Lynch & Dan Deacon)
-14. UHF Clip - Emo Shop Teacher
-15. Sifl & Olly - A Word With Chester - Squirrel
-16. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-17. [The Twilight Zone (1988) - S03E19 - "Something in the Walls"](https://en.wikipedia.org/wiki/Something_in_the_Walls)
-18. [The Twilight Zone (1988) - S03E20 - "A Game of Pool"](https://en.wikipedia.org/wiki/A_Game_of_Pool_(The_Twilight_Zone,_1985))
-19. Taco Bell Commercial - MC Hammer Escapes
-20. [Carl Sagan Cosmos Special Edition 1986 ep02](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
-21. They Live Trailer (JP Superbowl XXIII Broadcast 1989)
-22. [The Undersea World of Jacques Cousteau - Episode 4 - "Whales" (1968)](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
-23. Steamed Hams but it's a German Expressionist Film
-24. Sifl & Olly - Fake Blood
-25. Undertale - Napping with Ghost
+12. UHF Clip - Emo Shop Teacher
+13. Sifl & Olly - A Word With Chester - Squirrel
+14. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
+15. [The Twilight Zone (1988) - S03E19 - "Something in the Walls"](https://en.wikipedia.org/wiki/Something_in_the_Walls)
+16. [The Twilight Zone (1988) - S03E20 - "A Game of Pool"](https://en.wikipedia.org/wiki/A_Game_of_Pool_(The_Twilight_Zone,_1985))
+17. Taco Bell Commercial - MC Hammer Escapes
+18. [Carl Sagan Cosmos Special Edition 1986 ep02](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
+19. They Live Trailer (JP Superbowl XXIII Broadcast 1989)
+20. [The Undersea World of Jacques Cousteau - Episode 4 - "Whales" (1968)](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+21. Steamed Hams but it's a German Expressionist Film
+22. Sifl & Olly - Fake Blood
+23. Undertale - Napping with Ghost
 
 
 
