@@ -2,7 +2,7 @@
 
 1. Secret TV Roller Coaster (intro)
 2. Amazon Women On The Moon Clip - Arsenio Hall's a Very Bad No Good Day
-3. [The Twilight Zone (1988) - S03E21 - "Room 2426"](https://en.wikipedia.org/wiki/Room_2426)
+3. [The Twilight Zone (1988) - S03E23 - "The Wall"](https://en.wikipedia.org/wiki/The_Wall_(The_Twilight_Zone))
 4. [The Twilight Zone (1988) - S03E22 - "The Mind of Simon Foster"](https://en.wikipedia.org/wiki/The_Mind_of_Simon_Foster)
 5. UHF Clip - Is this it?
 6. [Ripley's Believe It or Not (1982) -  The Box](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
@@ -15,8 +15,8 @@
 13. UHF Clip - Emo "I think it's on the floor over there"
 14. Sifl & Olly - A Word With Chester - IQ Test
 15. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-16. [The Twilight Zone (1988) - S03E3 - "The Wall"](https://en.wikipedia.org/wiki/The_Wall_(The_Twilight_Zone))
-17. [The Twilight Zone (1988) - S03E4 - "Cat and Mouse"](https://en.wikipedia.org/wiki/Cat_and_Mouse_(The_Twilight_Zone))
+16. [The Twilight Zone (1988) - S03E21 - "Room 2426"](https://en.wikipedia.org/wiki/Room_2426)
+17. [The Twilight Zone (1988) - S03E24 - "Cat and Mouse"](https://en.wikipedia.org/wiki/Cat_and_Mouse_(The_Twilight_Zone))
 18. Taco Bell Commercial - MC Hammer Escapes
 19. [Carl Sagan Cosmos Special Edition 1986 ep03](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
 20. They Live Trailer (JP Superbowl XXIII Broadcast 1989)
