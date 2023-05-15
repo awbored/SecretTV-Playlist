@@ -15,8 +15,8 @@
 13. UHF Clip - Emo "I think it's on the floor over there"
 14. Sifl & Olly - A Word With Chester - IQ Test
 15. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-16. [The Twilight Zone (1988) - S03E27 - "The Mind of Simon Foster"](https://en.wikipedia.org/wiki/The_Mind_of_Simon_Foster)
-17. [The Twilight Zone (1988) - S03E28 - "Cat and Mouse"](https://en.wikipedia.org/wiki/Cat_and_Mouse_(The_Twilight_Zone))
+16. [The Twilight Zone (1988) - S03E27 - "Love is Blind"](https://en.wikipedia.org/wiki/Love_Is_Blind_(The_Twilight_Zone))
+17. [The Twilight Zone (1988) - S03E28 - "Crazy as a Soup Sandwich"](https://en.wikipedia.org/wiki/Crazy_as_a_Soup_Sandwich)
 18. Taco Bell Commercial - MC Hammer Escapes
 19. [Carl Sagan Cosmos Special Edition 1986 - Episode 04](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
 20. They Live Trailer (JP Superbowl XXIII Broadcast 1989)
