@@ -1,29 +1,26 @@
-# 2023/05/16 - SecretTV Playlist
+# 2023/05/30 - SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
-2. Amazon Women On The Moon Clip - Arsenio Hall's a Very Bad No Good Day
-3. [The Twilight Zone (1988) - S03E25 - "Rendezvous in a Dark Place"](https://en.wikipedia.org/wiki/Rendezvous_in_a_Dark_Place)
-4. [The Twilight Zone (1988) - S03E26 - "Many, Many Monkeys"](https://en.wikipedia.org/wiki/Many,_Many_Monkeys)
-5. UHF Clip - Is this it?
-6. [Ripley's Believe It or Not (1982) -  Typhoid Mary - November 18, 1984](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
-7. Pepsi Commercial - Young MC Cool Cans
-8. [The Undersea World of Jacques Cousteau - Episode 07 - "The Legend of Lake Titicaca"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
-9. Artie's Workout
-10. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
-11. CRAZY DAVE TAPE 3 CRAP (AGAIN)
-12. SWEETIES - Lickin My Chops
-13. UHF Clip - Emo "I think it's on the floor over there"
-14. Sifl & Olly - A Word With Chester - IQ Test
-15. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-16. [The Twilight Zone (1988) - S03E27 - "Love is Blind"](https://en.wikipedia.org/wiki/Love_Is_Blind_(The_Twilight_Zone))
-17. [The Twilight Zone (1988) - S03E28 - "Crazy as a Soup Sandwich"](https://en.wikipedia.org/wiki/Crazy_as_a_Soup_Sandwich)
-18. Taco Bell Commercial - MC Hammer Escapes
-19. [Carl Sagan Cosmos Special Edition 1986 - Episode 04](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
-20. They Live Trailer (JP Superbowl XXIII Broadcast 1989)
-21. [The Undersea World of Jacques Cousteau - Episode 08 - "The Desert Whales"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
-22. Steamed Hams but it's a German Expressionist Film
-23. Sifl & Olly - Fake Blood
-24. Undertale - Napping with Ghost
+2. UHF - Rauls Wild Kingdom
+3. 900-Creep-Phone
+4. [The Twilight Zone (1988) - S03E29 - "Special Service"](https://en.wikipedia.org/wiki/Special_Service)
+5. [The Twilight Zone (1988) - S03E30 - "Father and Son Game"](https://en.wikipedia.org/wiki/Father_and_Son_Game)
+6. Taco Bell commercial - Young MC (1990)
+7. [Ripley's Believe It or Not (1982) -  Water Flowing Upwards](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+8. Zoobooks
+9. [The Undersea World of Jacques Cousteau - Episode 09 - "The Night of the Squid"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+10. Artie's Workout
+11. Sify&Olly - A Word With Chester - Squirrel
+12. [Ripley's Believe It or Not (1982) -  Whale Birth](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+13. KFC Simpsons Commercial (1993)
+14. Sony Walkman Feel The Music Commercial (1981)
+15. Big Bill Hell's
+16. Talking Kermits - Once In A Lifetime
+17. [Carl Sagan Cosmos Special Edition 1986 - Episode 05](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
+18. [The Undersea World of Jacques Cousteau - Episode 10 - "Return of the Sea Elephant"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+19. Steamed Hams but it's a German Expressionist Film
+20. Sifl & Olly - Fake Blood
+21. Undertale - Napping with Ghost
 
 
 
