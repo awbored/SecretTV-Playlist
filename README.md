@@ -1,9 +1,9 @@
 # 2023/06/06 - SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
-2. Ray Bradbury Theater - S01E01 - Marionettes, Inc.
+2. [Ray Bradbury Theater - S01E01 - Marionettes, Inc.](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes)
 3. [Clip] Beavis and Butthead - I bought her some nachos
-4. Ray Bradbury Theater - S01E02 - The Playground
+4. [Ray Bradbury Theater - S01E02 - The Playground](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes)
 5. [Clip] Katy Perry Slimed
 6. Zoobooks
 7. [Ripley's Believe It or Not - Cars](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
