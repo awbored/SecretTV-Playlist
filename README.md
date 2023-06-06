@@ -1,26 +1,31 @@
-# 2023/05/30 - SecretTV Playlist
+# 2023/06/06 - SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
-2. UHF - Rauls Wild Kingdom
-3. 900-Creep-Phone
-4. [The Twilight Zone (1988) - S03E29 - "Special Service"](https://en.wikipedia.org/wiki/Special_Service)
-5. [The Twilight Zone (1988) - S03E30 - "Father and Son Game"](https://en.wikipedia.org/wiki/Father_and_Son_Game)
-6. Taco Bell commercial - Young MC (1990)
-7. [Ripley's Believe It or Not (1982) -  Water Flowing Upwards](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
-8. Zoobooks
-9. [The Undersea World of Jacques Cousteau - Episode 09 - "The Night of the Squid"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
-10. Artie's Workout
-11. Sify&Olly - A Word With Chester - Squirrel
-12. [Ripley's Believe It or Not (1982) -  Whale Birth](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
-13. KFC Simpsons Commercial (1993)
-14. Sony Walkman Feel The Music Commercial (1981)
-15. Big Bill Hell's
-16. Talking Kermits - Once In A Lifetime
-17. [Carl Sagan Cosmos Special Edition 1986 - Episode 05](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
-18. [The Undersea World of Jacques Cousteau - Episode 10 - "Return of the Sea Elephant"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
-19. Steamed Hams but it's a German Expressionist Film
-20. Sifl & Olly - Fake Blood
-21. Undertale - Napping with Ghost
+2. Ray Bradbury Theater - S01E01 - Marionettes, Inc.
+3. [Clip] Beavis and Butthead - I bought her some nachos
+4. Ray Bradbury Theater - S01E02 - The Playground
+5. [Clip] Katy Perry Slimed
+6. Zoobooks
+7. [Ripley's Believe It or Not - Cars](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+8. Artie's Workout
+9. Big Bill Hell's
+10. Doctor Who BBC Video VHS Releases UK Ad (1992)
+11. Full House Alternate Intro
+12. Harvey Leeds - State of Shock
+13. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
+14. 900-Freak-Phone
+15. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
+16. Peckham - Wind Beneath My Wings Interpretive Dance
+17. Sifl N Olly - Chester Lover
+18. SWEETIES Lickin' My Chops
+19. Taco Bell MC Hammer Escapes Via Parachute Hammer Pants Commercial 1980s & 1990s Commercials
+20. Carl Sagan Cosmos Special Edition 1986 EP06
+21. Pepsi Young MC Cool Cans
+22. [Marty Stouffers Wild America Wild Babies](https://en.wikipedia.org/wiki/Wild_America_(TV_series))
+23. KFC Simpsons Commercial 1993
+24. [The Undersea World of Jacques Cousteau - Episode 11 - "Those Incredible Diving Machines"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+25. Sifl N Olly - Star Wars
+26. Undertale - Napping with Ghost (ending - raid out to another channel)
 
 
 
