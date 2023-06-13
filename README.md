@@ -19,7 +19,7 @@
 17. Sifl N Olly - Chester Lover
 18. SWEETIES Lickin' My Chops
 19. Taco Bell MC Hammer Escapes Via Parachute Hammer Pants Commercial 1980s & 1990s Commercials
-20. [Carl Sagan Cosmos A Personal Voyage - EP01 - The Shores of the Cosmic Ocean (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
+20. [Carl Sagan Cosmos A Personal Voyage - EP01 - The Shores of the Cosmic Ocean (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage) (Turns out I was playing a different series the last few weeks?  Good news is we have more Sagan!)
 21. Pepsi Young MC Cool Cans
 22. [VH1 - Behind The Music - The Monkees](https://en.wikipedia.org/wiki/Behind_the_Music)
 23. KFC Simpsons Commercial 1993
