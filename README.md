@@ -1,12 +1,12 @@
-# 2023/06/06 - SecretTV Playlist
+# 2023/06/13 - SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
-2. [Ray Bradbury Theater - S01E01 - Marionettes, Inc.](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes)
+2. [Ray Bradbury Theater - S01E03 - The Crowd](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes)
 3. [Clip] Beavis and Butthead - I bought her some nachos
-4. [Ray Bradbury Theater - S01E02 - The Playground](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes)
+4. [Ray Bradbury Theater - S01E04 - The Town Where No One Got Off](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes)
 5. [Clip] Katy Perry Slimed
 6. Zoobooks
-7. [Ripley's Believe It or Not - Cars](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+7. [Ripley's Believe It or Not - Religions](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
 8. Artie's Workout
 9. Big Bill Hell's
 10. Doctor Who BBC Video VHS Releases UK Ad (1992)
@@ -19,11 +19,11 @@
 17. Sifl N Olly - Chester Lover
 18. SWEETIES Lickin' My Chops
 19. Taco Bell MC Hammer Escapes Via Parachute Hammer Pants Commercial 1980s & 1990s Commercials
-20. [Carl Sagan Cosmos Special Edition 1986 EP06](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
+20. [Carl Sagan Cosmos Special Edition 1986 EP07 - The Backbone of Night](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
 21. Pepsi Young MC Cool Cans
-22. [Marty Stouffers Wild America Wild Babies](https://en.wikipedia.org/wiki/Wild_America_(TV_series))
+22. [VH1 - Behind The Music - The Monkees](https://en.wikipedia.org/wiki/Behind_the_Music)
 23. KFC Simpsons Commercial 1993
-24. [The Undersea World of Jacques Cousteau - Episode 11 - "Those Incredible Diving Machines"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+24. [The Undersea World of Jacques Cousteau - Episode 12 - "The Water Planet"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
 25. Sifl N Olly - Star Wars
 26. Undertale - Napping with Ghost (ending - raid out to another channel)
 
