@@ -1,31 +1,29 @@
-# 2023/06/13 - SecretTV Playlist
+# 2023/06/20 - SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
-2. [Ray Bradbury Theater - S01E03 - The Crowd](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes)
-3. [Clip] Beavis and Butthead - I bought her some nachos
-4. [Ray Bradbury Theater - S01E04 - The Town Where No One Got Off](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes)
-5. [Clip] Katy Perry Slimed
-6. Zoobooks
-7. [Ripley's Believe It or Not - Religions](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
-8. Artie's Workout
-9. Big Bill Hell's
-10. Doctor Who BBC Video VHS Releases UK Ad (1992)
-11. Full House Alternate Intro
-12. Harvey Leeds - State of Shock
-13. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
-14. 900-Freak-Phone
+2. Amazon Women On the Moon - Video Pirates
+3. Sony Walkman Feel The Music Commercial 1981
+4. [Ray Bradbury Theater - S01E05 - "The Screaming Woman"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes)
+5. Misc ads from 1993
+6. [Ray Bradbury Theater - S01E06 - "The Banshee"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes)
+7. Pete and Pete - "Greetings Photo Gal"
+8. [The Undersea World of Jacques Cousteau - Episode 13 - "Tragedy of the Red Salmon"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+9. Artie's Workout
+10. Big Bill Hell's
+11. La Choy Dragon Grocery Store
+12. 900-Freak-Phone
+13. Sifl N Olly - Claire Danes
+14. CRAZY DAVE TAPE 3 CRAP
 15. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-16. Peckham - Wind Beneath My Wings Interpretive Dance
-17. Sifl N Olly - Chester Lover
-18. SWEETIES Lickin' My Chops
-19. Taco Bell MC Hammer Escapes Via Parachute Hammer Pants Commercial 1980s & 1990s Commercials
-20. [Carl Sagan Cosmos A Personal Voyage - EP01 - The Shores of the Cosmic Ocean (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage) (Turns out I was playing a different series the last few weeks?  Good news is we have more Sagan!)
-21. Pepsi Young MC Cool Cans
-22. [VH1 - Behind The Music - The Monkees](https://en.wikipedia.org/wiki/Behind_the_Music)
-23. KFC Simpsons Commercial 1993
-24. [The Undersea World of Jacques Cousteau - Episode 12 - "The Water Planet"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
-25. Sifl N Olly - Star Wars
-26. Undertale - Napping with Ghost (ending - raid out to another channel)
+16. [Ripley's Believe It or Not - Breakdancers](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
+17. Last Action Hero - Hamlet
+18. [Carl Sagan Cosmos A Personal Voyage - EP02 - "One Voice in the Cosmic Fugue" (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
+19. Harvey Leeds - State of Shock
+20. [Dublin Goth New Wave Movement (Uncensored) (1989)](https://www.youtube.com/watch?v=Uv6Sxh1hi7w)
+21. [Punks, Goths & Mods on Irish TV (1983)](https://www.youtube.com/watch?v=QDogh7J1-5s)
+22. [Music Around Us - "New Wave" - Australian TV Show about New Wave Movement (1980)](https://www.youtube.com/watch?v=TFBSnX3GUaQ)
+23. Sifl N Olly - Fake Blood
+24. Undertale - Napping with Ghost (ending - raid out to another channel)
 
 
 
