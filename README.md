@@ -1,29 +1,28 @@
-# 2023/06/20 - SecretTV Playlist
+# 2023/06/27 - SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
 2. Amazon Women On the Moon - Video Pirates
 3. Sony Walkman Feel The Music Commercial 1981
-4. [Ray Bradbury Theater - S01E05 - "The Screaming Woman"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes)
+4. [Ray Bradbury Theater - S02E01 - "The Fruit at the Bottom of the Bowl"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes)
 5. Misc ads from 1993
-6. [Ray Bradbury Theater - S01E06 - "The Banshee"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes)
+6. [Ray Bradbury Theater - S02E02 - "Skeleton"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes)
 7. Pete and Pete - "Greetings Photo Gal"
-8. [The Undersea World of Jacques Cousteau - Episode 13 - "Tragedy of the Red Salmon"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+8. [The Undersea World of Jacques Cousteau - Episode 14 - "Lagoon of Lost Ships" (too soon??)](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
 9. Artie's Workout
 10. Big Bill Hell's
 11. La Choy Dragon Grocery Store
 12. 900-Freak-Phone
 13. Sifl N Olly - Claire Danes
-14. CRAZY DAVE TAPE 3 CRAP
-15. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-16. [Ripley's Believe It or Not - Breakdancers](https://en.wikipedia.org/wiki/Ripley%27s_Believe_It_or_Not!_(1982_TV_series))
-17. Last Action Hero - Hamlet
-18. [Carl Sagan Cosmos A Personal Voyage - EP02 - "One Voice in the Cosmic Fugue" (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
-19. Harvey Leeds - State of Shock
-20. [Dublin Goth New Wave Movement (Uncensored) (1989)](https://www.youtube.com/watch?v=Uv6Sxh1hi7w)
-21. [Punks, Goths & Mods on Irish TV (1983)](https://www.youtube.com/watch?v=QDogh7J1-5s)
-22. [Music Around Us - "New Wave" - Australian TV Show about New Wave Movement (1980)](https://www.youtube.com/watch?v=TFBSnX3GUaQ)
-23. Sifl N Olly - Fake Blood
-24. Undertale - Napping with Ghost (ending - raid out to another channel)
+14. Harvey Leeds - State of Shock
+15. De La Soul in the studio - 3 Feet High TV Segment (1989)
+16. CRAZY DAVE TAPE 3 CRAP
+17. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
+18. Pleasure Machines - The History of Pinball (1998)
+19. Porter Wagoner Show with Jack Palance (Thank you BG for sending this one!)
+20. Last Action Hero - Hamlet
+21. [Carl Sagan Cosmos A Personal Voyage - E03 - "Harmony of the Worlds" (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
+22. Sifl N Olly - Fake Blood
+23. Undertale - Napping with Ghost (ending - raid out to another channel)
 
 
 
