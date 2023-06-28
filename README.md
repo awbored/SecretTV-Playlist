@@ -17,7 +17,7 @@
 15. De La Soul in the studio - 3 Feet High TV Segment (1989)
 16. CRAZY DAVE TAPE 3 CRAP
 17. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-18. Pleasure Machines - The History of Pinball (1998)
+18. [Pleasure Machines - The History of Pinball (1998)](https://youtu.be/STjXc4G_v0U)
 19. Porter Wagoner Show with Jack Palance (Thank you BG for sending this one!)
 20. Last Action Hero - Hamlet
 21. [Carl Sagan Cosmos A Personal Voyage - E03 - "Harmony of the Worlds" (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
