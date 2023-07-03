@@ -1,28 +1,46 @@
-# 2023/06/27 - SecretTV Playlist
+# 2023/07/04 - SecretTV "Secret July 4th America Sucks Marathon" Playlist
+
+Hi all!  I will be taking a break from Twitch streams while I prepare for my August tour in the Northeast.  Tour dates and info are on my [website](https://andrewway.net) so come out and say hi if you're in the area.  As a sort of 'farewell for now' I am running SecretTV in marathon mode all day on July 4th.  I may be away from the keyboard at various times of the day but I will check in often and say hi when I get a chance to.
+
+The break will be from July through August.  I will pop up with a few Secret TV or Synth shows when I feel the bug to do so.  Like, July 21st I will still be part of a raid train to help padjray fund a wheelchair.
+
+On a note on the holiday, it is honestly very difficult to be excited about America right now.  We're battling homelessness daily as the cost of living continues to go up.  Police keep getting funded when they do nothing.  And the supreme court and various states continue to create bills, essentially making it illegal for our friends and family to simply EXIST and receive the care they need!
+
+Trans lives exist!  Trans lives matter!
+
+I have set a !charity goal of $1000 for the [Transgender Law Center](https://transgenderlawcenter.org/).
+
+Today's playlist is a mixture of VHS tapes with July 4th themes and other fun things that have been on SecretTV in the past.  Thanks for hanging out!  Please be cool to one another!  Thank you for your support.  I love you all.
 
 1. Secret TV Roller Coaster (intro)
-2. Amazon Women On the Moon - Video Pirates
-3. Sony Walkman Feel The Music Commercial 1981
-4. [Ray Bradbury Theater - S02E01 - "The Fruit at the Bottom of the Bowl"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes)
-5. Misc ads from 1993
-6. [Ray Bradbury Theater - S02E02 - "Skeleton"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes)
-7. Pete and Pete - "Greetings Photo Gal"
-8. [The Undersea World of Jacques Cousteau - Episode 14 - "Lagoon of Lost Ships" (too soon??)](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
-9. Artie's Workout
-10. Big Bill Hell's
-11. La Choy Dragon Grocery Store
-12. 900-Freak-Phone
-13. Sifl N Olly - Claire Danes
-14. Harvey Leeds - State of Shock
-15. De La Soul in the studio - 3 Feet High TV Segment (1989)
-16. CRAZY DAVE TAPE 3 CRAP
-17. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-18. [Pleasure Machines - The History of Pinball (1998)](https://youtu.be/STjXc4G_v0U)
-19. Porter Wagoner Show with Jack Palance (Thank you BG for sending this one!)
-20. Last Action Hero - Hamlet
-21. [Carl Sagan Cosmos A Personal Voyage - E03 - "Harmony of the Worlds" (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
-22. Sifl N Olly - Fake Blood
-23. Undertale - Napping with Ghost (ending - raid out to another channel)
+2. 900-Freak-Phone
+3. 1992 Misc commercials 3
+4. Beavis and Butthead - S06E03 - U.S History
+5. 1992 Misc commercials 9
+6. [Daria - SE03E04 - Depth Takes a Holiday](https://www.imdb.com/title/tt0554521/)
+7. 1992 Misc commercials 6
+8. Beavis and Butthead - S05E24 -  Animation Sucks
+9. 1996 Misc commercials 2
+10. [MTV - Rockumentary - History of Heavy Metal & 4th of July Dance Party (1991)](https://archive.org/details/vhs-tape-1991-mtv-rockumentary-history-of-heavy-metal-assorted-headbangers-ball-) (6 hours!)
+11. [Sifl & Olly - S01E08](https://www.imdb.com/title/tt0189308)
+12. [Food Party - S02E10 - Cannibal Holiday](https://www.imdb.com/title/tt1719206/)
+13. Harvey Leeds - State of Shock
+14. Artie's Workout
+15. [Sifl & Olly - S01E11](https://www.imdb.com/title/tt0189308)
+16. [Food Party S02E15 - Zit Butter](https://www.imdb.com/title/tt1747017/)
+17. [Sifl & Olly - S02E04](https://www.imdb.com/title/tt0189308)
+18. De La Soul in the studio - 3 Feet High TV Segment (1989)
+19. [Sifl & Olly - S02E08](https://www.imdb.com/title/tt0189308)
+20. [MTV Recording - Making of Pink Floyd 'The Wall' & More (07-04-1982)](https://archive.org/details/vts-01-1_20201015_1758) (1 hour!)
+21. [4th of July 1986 from NYC special](https://archive.org/details/20190930144939) (4 hours!)
+22. Big Bill Hell's
+23. Beavis and Butthead (short) - At the MTV Video Music Awards
+24. La Choy Dragon Grocery Store
+25. 900-Creep-Phone
+26. [Garth Marenghi's Darkplace - S01E02 - Hell Hath Fury](https://en.wikipedia.org/wiki/Garth_Marenghi%27s_Darkplace)
+27. 1996 Misc commercials 6
+28. [Freddy's Nightmare - S02E12 - It's My Party And You'll Die If I Want You To](https://www.imdb.com/title/tt0582752/)
+29. 1996 Misc commercials 14
 
 
 
