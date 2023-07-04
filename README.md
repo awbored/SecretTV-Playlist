@@ -25,22 +25,23 @@ Today's playlist is a mixture of VHS tapes with July 4th themes and other fun th
 11. [Sifl & Olly - S01E08](https://www.imdb.com/title/tt0189308)
 12. [Food Party - S02E10 - Cannibal Holiday](https://www.imdb.com/title/tt1719206/)
 13. Harvey Leeds - State of Shock
-14. Artie's Workout
-15. [Sifl & Olly - S01E11](https://www.imdb.com/title/tt0189308)
-16. [Food Party S02E15 - Zit Butter](https://www.imdb.com/title/tt1747017/)
-17. [Sifl & Olly - S02E04](https://www.imdb.com/title/tt0189308)
-18. De La Soul in the studio - 3 Feet High TV Segment (1989)
-19. [Sifl & Olly - S02E08](https://www.imdb.com/title/tt0189308)
-20. [MTV Recording - Making of Pink Floyd 'The Wall' & More (07-04-1982)](https://archive.org/details/vts-01-1_20201015_1758) (1 hour!)
-21. [4th of July 1986 from NYC special](https://archive.org/details/20190930144939) (4 hours!)
-22. Big Bill Hell's
-23. Beavis and Butthead (short) - At the MTV Video Music Awards
-24. La Choy Dragon Grocery Store
-25. 900-Creep-Phone
-26. [Garth Marenghi's Darkplace - S01E02 - Hell Hath Fury](https://en.wikipedia.org/wiki/Garth_Marenghi%27s_Darkplace)
-27. 1996 Misc commercials 6
-28. [Freddy's Nightmare - S02E12 - It's My Party And You'll Die If I Want You To](https://www.imdb.com/title/tt0582752/)
-29. 1996 Misc commercials 14
+14. Hard Copy - Nine Inch Nails' Down In It
+15. Artie's Workout
+16. [Sifl & Olly - S01E11](https://www.imdb.com/title/tt0189308)
+17. [Food Party S02E15 - Zit Butter](https://www.imdb.com/title/tt1747017/)
+18. [Sifl & Olly - S02E04](https://www.imdb.com/title/tt0189308)
+19. De La Soul in the studio - 3 Feet High TV Segment (1989)
+20. [Sifl & Olly - S02E08](https://www.imdb.com/title/tt0189308)
+21. [MTV Recording - Making of Pink Floyd 'The Wall' & More (07-04-1982)](https://archive.org/details/vts-01-1_20201015_1758) (1 hour!)
+22. [4th of July 1986 from NYC special](https://archive.org/details/20190930144939) (4 hours!)
+23. Big Bill Hell's
+24. Beavis and Butthead (short) - At the MTV Video Music Awards
+25. La Choy Dragon Grocery Store
+26. 900-Creep-Phone
+27. [Garth Marenghi's Darkplace - S01E02 - Hell Hath Fury](https://en.wikipedia.org/wiki/Garth_Marenghi%27s_Darkplace)
+28. 1996 Misc commercials 6
+29. [Freddy's Nightmare - S02E12 - It's My Party And You'll Die If I Want You To](https://www.imdb.com/title/tt0582752/)
+30. 1996 Misc commercials 14
 
 
 
