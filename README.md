@@ -42,6 +42,7 @@ Today's playlist is a mixture of VHS tapes with July 4th themes and other fun th
 28. 1996 Misc commercials 6
 29. [Freddy's Nightmare - S02E12 - It's My Party And You'll Die If I Want You To](https://www.imdb.com/title/tt0582752/)
 30. 1996 Misc commercials 14
+31. Brak Sings America - Rip from Twitter :P
 
 
 
