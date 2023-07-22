@@ -13,6 +13,7 @@ Raid Train Schedule:
  - 10pm to 12am EAST / 7pm to 9pm PAC - [DoorsInTheLabyrinth](https://twitch.tv/DoorsInTheLabyrinth)
  - 12am to 2am EAST / 9pm to 11pm PAC - [padjray](https://twitch.tv/padjray)
 
+SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
 2. Amazon Women On The Moon Clip - Arsenio Hall's No Good Very Bad Day
 3. UHF Clip - U_62 Promo
