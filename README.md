@@ -2,6 +2,17 @@
 
 Help @padjray raise funds for a wheelchair for grandma: [https://paypal.me/padjray](https://paypal.me/padjray)
 
+Raid Train Schedule:
+ - 8am to 10am EAST / 5am to 7am PAC - [padjray](https://twitch.tv/padjray)
+ - 10am to 12pm EAST / 7am to 9am PAC - [MyBoyfriendThePilot](https://twitch.tv/MyBoyfriendThePilot)
+ - 12pm to 2pm EAST / 9am to 11am PAC - [PortlandVarietyShow](https://twitch.tv/theportlandvarietyshow)
+ - 2pm to 4pm EAST / 11am to 1pm PAC - [DJHolidaySpecial](https://twitch.tv/DJHolidaySpecial)
+ - 4pm to 6pm EAST / 1pm to 3pm PAC - [AWBored](https://twitch.tv/AWBored)
+ - 6pm to 8pm EAST / 3pm to 5pm PAC - [Nik_The_BioHaunted_Doll](https://twitch.tv/Nik_The_BioHaunted_Doll)
+ - 8pm to 10pm EAST / 5pm to 7pm PAC - [Radataz](https://twitch.tv/Radataz)
+ - 10pm to 12am EAST / 7pm to 9pm PAC - [DoorsInTheLabyrinth](https://twitch.tv/DoorsInTheLabyrinth)
+ - 12am to 2am EAST / 9pm to 11pm PAC - [padjray](https://twitch.tv/padjray)
+
 1. Secret TV Roller Coaster (intro)
 2. Amazon Women On The Moon Clip - Arsenio Hall's No Good Very Bad Day
 3. UHF Clip - U_62 Promo
