@@ -44,7 +44,7 @@ I will sometimes add or change commands on a whim so check these commands first.
 
 The commands I like to brag about are:
 
- - !random [x] - x = number.  This will dump a random number of emotes to the chat
+ - !random [x] - x = number.  This will dump a random number of emotes to the chat (this one doesn't work right now)
  - !art - Is what we're watching high art or definitely nart (not art)?  Let the bot decide
  - !reverse [sentence] - this will reverse anything you write after the command
  - !cres [blank/person/thing] - Crescent Fresh decider.  If no entry is after the command then the bot will determine if YOU are crescent fresh.  Anything you write AFTER the command the bot will determine if it's crescent fresh or not
