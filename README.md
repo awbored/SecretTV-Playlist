@@ -3,11 +3,16 @@
 Help @padjray raise funds for a wheelchair for grandma: [https://paypal.me/padjray](https://paypal.me/padjray)
 
 1. Secret TV Roller Coaster (intro)
-2. Fun intro
-3. Something fun
+2. Amazon Women On The Moon Clip - Arsenio Hall's No Good Very Bad Day
+3. UHF Clip - U_62 Promo
 4. [Cartoon Madness: The Fantastic Max Fleischer Cartoons Leonard Maltin complete](https://www.youtube.com/watch?v=O8p3MmCrNQk)
-5. Something else
-6. Raid out to @djholidayspecial
+5. Artie's Workout
+6. UHF Clip - Spatula City
+7. Big Bill Hell's
+8. La Choy Dragon Grocery Store
+9. KFC Simpsons Commercial, 1993 (Canada)
+10. 900-Creep Phone
+11. Undertale - Napping with Ghost (Raid to @djholidayspecial)
 
 
 
