@@ -1,30 +1,27 @@
-# 2023/07/22 - SecretTV "Wheels for Grandma Raid Train" Playlist
-
-Help @padjray raise funds for a wheelchair for grandma: [https://paypal.me/padjray](https://paypal.me/padjray)
-
-Raid Train Schedule:
- - 8am to 10am EAST / 5am to 7am PAC - [padjray](https://twitch.tv/padjray)
- - 10am to 12pm EAST / 7am to 9am PAC - [MyBoyfriendThePilot](https://twitch.tv/MyBoyfriendThePilot)
- - 12pm to 2pm EAST / 9am to 11am PAC - [PortlandVarietyShow](https://twitch.tv/theportlandvarietyshow)
- - 2pm to 4pm EAST / 11am to 1pm PAC - [DJHolidaySpecial](https://twitch.tv/DJHolidaySpecial)
- - 4pm to 6pm EAST / 1pm to 3pm PAC - [AWBored](https://twitch.tv/AWBored)
- - 6pm to 8pm EAST / 3pm to 5pm PAC - [Nik_The_BioHaunted_Doll](https://twitch.tv/Nik_The_BioHaunted_Doll)
- - 8pm to 10pm EAST / 5pm to 7pm PAC - [Radataz](https://twitch.tv/Radataz)
- - 10pm to 12am EAST / 7pm to 9pm PAC - [DoorsInTheLabyrinth](https://twitch.tv/DoorsInTheLabyrinth)
- - 12am to 2am EAST / 9pm to 11pm PAC - [padjray](https://twitch.tv/padjray)
+# 2023/08/22 - SecretTV Playlist
 
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
-2. Amazon Women On The Moon Clip - Arsenio Hall's No Good Very Bad Day
-3. UHF Clip - U_62 Promo
-4. [Cartoon Madness: The Fantastic Max Fleischer Cartoons Leonard Maltin complete](https://www.youtube.com/watch?v=O8p3MmCrNQk)
-5. Artie's Workout
-6. UHF Clip - Spatula City
-7. Big Bill Hell's
-8. La Choy Dragon Grocery Store
-9. KFC Simpsons Commercial, 1993 (Canada)
-10. 900-Creep Phone
-11. Undertale - Napping with Ghost (Raid to @djholidayspecial)
+2. We're Back! A Dinosaur's Story on VHS (1994)
+3. UHF Clip - U62 Promo
+4. [Jim Henson Presents The World of Puppetry - E01 - Philippe Genty](https://muppet.fandom.com/wiki/The_World_of_Puppetry_with_Philipe_Genty)
+5. Twin Peaks Georgia Coffee Japanese Commercial Series
+6. [The Undersea World of Jacques Cousteau - E15 - "The Dragons of Galapagos"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+7. Pete n Pete Special - Artie's Workout
+8. UHF Clip - Spatula City
+9. Big Bill Hell's
+10. La Choy Dragon Grocery Store (Early Jim Henson)
+11. KFC Simpsons Commercial (1993)
+12. Teenage Mutant Ninja Turtles - Operation Blue Line (1990 Los Angeles Transit Promo)
+13. Dragon Ball - Rohto Children's Eye Drops Commercial (1986) with English Subs
+14. [Ray Bradbury Theater - S02E03 - The Emissary](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_2_(1988))
+15. Taco Bell MC Hammer commercial (1990)
+16. [Ray Bradbury Theater - S02E04 - Gotcha!](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_2_(1988))
+17. The Incredible Sonovox - Kay Kyser (1940)
+18. [Carl Sagan Cosmos - Part 4 - Heaven and Hell (let's rock) (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
+19. 900-Creep-Phone
+20. Sifl n Olly - Fake Blood
+21. Undertale - Napping with Ghost (Raid out)
 
 
 
