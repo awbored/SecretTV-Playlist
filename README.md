@@ -1,12 +1,14 @@
-# 2023/08/22 - SecretTV Playlist
+# 2023/08/29 - SecretTV Playlist
+
+Happy Birthday [Paul Reubens](https://en.wikipedia.org/wiki/Paul_Reubens) (8/27/1952)!! We miss you!!
 
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
 2. We're Back! A Dinosaur's Story on VHS (1994)
 3. UHF Clip - U62 Promo
-4. [Jim Henson Presents The World of Puppetry - E01 - Philippe Genty](https://muppet.fandom.com/wiki/The_World_of_Puppetry_with_Philipe_Genty)
+4. [Jim Henson Presents The World of Puppetry - E02 - Henk Boerwinkel](https://muppet.fandom.com/wiki/The_World_of_Puppetry_with_Philipe_Genty)
 5. Twin Peaks Georgia Coffee Japanese Commercial Series
-6. [The Undersea World of Jacques Cousteau - E15 - "The Dragons of Galapagos"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+6. [The Undersea World of Jacques Cousteau - E16 - "Secrets of the Sunken Caves"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
 7. Pete n Pete Special - Artie's Workout
 8. UHF Clip - Spatula City
 9. Big Bill Hell's
@@ -14,11 +16,11 @@ SecretTV Playlist:
 11. KFC Simpsons Commercial (1993)
 12. Teenage Mutant Ninja Turtles - Operation Blue Line (1990 Los Angeles Transit Promo)
 13. Dragon Ball - Rohto Children's Eye Drops Commercial (1986) with English Subs
-14. [Ray Bradbury Theater - S02E03 - The Emissary](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_2_(1988))
+14. [Ray Bradbury Theater - S02E05 - The Man Upstairs](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_2_(1988))
 15. Taco Bell MC Hammer commercial (1990)
-16. [Ray Bradbury Theater - S02E04 - Gotcha!](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_2_(1988))
+16. [Ray Bradbury Theater - S02E06 - The Small Assassin](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_2_(1988))
 17. The Incredible Sonovox - Kay Kyser (1940)
-18. [Carl Sagan Cosmos - Part 4 - Heaven and Hell (let's rock) (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
+18. [Carl Sagan Cosmos - Part 5 - Blues For a Red Planet (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
 19. 900-Creep-Phone
 20. Sifl n Olly - Fake Blood
 21. Undertale - Napping with Ghost (Raid out)
