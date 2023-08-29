@@ -4,26 +4,21 @@ Happy Birthday [Paul Reubens](https://en.wikipedia.org/wiki/Paul_Reubens) (8/27/
 
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
-2. We're Back! A Dinosaur's Story on VHS (1994)
-3. UHF Clip - U62 Promo
-4. [Jim Henson Presents The World of Puppetry - E02 - Henk Boerwinkel](https://muppet.fandom.com/wiki/The_World_of_Puppetry_with_Philipe_Genty)
-5. Twin Peaks Georgia Coffee Japanese Commercial Series
+2. Paul Reubens (Pee-Wee Herman) and John Paragon (Jambi the Genie) on The Gong Show (1970's)
+3. [Jim Henson Presents The World of Puppetry - E02 - Henk Boerwinkel](https://muppet.fandom.com/wiki/The_World_of_Puppetry_with_Philipe_Genty)
+4. Pee-Wee Herman - An Evening at the Improv (1983)
 6. [The Undersea World of Jacques Cousteau - E16 - "Secrets of the Sunken Caves"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
-7. Pete n Pete Special - Artie's Workout
-8. UHF Clip - Spatula City
-9. Big Bill Hell's
-10. La Choy Dragon Grocery Store (Early Jim Henson)
-11. KFC Simpsons Commercial (1993)
-12. Teenage Mutant Ninja Turtles - Operation Blue Line (1990 Los Angeles Transit Promo)
-13. Dragon Ball - Rohto Children's Eye Drops Commercial (1986) with English Subs
-14. [Ray Bradbury Theater - S02E05 - The Man Upstairs](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_2_(1988))
-15. Taco Bell MC Hammer commercial (1990)
-16. [Ray Bradbury Theater - S02E06 - The Small Assassin](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_2_(1988))
-17. The Incredible Sonovox - Kay Kyser (1940)
-18. [Carl Sagan Cosmos - Part 5 - Blues For a Red Planet (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
-19. 900-Creep-Phone
-20. Sifl n Olly - Fake Blood
-21. Undertale - Napping with Ghost (Raid out)
+7. Carl Reiner & Young Comedian, Pee-Wee Herman
+8. Pee-Wee does Sly and the Family Stone
+9. Pee-Wee Herman guest hosts on The Joan Rivers Show
+10. [Ray Bradbury Theater - S02E05 - The Man Upstairs](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_2_(1988))
+11. Pee-Wee Herman (Paul Reubens) on the Arsenio Hall Show
+12. [Ray Bradbury Theater - S02E06 - The Small Assassin](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_2_(1988))
+13. Roddy Piper and Pee-Wee Herman
+14. [Carl Sagan Cosmos - Part 5 - Blues For a Red Planet (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
+15. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+16. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+17. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 
