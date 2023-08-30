@@ -5,7 +5,7 @@ Happy Birthday [Paul Reubens](https://en.wikipedia.org/wiki/Paul_Reubens) (8/27/
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
 2. Paul Reubens (Pee-Wee Herman) and John Paragon (Jambi the Genie) on The Gong Show (1970's)
-3. [Jim Henson Presents The World of Puppetry - E02 - Henk Boerwinkel](https://muppet.fandom.com/wiki/The_World_of_Puppetry_with_Philipe_Genty)
+3. [Jim Henson Presents The World of Puppetry - E02 - Henk Boerwinkel](https://muppet.fandom.com/wiki/The_World_of_Puppetry_with_Henk_Boerwinkel)
 4. Pee-Wee Herman - An Evening at the Improv (1983)
 6. [The Undersea World of Jacques Cousteau - E16 - "Secrets of the Sunken Caves"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
 7. Carl Reiner & Young Comedian, Pee-Wee Herman
