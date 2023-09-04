@@ -5,15 +5,25 @@ Thank you [@AuralAntithesis](https://twitch.tv/AuralAntithesis) for organizing t
 All times are pacific!
 
 07AM - [@b0tanicalgardens](https://twitch.tv/b0tanicalgardens)
+
 08AM - [@AuralAntithesis](https://twitch.tv/AuralAntithesis)
+
 09AM - [@AnArchYinBedRoK](https://twitch.tv/AnArchYinBedRoK)
+
 11AM - [@antlerjones](https://twitch.tv/antlerjones)
+
 01PM - [@EchoLightwave_Unspeakable](https://twitch.tv/EchoLightwave_Unspeakable)
+
 03PM - [@drusiform](https://twitch.tv/drusiform)
+
 04PM - [@MuntCascade](https://twitch.tv/MuntCascade) & [@vjpcat](https://twitch.tv/vjpcat)
+
 06PM - [@p_chops](https://twitch.tv/p_chops)
+
 07PM - [@SokaiStilhed](https://twitch.tv/SokaiStilhed)
+
 08PM - [@AWBored](https://twitch.tv/AWBored)
+
 09PM - [@JalinaDarkRealm](https://twitch.tv/JalinaDarkRealm)
 
 
