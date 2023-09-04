@@ -4,17 +4,17 @@ Thank you [@AuralAntithesis](https://twitch.tv/AuralAntithesis) for organizing t
 
 All times are pacific!
 
-07:00 AM - [@b0tanicalgardens](https://twitch.tv/b0tanicalgardens)
-08:00 AM - [@AuralAntithesis](https://twitch.tv/AuralAntithesis)
-09:00 AM - [@AnArchYinBedRoK](https://twitch.tv/AnArchYinBedRoK)
-11:00 AM - [@antlerjones](https://twitch.tv/antlerjones)
-01:00 PM - [@EchoLightwave_Unspeakable](https://twitch.tv/EchoLightwave_Unspeakable)
-03:00 PM - [@drusiform](https://twitch.tv/drusiform)
-04:00 PM - [@MuntCascade](https://twitch.tv/MuntCascade) & [@vjpcat](https://twitch.tv/vjpcat)
-06:00 PM - [@p_chops](https://twitch.tv/p_chops)
-07:00 PM - [@SokaiStilhed](https://twitch.tv/SokaiStilhed)
-08:00 PM - [@AWBored](https://twitch.tv/AWBored)
-09:00 PM - [@JalinaDarkRealm](https://twitch.tv/JalinaDarkRealm)
+- 07:00 AM - [@b0tanicalgardens](https://twitch.tv/b0tanicalgardens)
+- 08:00 AM - [@AuralAntithesis](https://twitch.tv/AuralAntithesis)
+- 09:00 AM - [@AnArchYinBedRoK](https://twitch.tv/AnArchYinBedRoK)
+- 11:00 AM - [@antlerjones](https://twitch.tv/antlerjones)
+- 01:00 PM - [@EchoLightwave_Unspeakable](https://twitch.tv/EchoLightwave_Unspeakable)
+- 03:00 PM - [@drusiform](https://twitch.tv/drusiform)
+- 04:00 PM - [@MuntCascade](https://twitch.tv/MuntCascade) & [@vjpcat](https://twitch.tv/vjpcat)
+- 06:00 PM - [@p_chops](https://twitch.tv/p_chops)
+- 07:00 PM - [@SokaiStilhed](https://twitch.tv/SokaiStilhed)
+- 08:00 PM - [@AWBored](https://twitch.tv/AWBored)
+- 09:00 PM - [@JalinaDarkRealm](https://twitch.tv/JalinaDarkRealm)
 
 
 
