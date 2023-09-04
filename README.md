@@ -4,25 +4,25 @@ Thank you [@AuralAntithesis](https://twitch.tv/AuralAntithesis) for organizing t
 
 All times are pacific!
 
-07AM - [@b0tanicalgardens](https://twitch.tv/b0tanicalgardens)
-08AM - [@AuralAntithesis](https://twitch.tv/AuralAntithesis)
-09AM - [@AnArchYinBedRoK](https://twitch.tv/AnArchYinBedRoK)
-11AM - [@antlerjones](https://twitch.tv/antlerjones)
-01PM - [@EchoLightwave_Unspeakable](https://twitch.tv/EchoLightwave_Unspeakable)
-03PM - [@drusiform](https://twitch.tv/drusiform)
-04PM - [@MuntCascade](https://twitch.tv/MuntCascade) & [@vjpcat](https://twitch.tv/vjpcat)
-06PM - [@p_chops](https://twitch.tv/p_chops)
-07PM - [@SokaiStilhed](https://twitch.tv/SokaiStilhed)
-08PM - [@AWBored](https://twitch.tv/AWBored)
-09PM - [@JalinaDarkRealm](https://twitch.tv/JalinaDarkRealm)
+07:00 AM - [@b0tanicalgardens](https://twitch.tv/b0tanicalgardens)
+08:00 AM - [@AuralAntithesis](https://twitch.tv/AuralAntithesis)
+09:00 AM - [@AnArchYinBedRoK](https://twitch.tv/AnArchYinBedRoK)
+11:00 AM - [@antlerjones](https://twitch.tv/antlerjones)
+01:00 PM - [@EchoLightwave_Unspeakable](https://twitch.tv/EchoLightwave_Unspeakable)
+03:00 PM - [@drusiform](https://twitch.tv/drusiform)
+04:00 PM - [@MuntCascade](https://twitch.tv/MuntCascade) & [@vjpcat](https://twitch.tv/vjpcat)
+06:00 PM - [@p_chops](https://twitch.tv/p_chops)
+07:00 PM - [@SokaiStilhed](https://twitch.tv/SokaiStilhed)
+08:00 PM - [@AWBored](https://twitch.tv/AWBored)
+09:00 PM - [@JalinaDarkRealm](https://twitch.tv/JalinaDarkRealm)
 
 
 
 ## Info about SecretTVBot
 
-A public version of SecretTVBot is available on the [PyTwitchBot Repo](https://github.com/awbored/PyTwitchBot) which is written in Python.  The initial nuts and bolts of the programming was from a YouTube video which I have credited in the code.
+A public version of SecretTVBot is available on the [PyTwitchBot Repo](https://github.com/awbored/PyTwitchBot) which is written in Python.  The initial nuts and bolts of the progr:00 AMming was from a YouTube video which I have credited in the code.
 
-I wanted to make a Twitch bot from scratch instead of using common other bots out there, like NightBot or StreamElements, mainly so I could learn how the bot interacts with chats and also make custom commands that the other bots might not be able to.  The best way to get into programming and scripting I've found is to have a project idea to build off of.
+I wanted to make a Twitch bot from scratch instead of using common other bots out there, like NightBot or Stre:00 AMElements, mainly so I could learn how the bot interacts with chats and also make custom commands that the other bots might not be able to.  The best way to get into progr:00 AMming and scripting I've found is to have a project idea to build off of.
 
 The main commands I'll list here will be:
 
