@@ -1,24 +1,20 @@
-# 2023/08/29 - SecretTV Playlist
+# 2023/09/03 - Monday Noise Raid Train!
 
-Happy Birthday [Paul Reubens](https://en.wikipedia.org/wiki/Paul_Reubens) (8/27/1952)!! We miss you!!
+Thank you [@AuralAntithesis](https://twitch.tv/AuralAntithesis) for organizing this week's Monday Noise Raid Train!
 
-SecretTV Playlist:
-1. Secret TV Roller Coaster (intro)
-2. Paul Reubens (Pee-Wee Herman) and John Paragon (Jambi the Genie) on The Gong Show (1970's)
-3. [Jim Henson Presents The World of Puppetry - E02 - Henk Boerwinkel](https://muppet.fandom.com/wiki/The_World_of_Puppetry_with_Henk_Boerwinkel)
-4. Pee-Wee Herman - An Evening at the Improv (1983)
-6. [The Undersea World of Jacques Cousteau - E16 - "Secrets of the Sunken Caves"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
-7. Carl Reiner & Young Comedian, Pee-Wee Herman
-8. Pee-Wee does Sly and the Family Stone
-9. Pee-Wee Herman guest hosts on The Joan Rivers Show
-10. [Ray Bradbury Theater - S02E05 - The Man Upstairs](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_2_(1988))
-11. Pee-Wee Herman (Paul Reubens) on the Arsenio Hall Show
-12. [Ray Bradbury Theater - S02E06 - The Small Assassin](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_2_(1988))
-13. Roddy Piper and Pee-Wee Herman
-14. [Carl Sagan Cosmos - Part 5 - Blues For a Red Planet (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
-15. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-16. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-17. Undertale - Napping with Ghost (Outro & Raid out)
+All times are pacific!
+
+07AM - [@b0tanicalgardens](https://twitch.tv/b0tanicalgardens)
+08AM - [@AuralAntithesis](https://twitch.tv/AuralAntithesis)
+09AM - [@AnArchYinBedRoK](https://twitch.tv/AnArchYinBedRoK)
+11AM - [@antlerjones](https://twitch.tv/antlerjones)
+01PM - [@EchoLightwave_Unspeakable](https://twitch.tv/EchoLightwave_Unspeakable)
+03PM - [@drusiform](https://twitch.tv/drusiform)
+04PM - [@MuntCascade](https://twitch.tv/MuntCascade) & [@vjpcat](https://twitch.tv/vjpcat)
+06PM - [@p_chops](https://twitch.tv/p_chops)
+07PM - [@SokaiStilhed](https://twitch.tv/SokaiStilhed)
+08PM - [@AWBored](https://twitch.tv/AWBored)
+09PM - [@JalinaDarkRealm](https://twitch.tv/JalinaDarkRealm)
 
 
 
