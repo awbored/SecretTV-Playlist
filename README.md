@@ -1,35 +1,35 @@
-# 2023/09/19 - SecretTV Playlist
+# 2023/09/26 - SecretTV Playlist
 
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
 2. AT&T "You Will" Commercials (1993)
-3. [Jim Henson Presents The World of Puppetry - E04 - Albrecht Roser](https://muppet.fandom.com/wiki/The_World_of_Puppetry_with_Albrecht_Roser)
-   - "The World of Puppetry with Albrecht Roser" is an episode of Jim Henson Presents The World of Puppetry featuring German puppeteer Albrecht Roser.  It was videotaped at the Stuttgart Puppen and Figuren Theatre and on location in Stuttgart, Germany as a co-production between Henson Associates and CBM Productions, Munich. 
+3. [Jim Henson Presents The World of Puppetry - E06 - Richard Bradshaw](https://muppet.fandom.com/wiki/The_World_of_Puppetry_with_Richard_Bradshaw)
+   - "The World of Puppetry with Richard Bradshaw" is an episode of Jim Henson Presents The World of Puppetry featuring Australian puppeteer Richard Bradshaw. It was videotaped at the Marionette Theatre of Australia as a co-production between Henson Associates and the Australian Broadcasting Corporation. 
 4. Cool Rock
 5. Twin Peaks Georgia Coffee Commercial (Full Miniseries from JP TV)
-6. [The Undersea World of Jacques Cousteau - E19 - "Octopus, Octopus"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
-   -   The crew studies the eight-armed octopus's life cycle and ongoing evolutionary process.
+6. [The Undersea World of Jacques Cousteau - E20 - "A Sound of Dolphins"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+   -    The crew isolates a pair of dolphins to study the species' remarkable sonar system.
 7. Artie's Workout
 8. Mr. Yuk Commercial (1975)
 9. Punk CD - 90's Commercial
 10. UHF Clip - Is this it?
 11. Sifl N Olly - Crescent Fresh Song
 12. Crazy Dave Tape 3 Crap
-13. Middle School Weezer Cover Goes Horribly Wrong
+13. Living in the 90's CD Comp
 14. Big Bill Hell's
 15. Nestle Alpine White Sweet Dreams Commerical (1986) - Maxfield Parrish
 16. Sifl N Olly - A Word With Chester - IQ Test
 17. Talking Kermits - Once in a Lifetime
 18. They Live Trailer (Taken from Japanese Superbowl XXIII Broadcast, 1989)
 19. Katy Perry Slimed
-20. [Ray Bradbury Theater - S02E11 - "There Was an Old Woman"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_2_(1988))
-    -  An old woman (Mary Morris) who spent her entire life defying death attempts to claim her body from the mortuary after she finally bites the dust. Featuring Ronald Lacey.
+20. [Ray Bradbury Theater - S03E01 - "The Dwarf"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_3_(1989))
+    -   A carnival owner plays a cruel prank on an unsuspecting little person who frequents the hall of mirrors.
 21. A&W Root Beer World's Greatest Float Maker Snoopy (1988)
-22. [Ray Bradbury Theater - S02E12 - "And So Died Riabouchinska"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_2_(1988))
-    -   A ventriloquist (Alan Bates) is implicated in a murder.
+22. [Ray Bradbury Theater - S03E02 - "A Miracle of Rare Device"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_3_(1989))
+    -    Two drifters (Pat Harrington Jr., Wayne Robson) make a startling discovery in the desert and seek to profit from it.
 23. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
-24. [Carl Sagan Cosmos - E08 - "Journeys in Space and Time" (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
-    -  Ideas about time and space are explored in the changes that constellations undergo over time, the redshift and blueshift measured in interstellar objects, time dilation in Albert Einstein's theory of relativity, the designs of both Leonardo da Vinci and spacecraft that could travel near light speed, time travel and its hypothetical effects on human history, the origins of the Solar System, the history of life, and the immensity of space. Propping the curiosity about speed of light, Sagan suggested the possibility from the practical projects of the 20th century by British Interplanetary Society marking the beginning of interstellar travel with the projects named Project Orion and Project Daedalus. Although Project Orion was discontinued as a result of nuclear disarmament treaties, Project Daedalus pioneered the idea of using nuclear fusion rather than fission for a viable interstellar spacecraft. In Cosmos Update, the idea of faster-than-light travel by wormholes (researched by Kip Thorne and shown in Sagan's novel Contact) is discussed.
+24. [Carl Sagan Cosmos - E09 - "The Lives of the Stars" (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
+    -   The simple act of making an apple pie is extrapolated into the atoms and subatomic particles (electrons, protons, and neutrons) necessary. Many of the ingredients necessary are formed of chemical elements formed in the life and deaths of stars (such as our own Sun), resulting in massive red giants and supernovae or collapsing into white dwarfs, neutron stars, pulsars, and even black holes. These produce all sorts of phenomena, such as radioactivity, cosmic rays, and even the curving of spacetime by gravity. Cosmos Update mentions the supernova SN 1987A and neutrino astronomy.
 25. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 26. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 27. Undertale - Napping with Ghost (Outro & Raid out)
