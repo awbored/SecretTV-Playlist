@@ -1,5 +1,7 @@
 # 2023/10/02 - SecretTV Playlist 🎃🎃🎃
 
+Halloween season is started!  We will return to our regular binge of Cousteau and Sagan in November!  For long time viewers there will be some reruns!  Throughout October we will find different Halloween specials and we will do a long marathon when we get closer to Halloween.
+
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
 2. AT&T "You Will" Commercials (1993)
