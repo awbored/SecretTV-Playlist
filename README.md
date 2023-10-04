@@ -21,7 +21,7 @@ SecretTV Playlist:
 16. Talking Kermits - Once in a Lifetime
 17. They Live Trailer (Taken from Japanese Superbowl XXIII Broadcast, 1989)
 18. Katy Perry Slimed
-19. Real Vampires Exposed & Alien Abduction (UPN VHS Recording 1998?) - 2 hour Special
+19. [Real Vampires Exposed & Alien Abduction (UPN VHS Recording 1998?) - 2 hour Special](https://en.wikipedia.org/wiki/Alien_Abduction:_Incident_in_Lake_County)
 20. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)24. 
 21. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 22. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
