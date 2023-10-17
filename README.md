@@ -22,7 +22,7 @@ SecretTV Playlist:
 15. Freaks and Geeks - S01E03 - Tricks and Treats (1999)
 16. A&W Snoopy, the World's Greatest Float Maker
 17. Bram Stoker's Dracula Trailer (1974)
-18. [Halloween 3 - MonsterVision airing on TBS](https://en.wikipedia.org/wiki/MonsterVision)
+18. [Halloween 3 - MonsterVision airing on TNT](https://en.wikipedia.org/wiki/MonsterVision)
 19. Sifl n Olly - Fake Blood
 20. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 21. Undertale - Napping with Ghost (Outro & Raid out)
