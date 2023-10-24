@@ -1,6 +1,6 @@
 # 2023/10/24 - SecretTV Playlist 🎃🎃🎃
 
-Halloween season is started!  We will return to our regular binge of Cousteau and Sagan in November!  For long time viewers there will be some reruns!  Throughout October we will find different Halloween specials and a movie!  
+Halloween season is started!  We will return to our regular binge of Cousteau and Sagan in November!  Throughout October we will find different Halloween specials and a movie!  
 
 We will run a marathon when we get closer to Halloween.
 
