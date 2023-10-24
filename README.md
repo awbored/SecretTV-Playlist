@@ -21,12 +21,13 @@ SecretTV Playlist:
 12. Zoobooks
 13. Taco Bell MC Hammer
 14. Knott's Berry Farm Halloween Haunt Home Movie (1990)
-15. A&W Snoopy, the World's Greatest Float Maker
-16. Bram Stoker's Dracula Trailer (1974)
-17. Son of Svengoolie - Bela Lugosi Dracula (5/4/1985)
-18. Sifl n Olly - Fake Blood
-19. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-20. Undertale - Napping with Ghost (Outro & Raid out)
+15. WGN Channel 9 - Boo! (10/30/1982)
+16. A&W Snoopy, the World's Greatest Float Maker
+17. Bram Stoker's Dracula Trailer (1974)
+18. Son of Svengoolie - Bela Lugosi Dracula (5/4/1985)
+19. Sifl n Olly - Fake Blood
+20. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+21. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 ## Info about SecretTVBot
