@@ -65,7 +65,7 @@ I hope you all have a great Halloween and thank you so much for letting me be a 
 35. Twin Peaks Georgia Coffee Commercials
 
 ### Movie Time 4
-36. Kiss Meets the Phantom of the Park(https://en.wikipedia.org/wiki/Kiss_Meets_the_Phantom_of_the_Park)
+36. [Kiss Meets the Phantom of the Park](https://en.wikipedia.org/wiki/Kiss_Meets_the_Phantom_of_the_Park)
 
 ### Cartoon Block 2
 37. Super Mario Bros Super Show - E20 - "Mommies Curse & Kiss'N' Tell (Zelda Episode)"
@@ -96,7 +96,7 @@ I hope you all have a great Halloween and thank you so much for letting me be a 
 
 ### Anthology Block
 52. [Friday The 13th- The Series (1987) - S01E05 - "Hellowe'en" (DVD Rip)](https://en.m.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
-53. [Tales from the Darkside - S01E01 - "Trick or Treat" (1983])(https://en.m.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%9385))
+53. [Tales from the Darkside - S01E01 - "Trick or Treat" (1983)](https://en.m.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%9385))
 54. [Beyond Belief: Fact or Fiction - S03E09 - "For the Record, Halloween, Precious, Get Your Kicks at Motel 66, and Phantom Drifter"](https://en.m.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction)
 
 ### Intermission 7
