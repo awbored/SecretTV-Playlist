@@ -76,39 +76,40 @@ I hope you all have a great Halloween and thank you so much for letting me be a 
 ### Intermission 5
 41. 70's & 80's Halloween Commercials Cut 5
 42. Katy Perry Slimed
+43. Burger King - Simpsons Spooky Light-Ups (2001, USA)
 
 ### Movie Time 5
-43. TNT Monster Vision screening of Halloween 3
+44. TNT Monster Vision screening of Halloween 3
 
 ### MTV & Related Block
-44. Food Party - S02E07 - "NosferaThu"
-45. Beavis and Butthead - S06E01 - "Bungholio - Lord of The Harvest"
-46. MTV - "The Rocky Horror Video Show (Richard O'Brien)"
-47. MTV - "Headbanger's Halloween (Alice Cooper, Iggy Pop)"
-48. Zappa Halloween (MTV 1981)
+45. Food Party - S02E07 - "NosferaThu"
+46. Beavis and Butthead - S06E01 - "Bungholio - Lord of The Harvest"
+47. MTV - "The Rocky Horror Video Show (Richard O'Brien)"
+48. MTV - "Headbanger's Halloween (Alice Cooper, Iggy Pop)"
+49. Zappa Halloween (MTV 1981)
 
 ### Intermission 6
-49. 70's & 80's Halloween Commercials Cut 6
-50. Zoobooks
+50. 70's & 80's Halloween Commercials Cut 6
+51. Zoobooks
 
 ### Movie Time 6
-51. Son Of Svengoolie - Dracula (WFLD Tape 1985/05/04)
+52. Son Of Svengoolie - Dracula (WFLD Tape 1985/05/04)
 
 ### Anthology Block
-52. [Friday The 13th- The Series (1987) - S01E05 - "Hellowe'en" (DVD Rip)](https://en.m.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
-53. [Tales from the Darkside - S01E01 - "Trick or Treat" (1983)](https://en.m.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%9385))
-54. [Beyond Belief: Fact or Fiction - S03E09 - "For the Record, Halloween, Precious, Get Your Kicks at Motel 66, and Phantom Drifter"](https://en.m.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction)
+53. [Friday The 13th- The Series (1987) - S01E05 - "Hellowe'en" (DVD Rip)](https://en.m.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
+54. [Tales from the Darkside - S01E01 - "Trick or Treat" (1983)](https://en.m.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%9385))
+55. [Beyond Belief: Fact or Fiction - S03E09 - "For the Record, Halloween, Precious, Get Your Kicks at Motel 66, and Phantom Drifter"](https://en.m.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction)
 
 ### Intermission 7
-55. 70's & 80's Halloween Commercials Cut 7
-56. Knott's Berry Farm Halloween Haunt Home Movie (1990)
+56. 70's & 80's Halloween Commercials Cut 7
+57. Knott's Berry Farm Halloween Haunt Home Movie (1990)
 
 ### Movie Time 7
-57. [Dan Curtis Dracula - Starring Jack Palance (1974)](https://en.wikipedia.org/wiki/Bram_Stoker%27s_Dracula_(1974_film))
+58. [Dan Curtis Dracula - Starring Jack Palance (1974)](https://en.wikipedia.org/wiki/Bram_Stoker%27s_Dracula_(1974_film))
 
 ### Intermission 8
-58. 70's & 80's Halloween Commercials Cut 8
-59. Sounds of the 70's
+59. 70's & 80's Halloween Commercials Cut 8
+60. Sounds of the 70's
 
 ...The playlist will LOOP until I feel like turning it off!
 
