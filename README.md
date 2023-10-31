@@ -41,7 +41,7 @@ I hope you all have a great Halloween and thank you so much for letting me be a 
 
 ### Fox & UPN Block
 21. Real Vampires Exposed - Alien Abduction (UPN Tape 1999)
-22. The Simpsons - Treehouse of Horror I - (Tpae 1990/10/25)
+22. The Simpsons - Treehouse of Horror I - (Tape 1990/10/25)
 23. The Simpsons - Treehouse of Horror Marathon (Tape 1994/10/30)
 
 ### Intermission 3
