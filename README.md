@@ -40,7 +40,7 @@ I hope you all have a great Halloween and thank you so much for letting me be a 
 20. [Cry Baby Lane (Nickelodeon Movies, 2000)](https://en.wikipedia.org/wiki/Cry_Baby_Lane)
 
 ### Fox & UPN Block
-21. Real Vampires Exposed - Alien Abduction (UPN Tape 1999)
+21. Real Vampires Exposed - [Alien Abduction](https://en.wikipedia.org/wiki/Alien_Abduction%3A_Incident_in_Lake_County) (UPN Tape 1999)
 22. The Simpsons - Treehouse of Horror I - (Tape 1990/10/25)
 23. The Simpsons - Treehouse of Horror Marathon (Tape 1994/10/30)
 
@@ -62,7 +62,7 @@ I hope you all have a great Halloween and thank you so much for letting me be a 
 ### Intermission 4
 33. 70's & 80's Halloween Commercials Cut 4
 34. 900-Creep Phone
-35. Twin Peaks Georgia Coffee Commercials
+35. [Twin Peaks Georgia Coffee Commercials](https://twinpeaks.fandom.com/wiki/Georgia_Coffee_commercials)
 
 ### Movie Time 4
 36. [Kiss Meets the Phantom of the Park](https://en.wikipedia.org/wiki/Kiss_Meets_the_Phantom_of_the_Park)
