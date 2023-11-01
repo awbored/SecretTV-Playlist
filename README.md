@@ -86,7 +86,7 @@ I hope you all have a great Halloween and thank you so much for letting me be a 
 46. Beavis and Butthead - S06E01 - "Bungholio - Lord of The Harvest"
 47. MTV - "The Rocky Horror Video Show (Richard O'Brien)"
 48. MTV - "Headbanger's Halloween (Alice Cooper, Iggy Pop)"
-49. Zappa Halloween (MTV 1981)
+49. [Zappa Halloween (MTV 1981)](https://en.wikipedia.org/wiki/Halloween_81)
 
 ### Intermission 6
 50. 70's & 80's Halloween Commercials Cut 6
