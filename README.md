@@ -1,117 +1,43 @@
-# 2023/10/31 - SecretTV Playlist 🎃🎃🎃
+# 2023/11/07 - SecretTV Playlist
 
-We've curated over 40 hours of content here!  (Wow! Holy shit!)  The marathon will run from Monday morning until Wednesday morning when I have to sign into work.  The playlist will LOOP.  I will monitor the chat as best as I can, but really I may be away from the keyboard often, as I still have a job to do, errands to run, and cats to feed, etc, etc.  
-
-I hope you all have a great Halloween and thank you so much for letting me be a part of your holiday! 🧡🖤🧡🖤🧡🖤🧡🖤🧡🖤
-
-## SecretTV Playlist:
-
+SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
-
-### Cartoon Block 1
-2. Beetlejuice - S01 - "Laugh Of The Party"
-3. Halloween is Grinch Night, Casper the Friendly Ghost, Frankenweenie, The Halloween That Almost Wasn't (Disney Channel 1992/10)
-4. Disneys Halloween Treat
-5. Garfield's Halloween Adventure & It's the Great Pumpkin Charlie Brown (1985 Tape)
-
-### Intermission 1
-6. 70's & 80's Halloween Commercials Cut 1
-7. Pete n Pete Halloween Short
-8. Cool Rock commercial
-
-### Movie Time 1
-9. Bram Stoker's Dracula (1992) (TNT airing with host Joe Bob Briggs 1999/11/13)
-
-### Sitcom Block
-10. Perfect Strangers - S04E03 - "Aliens" (1988)
-11. Growing Pains - Happy Halloween Part 1 & 2 - (1990/10/31)
-12. Family Matters - S08E07 - "Stevil" (HD Rip)
-13. Family Matters - S09E07 - "Stevil II - This Time He's Not Alone" (Tape 1997/10/31)
-14. Step by Step - S04E06 - "Something Wild" (1994)
-15. Friends - S08E06 - "The One with the Halloween Party" (2001 - DVD Rip)
-16. Freaks and Geeks - S01E03 - "Tricks and Treats"
-
-### Intermission 2
-17. 70's & 80's Halloween Commercials Cut 2
-18. Big Bill Hell
-19. Living in the 90's CD Commercial
-
-### Movie Time 2
-20. [Cry Baby Lane (Nickelodeon Movies, 2000)](https://en.wikipedia.org/wiki/Cry_Baby_Lane)
-
-### Fox & UPN Block
-21. Real Vampires Exposed - [Alien Abduction](https://en.wikipedia.org/wiki/Alien_Abduction%3A_Incident_in_Lake_County) (UPN Tape 1999)
-22. The Simpsons - Treehouse of Horror I - (Tape 1990/10/25)
-23. The Simpsons - Treehouse of Horror Marathon (Tape 1994/10/30)
-
-### Intermission 3
-24. 70's & 80's Halloween Commercials Cut 3
-25. 900-Freak Phone
-26. Punk CD - 90s commercial
-
-### Movie Time 3
-27. Elvira Mistress of the Dark (NBC Tape 1991/07/05)
-
-### Halloween TV Special Block
-28. The Halloween That Almost Wasn't (ABC Premiere Broadcast 1979/10/28)
-29. Channel 20 WTXX - The Kids Time Zone
-30. Boo! (WGN Channel 9 1982/10/30)
-31. [Out There Halloween Mega Tape](https://wnuf.bigcartel.com/product/out-there-halloween-mega-tape-aka-wnuf-halloween-sequel-dvd)
-32. Unsolved Mysteries - Halloween Special (1988/10/26)
-
-### Intermission 4
-33. 70's & 80's Halloween Commercials Cut 4
-34. 900-Creep Phone
-35. [Twin Peaks Georgia Coffee Commercials](https://twinpeaks.fandom.com/wiki/Georgia_Coffee_commercials)
-
-### Movie Time 4
-36. [Kiss Meets the Phantom of the Park](https://en.wikipedia.org/wiki/Kiss_Meets_the_Phantom_of_the_Park)
-
-### Cartoon Block 2
-37. Super Mario Bros Super Show - E20 - "Mommies Curse & Kiss'N' Tell (Zelda Episode)"
-38. Super Mario Bros Super Show - E65 - "The Ghoul of My Dreams & The Moblins are Revolting (Zelda Episode)"
-39. Scooby Doo Where Are You - S01E05 - "Decoy For A Dognapper", Heathcliff - S01E11 - "Teed Off", The Catillac Cats "Monstro vs The Wolf Hound" (WMSN TV Channel 47 Tape 1986/10)
-40. Halloween Spook-O-Rama - Classic Cartoon Collection from [Thunderbean](https://thunderbeanshop.com/)
-
-### Intermission 5
-41. 70's & 80's Halloween Commercials Cut 5
-42. Katy Perry Slimed
-43. Burger King - Simpsons Spooky Light-Ups (2001, USA)
-
-### Movie Time 5
-44. TNT Monster Vision screening of Halloween 3
-
-### MTV & Related Block
-45. Food Party - S02E07 - "NosferaThu"
-46. Beavis and Butthead - S06E01 - "Bungholio - Lord of The Harvest"
-47. MTV - "The Rocky Horror Video Show (Richard O'Brien)"
-48. MTV - "Headbanger's Halloween (Alice Cooper, Iggy Pop)"
-49. [Zappa Halloween (MTV 1981)](https://en.wikipedia.org/wiki/Halloween_81)
-
-### Intermission 6
-50. 70's & 80's Halloween Commercials Cut 6
-51. Zoobooks
-
-### Movie Time 6
-52. Son Of Svengoolie - Dracula (WFLD Tape 1985/05/04)
-
-### Anthology Block
-53. [Friday The 13th- The Series (1987) - S01E05 - "Hellowe'en" (DVD Rip)](https://en.m.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
-54. [Tales from the Darkside - S01E01 - "Trick or Treat" (1983)](https://en.m.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%9385))
-55. [Beyond Belief: Fact or Fiction - S03E09 - "For the Record, Halloween, Precious, Get Your Kicks at Motel 66, and Phantom Drifter"](https://en.m.wikipedia.org/wiki/Beyond_Belief:_Fact_or_Fiction)
-
-### Intermission 7
-56. 70's & 80's Halloween Commercials Cut 7
-57. Knott's Berry Farm Halloween Haunt Home Movie (1990)
-
-### Movie Time 7
-58. [Dan Curtis Dracula - Starring Jack Palance (1974)](https://en.wikipedia.org/wiki/Bram_Stoker%27s_Dracula_(1974_film))
-
-### Intermission 8
-59. 70's & 80's Halloween Commercials Cut 8
-60. Sounds of the 70's
-
-...The playlist will LOOP until I feel like turning it off!
+2. Hit it Joe!
+3. [Amazing Stories - S01E01 - "Ghost Train"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_1_(1985%E2%80%9386))
+   - A grandfather (Roberts Blossom) disapproves of his son (Scott Paulin) building a country home on the site of a train accident from 75 years ago. 
+4. UHF Clip - Spatula City
+5. [Space Island One - S01E01 - "Message from Keeler"](https://en.wikipedia.org/wiki/Space_Island_One)
+   - A new crew member, an environmental specialist named Paula Hernandez replaced a man who killed himself and placed a bomb on the Unity.
+6. Twin Peaks Georgia Coffee Commercial (Full Miniseries from JP TV)
+7. [The Undersea World of Jacques Cousteau - E21 - "500 Million Years Beneath the Sea"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+8. Artie's Workout
+9. Mr. Yuk Commercial (1975)
+10. Punk CD - 90's Commercial
+11. UHF Clip - Is this it?
+12. Sifl N Olly - Crescent Fresh Song
+13. Crazy Dave Tape 3 Crap
+14. Beavis and Butthead - Anarchy Lawnmower
+15. Carl Sagan's Cosmos - The Meat Planet
+16. Living in the 90's CD Comp
+17. Big Bill Hell's
+18. Nestle Alpine White Sweet Dreams Commerical (1986) - Maxfield Parrish
+19. Sifl N Olly - A Word With Chester - IQ Test
+20. Talking Kermits - Once in a Lifetime
+21. They Live Trailer (Taken from Japanese Superbowl XXIII Broadcast, 1989)
+22. Katy Perry Slimed
+23. Cool Rock
+24. The Count Censored
+25. [Ray Bradbury Theater - S03E03 - "The Lake"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_3_(1989))
+    - Years after his childhood sweetheart died, a young man returns to the lake where she disappeared.
+26. A&W Root Beer World's Greatest Float Maker Snoopy (1988)
+27. [Ray Bradbury Theater - S03E04 - "The Wind"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_3_(1989))
+    - A weather expert (Michael Sarrazin) is tormented by a strange wind.
+28. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
+29. [Carl Sagan Cosmos - E10 - "The Edge of Forever" (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
+    - Beginning with the origins of the universe in the Big Bang, Sagan describes the formation of different types of galaxies and anomalies such as galactic collisions and quasars. The discoveries of Edwin Hubble and Milton L. Humason are described. The episode moves further into ideas about the structure of the Universe, such as different dimensions (in the imaginary Flatland and four-dimensional hypercubes), an infinite vs. a finite universe, and the idea of an oscillating Universe (similar to that in Hindu cosmology). The search into other ideas such as dark matter and the multiverse is shown, using tools such as the Very Large Array in New Mexico. Cosmos Update shows new information about the odd, irregular surfaces of galaxies and the Milky Way perhaps being a barred spiral galaxy.
+30. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+31. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+32. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 ## Info about SecretTVBot
