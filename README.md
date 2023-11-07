@@ -13,7 +13,6 @@ SecretTV Playlist:
 8. Artie's Workout
 9. Mr. Yuk Commercial (1975)
 10. Punk CD - 90's Commercial
-11. UHF Clip - Is this it?
 12. Crazy Dave Tape 3 Crap
 14. Beavis and Butthead - Anarchy Lawnmower
 15. Carl Sagan's Cosmos - The Meat Planet
@@ -24,7 +23,6 @@ SecretTV Playlist:
 20. Talking Kermits - Once in a Lifetime
 21. They Live Trailer (Taken from Japanese Superbowl XXIII Broadcast, 1989)
 22. Katy Perry Slimed
-23. Cool Rock
 24. The Count Censored
 25. [Ray Bradbury Theater - S03E03 - "The Lake"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_3_(1989))
     - Years after his childhood sweetheart died, a young man returns to the lake where she disappeared.
