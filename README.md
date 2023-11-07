@@ -14,8 +14,7 @@ SecretTV Playlist:
 9. Mr. Yuk Commercial (1975)
 10. Punk CD - 90's Commercial
 11. UHF Clip - Is this it?
-12. Sifl N Olly - Crescent Fresh Song
-13. Crazy Dave Tape 3 Crap
+12. Crazy Dave Tape 3 Crap
 14. Beavis and Butthead - Anarchy Lawnmower
 15. Carl Sagan's Cosmos - The Meat Planet
 16. Living in the 90's CD Comp
