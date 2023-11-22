@@ -4,11 +4,12 @@ We should know and understand that the history behind Thanksgiving is darker tha
 
 I encourage you to check the site [Native-Land](https://native-land.ca/about/why-it-matters/) to find the Indigenous people that lived in your area, learn about their history, and share what you have learned.
 
-We can entirely change our definition of Thanksgiving with this information by celebrating togetherness with friends and family, and mourning those we have lost.
+We can entirely change our definition of Thanksgiving with this information by celebrating togetherness with friends and family, and mourning the past.
 
 Running the Thanksgiving Macy's Day Parades and other TV specials on Thanksgiving has become a tradition here on SecretTV.  For many that grew up during this time, these videos are a nostalgia trip.  For those that didn't, this provides an interesting look of the very near past.  Have fun!  Be kind!  Love one another!  Learn from each other!  And pass me some pie!
 
-SecretTV Playlist:
+## SecretTV Playlist:
+
 This playlist will be ON LOOP through Thursday and Friday
 1. 1980 Macy's Thanksgiving Day Parade - 2h05m
 2. 1981 Macy's Thanksgiving Day Parade - 3h23m
