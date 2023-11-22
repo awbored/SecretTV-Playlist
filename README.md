@@ -12,18 +12,17 @@ Running the Thanksgiving Macy's Day Parades and other TV specials on Thanksgivin
 
 This playlist will be ON LOOP through Thursday and Friday
 1. 1980 Macy's Thanksgiving Day Parade - 2h05m
-2. 1981 Macy's Thanksgiving Day Parade - 3h23m
-3. CBS Thanksgiving Tape (1987) - 59m
+2. CBS Thanksgiving Tape (1987) - 59m
    - A Charlie Brown Thanksgiving
    - It's Your First Kiss Charlie Brown
-4. 1983 Macy's Thanksgiving Day Parade - 2h54m
-5. 1985 Macy's Thanksgiving Day Parade - 3h
-6. Garfield Thanksgiving Special (1992) - 32m
-7. 1986 Macy's Thanksgiving Day Parade - 3h
-8. 1987 Macy's Thanksgiving Day Parade - 2h03m
-9. Bart Vs Thanksgiving (1990) - 25m
-10. 1988 Macy's Thanksgiving Day Parade - 2h58m
-11. Beavis and Butthead Do Thanksgiving (1997) - 4h49m
+3. 1983 Macy's Thanksgiving Day Parade - 2h54m
+4. 1985 Macy's Thanksgiving Day Parade - 3h
+5. Garfield Thanksgiving Special (1992) - 32m
+6. 1986 Macy's Thanksgiving Day Parade - 3h
+7. 1987 Macy's Thanksgiving Day Parade - 2h03m
+8. Bart Vs Thanksgiving (1990) - 25m
+9. 1988 Macy's Thanksgiving Day Parade - 2h58m
+10. Beavis and Butthead Do Thanksgiving (1997) - 4h49m
 
 
 
