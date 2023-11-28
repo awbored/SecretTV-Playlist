@@ -1,29 +1,45 @@
-# 2023/11/23 - SecretTV Playlist - 📺🦃📺🦃📺🦃 Thanksgiving Day Marathon 📺🦃📺🦃📺🦃
+# 2023/11/28 - SecretTV Playlist
 
-We should know and understand that the history behind Thanksgiving is darker than what Americans were taught, with the myth of Native Americans and Pilgrims having a 'friendly meal' together, helping each other during winter.  This was very much not true.  The people that lived on this land were wiped out, extensively, by colonizers.  We should acknowledge and mourn this fact.
-
-I encourage you to check the site [Native-Land](https://native-land.ca/about/why-it-matters/) to find the Indigenous people that lived in your area, learn about their history, and share what you have learned.
-
-We can entirely change our definition of Thanksgiving with this information by celebrating togetherness with friends and family, and mourning the past.
-
-Running the Thanksgiving Macy's Day Parades and other TV specials on Thanksgiving has become a tradition here on SecretTV.  For many that grew up during this time, these videos are a nostalgia trip.  For those that didn't, this provides an interesting look of the very near past.  Have fun!  Be kind!  Love one another!  Learn from each other!  And pass me some pie!
-
-## SecretTV Playlist:
-
-This playlist will be ON LOOP through Thursday and Friday
-1. 1980 Macy's Thanksgiving Day Parade - 2h05m
-2. CBS Thanksgiving Tape (1987) - 59m
-   - A Charlie Brown Thanksgiving
-   - It's Your First Kiss Charlie Brown
-3. 1983 Macy's Thanksgiving Day Parade - 2h54m
-4. 1985 Macy's Thanksgiving Day Parade - 3h
-5. Garfield Thanksgiving Special (1992) - 32m
-6. 1986 Macy's Thanksgiving Day Parade - 3h
-7. 1987 Macy's Thanksgiving Day Parade - 2h03m
-8. Bart Vs Thanksgiving (1990) - 25m
-9. 1988 Macy's Thanksgiving Day Parade - 2h58m
-10. Beavis and Butthead Do Thanksgiving (1997) - 4h49m
-
+SecretTV Playlist:
+1. Secret TV Roller Coaster (intro)
+2. Hit it Joe!
+3. Finnish Door Instructions
+4. [Amazing Stories - S01E04 - "Mummy Daddy"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_1_(1985%E2%80%9386))
+   - An actor (Tom Harrison) cast as a mummy in a horror movie rushes out, still in costume, to be with his wife when she goes into labor. As he makes his way to the hospital, some locals mistake him for the legend of Ra Amin Ka and form a posse to pursue him. Little did anyone realize, the actual mummy was accidentally deposited there... 
+5. UHF Clip - Spatula City
+6. [Space Island One - S01E04 - "Rogue Satellite"](https://en.wikipedia.org/wiki/Space_Island_One)
+7. Twin Peaks Georgia Coffee Commercial (Full Miniseries from JP TV)
+8. [The Undersea World of Jacques Cousteau - E24 - "The Singing Whale"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+   -  The Calypso crew records the plaintive, melodious songs of migrating humpback whales.
+9. Artie's Workout
+10. Zoo Books
+11. TMNT Blue Line
+12. Zorak as Space Ghost promo
+13. Punk CD - 90's Commercial
+14. Crazy Dave Tape 3 Crap
+15. Beavis and Butthead - Anarchy Lawnmower
+16. Time Life Books Mysteries of the Unknown - Commercial (1990)
+17. Encyclopedia Brittanica Annoying Know It All - Commercial (1990)
+18. VISA - Bob Dole Can't Win - Commercial (1991)
+19. Lenny Dee Melodies of Love (1985)
+20. Big Bill Hell's
+21. Nestle Alpine White Sweet Dreams Commerical (1986) - Maxfield Parrish
+22. Sifl N Olly - A Word With Chester - IQ Test
+23. Dr Bolls Marmalade
+24. They Live Trailer (Taken from Japanese Superbowl XXIII Broadcast, 1989)
+25. Katy Perry Slimed
+26. The Count Censored
+27. [Ray Bradbury Theater - S03E09 - "To the Chicago Abyss"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_3_(1989))
+    -  A man (Harold Gould) is pursued and considered an enemy of the state for simply reminding people of "the good ol' days."
+28. A&W Root Beer World's Greatest Float Maker Snoopy (1988)
+29. [Ray Bradbury Theater - S03E10 - "Hail and Farewell"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_3_(1989))
+    -  A young man (Josh Saviano), unable to age, makes a profession out of his situation, for his sake and others.
+30. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
+31. [Carl Sagan Cosmos - E13 - "Who Speaks for Earth?" (1980)](https://en.wikipedia.org/wiki/Cosmos:_A_Personal_Voyage)
+    -    Sagan reflects on the future of humanity and the question of "who speaks for Earth?" when meeting extraterrestrials. He discusses the very different meetings of the Tlingit people and explorer Jean-François de La Pérouse with the destruction of the Aztecs by Spanish conquistadors, the looming threat of nuclear warfare, and the threats shown by the destruction of the Library of Alexandria and the murder of Hypatia. The episode ends with an overview of the beginning of the universe, the evolution of life, and the accomplishments of humanity and makes a plea to mankind to cherish life and continue its journey in the cosmos. The Cosmos Update notes the preliminary reconnaissance of planets with spacecraft, the fall of the Berlin Wall and the end of apartheid in South Africa, and measures towards the reduction of nuclear weapons.
+32. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+33. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+34. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 ## Info about SecretTVBot
