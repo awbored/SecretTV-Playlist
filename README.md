@@ -1,31 +1,34 @@
-# 2023/12/12 - SecretTV Playlist
+# 2023/12/19 - SecretTV Playlist
 
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
 2. Hit it Joe!
 3. Finnish Door Instructions
-4. [Amazing Stories - S01E06 - "The Amazing Falsworth"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_1_(1985%E2%80%9386))
-   - A magician with psychic powers (Gregory Hines) sees visions of two murders when he detects a serial killer somewhere in the audience... who then focuses on him!
+4. [Amazing Stories - S01E07 - "Fine Tuning"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_1_(1985%E2%80%9386))
+   - A science-project receiver built by three kids (Matthew Laborteaux, Gary Riley, and Jim Gatherum) picks up transmissions of alien television signals (Debbie Lee Carrington, Daniel Frishman, Patty Maloney, and Kevin Thompson) imitating classic TV characters from the 1950s. Now the aliens are en route to meet the boys... 
 5. UHF Clip - Spatula City
-6. [Space Island One - S01E06 - "Crew Test"](https://en.wikipedia.org/wiki/Space_Island_One)
+6. [Space Island One - S01E07 - "The Barrier of Second Attention"](https://en.wikipedia.org/wiki/Space_Island_One)
 7. Twin Peaks Georgia Coffee Commercial (Full Miniseries from JP TV)
-8. [The Undersea World of Jacques Cousteau - E26 - "The Flight of Penguins"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
-   - The crew observes penguins feeding, mating and raising young.
+8. [The Undersea World of Jacques Cousteau - E27 - "Beneath the Frozen World"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+   -  The crew dives below the ice, and sails above in a hot-air balloon.
 9. Artie's Workout
-10. Christmas Commercial Pack 3
+10. Christmas Commercial Pack 5
 11. Jan Terri - Rock N Roll Santa
+
+Emmet Otter's Jug Band Christmas Outtakes [Highest Quality, Full Version].mp4
+
 12. The Count Censored
-13. Christmas Commercial Pack 4
-14. [Ray Bradbury Theater - S04E01 - "Mars Is Heaven"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_3_(1989))
-    - An astronaut (Hal Linden) and his team land on Mars and discover they're not so far from home at all.
+13. Christmas Commercial Pack 6
+14. [Ray Bradbury Theater - S04E03 - "Touched with Fire"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_4_(1990))
+    -  A retired insurance man (Barry Morse) and his colleague are convinvced an old woman (Eileen Brennan) is about to be murdered and seek to prevent it.
 15. A&W Root Beer World's Greatest Float Maker Snoopy (1988)
-16. [Ray Bradbury Theater - S04E02 - "The Murderer"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_3_(1989))
-    - A psychologist visits a prisoner who lost his mind because of everyday noises.
+16. [Ray Bradbury Theater - S04E04 - "The Black Ferris"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_4_(1990))
+    -  Two young boys become convinced the carnival that just came to town is evil.
 17. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
-18. [In Search Of... with Leonard Nimoy - S01E03 - "Ancient Aviators" (1977)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_1_(1977))
-    - Are there signs of alien visitation here on earth? Might the mysterious markings on the Nazca Plain in Peru be landing instructions for UFOs?
-19. [In Search Of... with Leonard Nimoy - S01E04 - "The Bermuda Triangle" (1977)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_1_(1977))
-    - Probes a radio broadcast claim that the graveyard of ships and planes is actually a testing area for spacemen.
+18. [In Search Of... with Leonard Nimoy - S01E05 - "Bigfoot" (1977)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_1_(1977))
+    -  An evaluation of giant footprints and other evidence which some believe proves that the half-man, half-animal creature really exists.
+19. [In Search Of... with Leonard Nimoy - S01E06 - "Killer Bees" (1977)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_1_(1977))
+    - A photographic report from Brazil on the behavior of the bees and genetic experiments underway to stop the savage swarms from reaching the U.S.
 20. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 21. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 22. Undertale - Napping with Ghost (Outro & Raid out)
