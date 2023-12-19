@@ -14,24 +14,22 @@ SecretTV Playlist:
 9. Artie's Workout
 10. Christmas Commercial Pack 5
 11. Jan Terri - Rock N Roll Santa
-
-Emmet Otter's Jug Band Christmas Outtakes [Highest Quality, Full Version].mp4
-
-12. The Count Censored
-13. Christmas Commercial Pack 6
-14. [Ray Bradbury Theater - S04E03 - "Touched with Fire"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_4_(1990))
+12. Emmet Otter's Jug Band Christmas Outtakes
+13. The Count Censored
+14. Christmas Commercial Pack 6
+15. [Ray Bradbury Theater - S04E03 - "Touched with Fire"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_4_(1990))
     -  A retired insurance man (Barry Morse) and his colleague are convinvced an old woman (Eileen Brennan) is about to be murdered and seek to prevent it.
-15. A&W Root Beer World's Greatest Float Maker Snoopy (1988)
-16. [Ray Bradbury Theater - S04E04 - "The Black Ferris"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_4_(1990))
+16. A&W Root Beer World's Greatest Float Maker Snoopy (1988)
+17. [Ray Bradbury Theater - S04E04 - "The Black Ferris"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_4_(1990))
     -  Two young boys become convinced the carnival that just came to town is evil.
-17. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
-18. [In Search Of... with Leonard Nimoy - S01E05 - "Bigfoot" (1977)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_1_(1977))
+18. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
+19. [In Search Of... with Leonard Nimoy - S01E05 - "Bigfoot" (1977)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_1_(1977))
     -  An evaluation of giant footprints and other evidence which some believe proves that the half-man, half-animal creature really exists.
-19. [In Search Of... with Leonard Nimoy - S01E06 - "Killer Bees" (1977)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_1_(1977))
+20. [In Search Of... with Leonard Nimoy - S01E06 - "Killer Bees" (1977)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_1_(1977))
     - A photographic report from Brazil on the behavior of the bees and genetic experiments underway to stop the savage swarms from reaching the U.S.
-20. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-21. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-22. Undertale - Napping with Ghost (Outro & Raid out)
+21. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+22. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+23. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 ## Info about SecretTVBot
