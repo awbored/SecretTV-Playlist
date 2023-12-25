@@ -16,7 +16,7 @@ SecretTV Playlist:
 6. Rudolph the Red Nosed Reindeer
 7. Looney Tunes Christmas
 8. Christmas Commericals Cut 4
-9. A Claymation Christmas Celebration
+9. Will Vinton's A Claymation Christmas Celebration
 10. Christmas Commericals Cut 5
 11. A Muppet Family Christmas
 12. Christmas Commericals Cut 6
