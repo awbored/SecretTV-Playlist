@@ -15,22 +15,23 @@ SecretTV Playlist:
 5. Christmas Commericals Cut 3
 6. Rudolph the Red Nosed Reindeer
 7. Looney Tunes Christmas
-8. Christmas Commericals Cut 4
-9. Will Vinton's A Claymation Christmas Celebration
-10. Christmas Commericals Cut 5
-11. A Muppet Family Christmas
-12. Christmas Commericals Cut 6
-13. Emmet Otter's Jug Band Christmas Outtakes
-14. Emmet Otter's Jug Band Christmas (Nick Sunday Night Muppets 1992)
-15. Christmas Commericals Cut 7
-16. Muppet Christmas Carol
-17. Christmas Commericals Cut 8
-18. Christmas Story on TNT
-19. Christmas Commericals Cut 9
-20. Ziggy's Gift
-21. Christmas Comes to Pac-Land
-22. Christmas Commericals Cut 10
-23. Elvira's Movie Macabre - Santa Claus Conquers the Martians
+8. 'Twas the Night Before Christmas, Rankin Bass
+9. Christmas Commericals Cut 4
+10. Will Vinton's A Claymation Christmas Celebration
+11. Christmas Commericals Cut 5
+12. A Muppet Family Christmas
+13. Christmas Commericals Cut 6
+14. Emmet Otter's Jug Band Christmas Outtakes
+15. Emmet Otter's Jug Band Christmas (Nick Sunday Night Muppets 1992)
+16. Christmas Commericals Cut 7
+17. Muppet Christmas Carol
+18. Christmas Commericals Cut 8
+19. Christmas Story on TNT
+20. Christmas Commericals Cut 9
+21. Ziggy's Gift
+22. Christmas Comes to Pac-Land
+23. Christmas Commericals Cut 10
+24. Elvira's Movie Macabre - Santa Claus Conquers the Martians
 
 
 ## Info about SecretTVBot
