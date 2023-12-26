@@ -21,17 +21,23 @@ SecretTV Playlist:
 11. Christmas Commericals Cut 5
 12. A Muppet Family Christmas
 13. Christmas Commericals Cut 6
-14. Emmet Otter's Jug Band Christmas Outtakes
-15. Emmet Otter's Jug Band Christmas (Nick Sunday Night Muppets 1992)
-16. Christmas Commericals Cut 7
-17. Muppet Christmas Carol
-18. Christmas Commericals Cut 8
-19. Christmas Story on TNT
-20. Christmas Commericals Cut 9
-21. Ziggy's Gift
-22. Christmas Comes to Pac-Land
-23. Christmas Commericals Cut 10
-24. Elvira's Movie Macabre - Santa Claus Conquers the Martians
+14. Gremlins KPOM 1989 Tape
+15. Christmas Commercials Cut 11
+16. Die Hard 1995 Tape
+17. Christmas Commercials 12
+18. Christmas with Dennis Awe
+19. Christmas Commercials 13
+20. Emmet Otter's Jug Band Christmas Outtakes
+21. Emmet Otter's Jug Band Christmas (Nick Sunday Night Muppets 1992)
+22. Christmas Commericals Cut 7
+23. Muppet Christmas Carol
+24. Christmas Commericals Cut 8
+25. Christmas Story on TNT
+26. Christmas Commericals Cut 9
+27. Ziggy's Gift
+28. Christmas Comes to Pac-Land
+29. Christmas Commericals Cut 10
+30. Elvira's Movie Macabre - Santa Claus Conquers the Martians
 
 
 ## Info about SecretTVBot
