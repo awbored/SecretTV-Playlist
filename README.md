@@ -1,7 +1,6 @@
 # 2024/01/09 - SecretTV Playlist
 
 SecretTV Playlist:
-
 1. Secret TV Roller Coaster (intro)
 2. Hit it Joe!
 3. Steamboat Willie
@@ -28,12 +27,9 @@ SecretTV Playlist:
 22. Biggie smalls goes to buy snes
 23. [Ray Bradbury Theater - S04E09 - "Exorcism"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_4_(1990))
     - A woman (Jayne Eastwood) plans to expose her nemesis (Sally Kellerman) as a witch to the public and most importantly to heir inner circle of friends.
-
 24. A&W Root Beer World's Greatest Float Maker Snoopy (1988)
-
 25. [Ray Bradbury Theater - S04E10 - "The Day It Rained Forever"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_4_(1990))
     - Three old men in a dusty old town wait for the day when it will rain. They have waited for a long time. Featuring Vincent Gardenia.
-
 26. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
 27. Madness 'Colgate' TV Advert '80s Classic
 28. Motobecane 50 Enduro
