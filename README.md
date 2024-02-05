@@ -1,7 +1,5 @@
 # 2024/02/06 - SecretTV Playlist
 
-We're back!!
-
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
 2. We're Back!  A Dino Story!
