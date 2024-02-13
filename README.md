@@ -1,47 +1,55 @@
-# 2024/02/06 - SecretTV Playlist
+# 2024/02/13 - SecretTV Playlist
 
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
-2. We're Back!  A Dino Story!
+2. 1987 Woolworth Valentine's Day Sale Commercial 
 3. UHF Clip - U62 Promo
-4. [Amazing Stories - S01E13 - "The Sitter"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_1_(1985%E2%80%9386))
-   - A babysitter (Mabel King) uses voodoo to get two beleaguering and overactive boys (Seth Green and Joshua Rudoy) under control.  Also starring Wendy Phillips, Fran Ryan, and Michael Horse.
+4. [Amazing Stories - S01E14 - "No Day at the Beach"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_1_(1985%E2%80%9386))
+   - A GI (Larry Spinak) tries to be a hero during a World War II assault on Italy. He manages to do that by saving his fellow soldiers during the charge on Port Nuovo.  Also starring Charlie Sheen, Ralph Seymour, and Philip McKeon.
 5. UHF - Emo
-6. [Space Island One - S01E13 - "A Child is Born"](https://en.wikipedia.org/wiki/Space_Island_One)
+6. [Eerie, Indiana - E01 - "Forever Ware"](https://en.wikipedia.org/wiki/Eerie%2C_Indiana#Episodes)
+   - Marshall's mother, Marilyn, meets a chipper neighbor woman named Betty and gets roped into buying Forever Ware, Tupperware-style plastic containers that keep food fresh -- and Marshall and Simon soon learn that this extends to human life when they meet Bertram and Ernest, Betty's sons who have been stuck as kids since 1964.
 7. Twin Peaks Georgia Coffee Commercial (Full Miniseries from JP TV)
-8. [The Undersea World of Jacques Cousteau - E32 - "The Sleeping Sharks of Yucatan"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
-   - Cousteau investigates reports of sharks seen resting in underwater caves
+8. [The Undersea World of Jacques Cousteau - E33 - "The Sea Birds of Isabela"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+   - The crew journeys off the coast of Mexico to Isla Isabela to study tropical birds.
 9. Artie's Workout
 10. Time Life Books Mysteries of the Unknown (1990)
-11. Encyclopedia Brittanica (1990)
-12. Harvey Leeds - State of Shock
-13. Dr Bolls Marmalade
-14. Lenny Dee Melodies of Love
-15. Punk CD
-16. La Choy Dragon
-17. Akumaizer - He Dead
-18. Gary Numan - Metal
-19. The Simpsons Bart Vs The Space Mutants NES
+11. Dr Bolls Marmalade
+12. 80's Ads Genovese Drug Store Valentine's Day
+13. 1979 Hallmark Valentines Day Cards TV Commercial
+14. Cathy's Valentine Part 1 
+15. Gary Numan - Metal
+16. Cathy's Valentine Part 2 
+17. Colin's Bear Animation
+18. Cathy's Valentine Part 3 
+19. 1984 Hallmark Valentines Day TV Commercial 
 20. The LaserTour from Perceptronics, available in 1982
-21. My Name Is The Dog
-22. LA Gear Commercial (1988)
-23. Colin's Bear Animation
-24. Biggie smalls goes to buy snes
-25. [Ray Bradbury Theater - S05E01 - "The Earthmen"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_5_(1992))
-    - Two expedition teams went to Mars were never heard from again. A third discovers why.
-26. A&W Root Beer World's Greatest Float Maker Snoopy (1988)
-27. [Ray Bradbury Theater - S05E02 - "Zero Hour"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_5_(1992))
-    - Children are enlisted by invaders with a game that will help conquer the Earth. Featuring Katharine Isabelle and Sally Kirkland.
-28. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
-29. Madness 'Colgate' TV Advert '80s Classic
-30. Motobecane 50 Enduro
-31. [In Search Of... with Leonard Nimoy - S01E16 - "Dracula" (1977)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_1_(1977))
-    - Investigates the life and recorded history of Vlad the Impaler in Romania, with comparisons to the main character of the famous Bram Stoker novel.
-32. [In Search Of... with Leonard Nimoy - S01E17 - "The Easter Island Massacre" (1977)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_1_(1977))
-    - Provides answers to the mysteries of how 70-ton giant stones came to the remote island and who might have destroyed some of them.
-33. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-34. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-35. Undertale - Napping with Ghost (Outro & Raid out)
+21. The Pink Panther in Pink At First Sight 23 Minute Valentine's Day Special
+22. Hallmark - The Valentines Store (Commercial, 1985) 
+23. Scope, Valentines Day 
+24. Philadelphia Candies 1987 Valentine's Day Commercial 
+25. Retro 1-800-FLOWERS Valentine's Day Commercial 
+26. Lenny Dee Melodies of Love
+27. Punk CD
+28. La Choy Dragon
+29. Akumaizer - He Dead
+30. The Simpsons Bart Vs The Space Mutants NES
+31. My Name Is The Dog
+32. LA Gear Commercial (1988)
+33. Biggie smalls goes to buy snes
+34. [Ray Bradbury Theater - S05E03 - "The Jar"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_5_(1992))
+    - A farmer purchases a strange creature in a jar from a carnival sideshow, but becomes a danger when he finds out it's a fake.
+35. A&W Root Beer World's Greatest Float Maker Snoopy (1988)
+36. [Ray Bradbury Theater - S05E04 - 	"Colonel Stonesteel and the Desperate Empties"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_5_(1992))
+    - A young boy (Shawn Ashmore) and his friend Colonel Stonesteel (Harold Gould) combat the end of summer doldrums by engaging in an elaborate hoax involving an ancient mummy that whips the whole town up in a frenzy.
+37. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
+38. Madness 'Colgate' TV Advert '80s Classic
+39. Motobecane 50 Enduro
+40. [In Search Of... with Leonard Nimoy - S01E18 - "Ghosts" (1977)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_1_(1977))
+    - Studies specters and a parapsychologist's theory that they are troubled earthbound souls in need of help.
+41. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+42. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+43. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 ## Info about SecretTVBot
