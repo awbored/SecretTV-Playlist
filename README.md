@@ -1,55 +1,55 @@
-# 2024/02/13 - SecretTV Playlist
+# 2024/02/20 - SecretTV Playlist
 
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
-2. 1987 Woolworth Valentine's Day Sale Commercial 
-3. UHF Clip - U62 Promo
-4. [Amazing Stories - S01E14 - "No Day at the Beach"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_1_(1985%E2%80%9386))
-   - A GI (Larry Spinak) tries to be a hero during a World War II assault on Italy. He manages to do that by saving his fellow soldiers during the charge on Port Nuovo.  Also starring Charlie Sheen, Ralph Seymour, and Philip McKeon.
-5. UHF - Emo
-6. [Eerie, Indiana - E01 - "Forever Ware"](https://en.wikipedia.org/wiki/Eerie%2C_Indiana#Episodes)
-   - Marshall's mother, Marilyn, meets a chipper neighbor woman named Betty and gets roped into buying Forever Ware, Tupperware-style plastic containers that keep food fresh -- and Marshall and Simon soon learn that this extends to human life when they meet Bertram and Ernest, Betty's sons who have been stuck as kids since 1964.
-7. Twin Peaks Georgia Coffee Commercial (Full Miniseries from JP TV)
-8. [The Undersea World of Jacques Cousteau - E33 - "The Sea Birds of Isabela"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
-   - The crew journeys off the coast of Mexico to Isla Isabela to study tropical birds.
-9. Artie's Workout
-10. Time Life Books Mysteries of the Unknown (1990)
+2. Amazon Women on the Moon CLIP - Short Attention Span
+3. [Amazing Stories - S01E15 - "One for the Road"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_1_(1985%E2%80%9386))
+   - During the Great Depression and based on a true story, Michael Malloy (Douglas Seale) is tricked into signing an insurance policy so Tony Maroni (Al Ruscio) and his fellow barflies can collect the money once he drinks himself to death.  Also starring James Cromwell, Geoffrey Lewis, Joe Pantoliano, and Royal Dano.
+4. Zoobooks
+5. [Eerie, Indiana - E02 - "The Retainer"](https://en.wikipedia.org/wiki/Eerie%2C_Indiana#Episodes)
+   - Marshall's friend Steve dreads visiting the Eerie, Indiana orthodontist (Vincent Schiavelli) and is fitted for a retainer that gives him the power to read dogs' minds and uncover their plot to overthrow their human masters.
+6. UHF CLIP - Wheel of Fish
+7. [The Undersea World of Jacques Cousteau - E34 - "Mysteries of the Hidden Reefs"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+   - Cousteau explores the beauty and life of an ancient and complex ecosystem.
+8. Artie's Workout
+9. SNL - Cluckin Chicken
+10. ホ！ホ！ホ！
 11. Dr Bolls Marmalade
-12. 80's Ads Genovese Drug Store Valentine's Day
-13. 1979 Hallmark Valentines Day Cards TV Commercial
-14. Cathy's Valentine Part 1 
-15. Gary Numan - Metal
-16. Cathy's Valentine Part 2 
-17. Colin's Bear Animation
-18. Cathy's Valentine Part 3 
-19. 1984 Hallmark Valentines Day TV Commercial 
-20. The LaserTour from Perceptronics, available in 1982
-21. The Pink Panther in Pink At First Sight 23 Minute Valentine's Day Special
-22. Hallmark - The Valentines Store (Commercial, 1985) 
-23. Scope, Valentines Day 
-24. Philadelphia Candies 1987 Valentine's Day Commercial 
-25. Retro 1-800-FLOWERS Valentine's Day Commercial 
-26. Lenny Dee Melodies of Love
-27. Punk CD
-28. La Choy Dragon
-29. Akumaizer - He Dead
-30. The Simpsons Bart Vs The Space Mutants NES
-31. My Name Is The Dog
-32. LA Gear Commercial (1988)
-33. Biggie smalls goes to buy snes
-34. [Ray Bradbury Theater - S05E03 - "The Jar"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_5_(1992))
-    - A farmer purchases a strange creature in a jar from a carnival sideshow, but becomes a danger when he finds out it's a fake.
-35. A&W Root Beer World's Greatest Float Maker Snoopy (1988)
-36. [Ray Bradbury Theater - S05E04 - 	"Colonel Stonesteel and the Desperate Empties"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_5_(1992))
-    - A young boy (Shawn Ashmore) and his friend Colonel Stonesteel (Harold Gould) combat the end of summer doldrums by engaging in an elaborate hoax involving an ancient mummy that whips the whole town up in a frenzy.
-37. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
-38. Madness 'Colgate' TV Advert '80s Classic
-39. Motobecane 50 Enduro
-40. [In Search Of... with Leonard Nimoy - S01E18 - "Ghosts" (1977)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_1_(1977))
-    - Studies specters and a parapsychologist's theory that they are troubled earthbound souls in need of help.
-41. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-42. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-43. Undertale - Napping with Ghost (Outro & Raid out)
+12. Sounds of the 70's
+13. Pepsi Young MC Cool
+14. Gary Numan - Metal
+15. Colin's Bear Animation
+16. The LaserTour from Perceptronics, available in 1982
+17. Lenny Dee Melodies of Love
+18. Punk CD
+19. Katy Perry Slimed
+20. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
+21. 900-Creep-Phone
+22. Akumaizer - He Dead
+23. The Simpsons Bart Vs The Space Mutants NES
+24. My Name Is The Dog
+25. LA Gear Commercial (1988)
+26. Barney Gumble's Kurzfilm Pukahontas
+27. SNL - James Brown's Celebrity Hot Tub Party
+28. Biggie smalls goes to buy snes
+29. Amazon Women on the Moon CLIP - Bullshit or Not
+30. [Ray Bradbury Theater - S05E05 - "The Concrete Mixer"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_5_(1992))
+    -  Invaders from Mars land in an idyllic American town... and are welcomed with open arms, while also learning the true nature of the American way of life. Featuring Ben Cross.
+31. A&W Root Beer World's Greatest Float Maker Snoopy (1988)
+32. [Ray Bradbury Theater - S05E06 - 	"The Utterly Perfect Murder"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_5_(1992))
+    -  A child prodigy (Richard Kiley) was tormented by bullies in his youth. 50 years later, he finally returns to get his revenge.
+33. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
+34. Madness 'Colgate' TV Advert '80s Classic
+35. Motobecane 50 Enduro
+36. [In Search Of... with Leonard Nimoy - S01E19 - "Life After Death" (1977)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_1_(1977))
+    - A visit to a soul research institute for firsthand accounts of people who claim they have died and come back to life.
+37. [In Search Of... with Leonard Nimoy - S01E20 - "The Loch Ness Monster" (1977)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_1_(1977))
+    - A hunt for the leviathan which has so far eluded all expeditions to prove that it truly exists. Includes footage of Bob Ballard as he performs underwater photography in an attempt to identify the monster.   
+38. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+39. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+40. Undertale - Napping with Ghost (Outro & Raid out)
+
+
 
 
 ## Info about SecretTVBot
