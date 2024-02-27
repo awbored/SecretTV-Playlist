@@ -9,7 +9,7 @@ SecretTV Playlist:
 5. [Eerie, Indiana - E02 - "The ATM with the Heart of Gold"](https://en.wikipedia.org/wiki/Eerie%2C_Indiana#Episodes)
    -  Simon, feeling left out with no friends but Marshall, comes across an ATM that gives him money to be more popular – which also causes Eerie, Indiana to sink into a financial depression.
 6. UHF CLIP - Wheel of Fish
-7. [The Undersea World of Jacques Cousteau - E34 - "The Fish That Swallowed Jonah"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
+7. [The Undersea World of Jacques Cousteau - E35 - "The Fish That Swallowed Jonah"](https://en.wikipedia.org/wiki/The_Undersea_World_of_Jacques_Cousteau)
    - Calypso's divers search Mexico's Yucatan Peninsula for different species of groupers.
 8. Artie's Workout
 9. SNL - Cluckin Chicken
