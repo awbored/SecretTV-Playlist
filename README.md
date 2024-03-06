@@ -1,5 +1,7 @@
 # 2024/03/05 - SecretTV Playlist
 
+Happy Birthday [DJ Holiday Special](https://www.twitch.tv/djholidayspecial)!!  A few entries picked speficially for their special day!
+
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
 2. Amazon Women on the Moon CLIP - Short Attention Span
