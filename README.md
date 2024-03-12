@@ -21,7 +21,7 @@ SecretTV Playlist:
 12. Star Wars Cerveza Cristal 002
 13. Akumaizer - He Dead
 14. Misc Dragon Ball Japanese Commercials
-15. Chrono Trigger - V-Jump '94 Presentation with Akira Toriyama
+15. Chrono Trigger - V-Jump Presentation with Akira Toriyama (1994)
 16. Tetsuko's Room - Akira Toriyama Interview (1983)
 18. HBO Feature Presentation (1983)
 19. Dr Slump Movie 2 - Space Adventure
