@@ -23,7 +23,6 @@ SecretTV Playlist:
 14. Misc Dragon Ball Japanese Commercials
 15. Chrono Trigger - V-Jump '94 Presentation with Akira Toriyama
 16. Tetsuko's Room - Akira Toriyama Interview (1983)
-17. Dr Slump Movie 1 - Hello Wonder Land
 18. HBO Feature Presentation (1983)
 19. Dr Slump Movie 2 - Space Adventure
 20. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
