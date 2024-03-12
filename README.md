@@ -24,7 +24,7 @@ SecretTV Playlist:
 15. Chrono Trigger - V-Jump Presentation with Akira Toriyama (1994)
 16. Tetsuko's Room - Akira Toriyama Interview (1983)
 18. HBO Feature Presentation (1983)
-19. Dr Slump Movie 2 - Space Adventure
+19. Dr Slump Movie: Space Adventure
 20. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 21. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 22. Undertale - Napping with Ghost (Outro & Raid out)
