@@ -17,8 +17,9 @@ SecretTV Playlist:
    - Lobsters gather annually at Mexico's Yucatan Peninsula for a migratory journey. (This is the LAST Jacques Cousteu episode for our run!)
 10. Artie's Workout
 11. Star Wars Cerveza Cristal 002
-12. Akumaizer - He Dead
-13. Sounds of the 70's
+12. Citytv Toronto - Speakers' Corner (1991)
+13. Akumaizer - He Dead
+14. Sounds of the 70's
 15. Gary Numan - Metal
 16. The LaserTour from Perceptronics (1982)
 17. Lenny Dee Melodies of Love
