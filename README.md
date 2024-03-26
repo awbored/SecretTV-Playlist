@@ -19,7 +19,6 @@ SecretTV Playlist:
 11. Star Wars Cerveza Cristal 002
 12. Akumaizer - He Dead
 13. Sounds of the 70's
-14. Big Bill Hell's
 15. Gary Numan - Metal
 16. The LaserTour from Perceptronics (1982)
 17. Lenny Dee Melodies of Love
