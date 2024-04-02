@@ -17,7 +17,6 @@ SecretTV Playlist:
 12. Speakers' Corner 1991 (Recording 2)
 13. Akumaizer - He Dead
 14. Sounds of the 70's
-15. Big Bill Hell's
 16. Gary Numan - Metal
 17. The LaserTour from Perceptronics (1982)
 18. Lenny Dee Melodies of Love
