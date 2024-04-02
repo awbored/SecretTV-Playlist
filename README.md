@@ -14,38 +14,39 @@ SecretTV Playlist:
 9. VH1's Pop-Up Video - S03E19 - Metal Mania III - (1999)
 10. Artie's Workout
 11. Star Wars Cerveza Cristal 002
-12. Akumaizer - He Dead
-13. Sounds of the 70's
-14. Big Bill Hell's
-15. Gary Numan - Metal
-16. The LaserTour from Perceptronics (1982)
-17. Lenny Dee Melodies of Love
-18. Punk CD
-19. Katy Perry Slimed
-20. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-21. Frank Zappa's Apostrophe Album commercial (1974)
-22. Chevy Astro Van commercial (1985)
-23. Carl Sagan's Cosmos 'The Meat Planet'
-24. Gonzo "Guilt"
-25. Masters Of The Universe - Hordak and the Evil Horde UK TV
-26. Can't Touch This
-27. Ray Bradbury's Fahrenheit 451's not a prediction - BBC (1990)
-28. [Ray Bradbury Theater - S06E03 - "Tomorrow's Child"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
+12. Speakers' Corner 1991 (Recording 2)
+13. Akumaizer - He Dead
+14. Sounds of the 70's
+15. Big Bill Hell's
+16. Gary Numan - Metal
+17. The LaserTour from Perceptronics (1982)
+18. Lenny Dee Melodies of Love
+19. Punk CD
+20. Katy Perry Slimed
+21. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
+22. Frank Zappa's Apostrophe Album commercial (1974)
+23. Chevy Astro Van commercial (1985)
+24. Carl Sagan's Cosmos 'The Meat Planet'
+25. Gonzo "Guilt"
+26. Masters Of The Universe - Hordak and the Evil Horde UK TV
+27. Can't Touch This
+28. Ray Bradbury's Fahrenheit 451's not a prediction - BBC (1990)
+29. [Ray Bradbury Theater - S06E03 - "Tomorrow's Child"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
     -  A couple's child is born in another dimension, and they must deal with the complex reality of this unusual situation. Featuring Carol Kane.
-29. [Ray Bradbury Theater - S06E04 - "The Anthem Sprinters"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
+30. [Ray Bradbury Theater - S06E04 - "The Anthem Sprinters"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
     -  While visiting Dublin, an American writer (Len Cariou) is caught up in a local Irish tradition called "anthem sprinting."
-30. A&W Family Restaurants - Root Bear Glass (1981)
-31. Scooter Jousting Aka Vespa Joust (1957)
-32. [In Search of... with Leonard Nimoy - S02E01 - "The Lost Dutchman Mine"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
+31. A&W Family Restaurants - Root Bear Glass (1981)
+32. Scooter Jousting Aka Vespa Joust (1957)
+33. [In Search of... with Leonard Nimoy - S02E01 - "The Lost Dutchman Mine"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
     - An investigation into why hundreds of gold hunters have died searching for a lost treasure ever since a German prospector wandered out of Arizona's Superstition Mountains in the 1860s. Is there really cursed gold hidden there, as Apache lore suggests?
-33. Madness 'Colgate' TV Advert '80s Classic
-34. Star Wars Cerveza Cristal 003
-35. Motobecane 50 Enduro
-36. [In Search of... with Leonard Nimoy - S02E02 - "The Man Who Would Not Die"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
+34. Madness 'Colgate' TV Advert '80s Classic
+35. Star Wars Cerveza Cristal 003
+36. Motobecane 50 Enduro
+37. [In Search of... with Leonard Nimoy - S02E02 - "The Man Who Would Not Die"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
     - The fascinating saga of the Count of St. Germain, who dazzled the courts of Europe for over 100 years, leading some to believe he was immortal. Elizabeth Clare Prophet describes the Church Universal and Triumphant's reverence for St. Germain.
-37. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-38. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-39. Undertale - Napping with Ghost (Outro & Raid out)
+38. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+39. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+40. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 ## Info about SecretTVBot
