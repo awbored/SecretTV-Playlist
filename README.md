@@ -10,7 +10,7 @@ SecretTV Playlist:
 6. Sony Walkman Feel The Music Commercial 1981
 7. [Eerie, Indiana - E08 - "The Dead Letter"](https://en.wikipedia.org/wiki/Eerie%2C_Indiana#Episodes)
    -  Marshall finds an old letter in the basement of the library -- and is haunted by a boy from the 1920s named Trip McConnell (Tobey Maguire) who won't leave until Marshall delivers the letter to his now-elderly sweetheart.
-Amazon - Bullshit or Not
+8. Amazon - Bullshit or Not
 8. [Unknown Powers with host Jack Palance (1978)](https://www.imdb.com/title/tt0249220/)
 9. Artie's Workout
 10. Akumaizer - He Dead
