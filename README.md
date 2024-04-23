@@ -1,17 +1,18 @@
-# 2024/04/16 - SecretTV Playlist
+# 2024/04/23 - SecretTV Playlist
 
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
 2. Amazon Women on the Moon CLIP - Short Attention Span
-3. The Legend of Beavis
+3. 900-Creep Phone
 4. ホ！ホ！ホ！
-5. [Amazing Stories - S01E21 - "Hell Toupée"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_1_(1985%E2%80%9386))
-   - A bald man (E. Hampton Beagle) gets a hairpiece that drives him to murder a lawyer (Tony Kientz).  Also starring Cindy Morgan and James Avery.
+5. [Amazing Stories - S01E22 - "The Doll"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_1_(1985%E2%80%9386))
+   - A lonely man (John Lithgow) buys a special handmade doll for his niece (Rain Phoenix). When the girl is less than thrilled by it, the doll leads him to an equally lonely teacher (Anne Helm).
 6. Sony Walkman Feel The Music Commercial 1981
-7. [Eerie, Indiana - E08 - "The Dead Letter"](https://en.wikipedia.org/wiki/Eerie%2C_Indiana#Episodes)
-   -  Marshall finds an old letter in the basement of the library -- and is haunted by a boy from the 1920s named Trip McConnell (Tobey Maguire) who won't leave until Marshall delivers the letter to his now-elderly sweetheart.
+7. [Eerie, Indiana - E09 - "Who's Who"](https://en.wikipedia.org/wiki/Eerie%2C_Indiana#Episodes)
+   - A young artist (Shanelle Workman) in a dysfunctional family of slovenly males begins to change her life for the better when she uses an Eerie brand pencil to draw her masterpieces — and ends up stealing Marshall's mother when she draws a picture of her and signs it.
 8. Amazon - Bullshit or Not
-8. [Unknown Powers with host Jack Palance (1978)](https://www.imdb.com/title/tt0249220/)
+8. [Nightmare Cafe - S01E01 - "Pilot"](https://en.wikipedia.org/wiki/Nightmare_Cafe#Episodes)
+   -  Frank Nolan and Fay Peronivic find themselves mysteriously drawn to an all-night café following a surreal brush with death.
 9. Artie's Workout
 10. Akumaizer - He Dead
 11. Sounds of the 70's
@@ -25,15 +26,15 @@ SecretTV Playlist:
 19. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
 20. Frank Zappa's Apostrophe Album commercial (1974)
 21. Chevy Astro Van commercial (1985)
-22. You Dont Know Jack Game Show (2001)
+22. UHF Clip - Emo
 23. Gonzo "Guilt"
 24. Masters Of The Universe - Hordak and the Evil Horde UK TV
 25. Can't Touch This
 26. Gianellis Italian Sausage more commercials Syracuse NY mid1980s480p
-27. [Ray Bradbury Theater - S06E07 - "The Dead Man"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
-    - Odd Martin (Frank Whitten) becomes friends with Miss Weldon (Louise Fletcher), who seems to be fine with the fact that he's dead.
-28. [Ray Bradbury Theater - S06E08 - "Sun and Shadow"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
-    -  A film crew descends on a Mexican town, but one of the locals (Gregory Sierra) has had enough with the interlopers who belittle their way of life.
+27. [Ray Bradbury Theater - S06E09 - "Silent Towns"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
+    - A man (John Glover) is stranded on Mars during an evacuation, and desperately seeks out someone, anyone, else who may still remain.
+28. [Ray Bradbury Theater - S06E10 - "Downwind From Gettysburg"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
+    - Walter Bynes (Howard Hesseman) has created a robotic duplicate of Abraham Lincoln. If one can believe it, the night of its public unveiling is marred by a killer named Booth (Robert Joy) who plans to assassinate the robot.
 29. A&W Family Restaurants - Root Bear Glass (1981)
 30. Scooter Jousting Aka Vespa Joust (1957)
 31. [In Search of... with Leonard Nimoy - S02E05 - "Astrology"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
