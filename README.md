@@ -1,18 +1,18 @@
-# 2024/04/23 - SecretTV Playlist
+# 2024/04/30 - SecretTV Playlist
 
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
 2. Amazon Women on the Moon CLIP - Short Attention Span
 3. 900-Creep Phone
 4. ホ！ホ！ホ！
-5. [Amazing Stories - S01E22 - "The Doll"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_1_(1985%E2%80%9386))
-   - A lonely man (John Lithgow) buys a special handmade doll for his niece (Rain Phoenix). When the girl is less than thrilled by it, the doll leads him to an equally lonely teacher (Anne Helm).
+5. [Amazing Stories - S01E23 - "One for the Books"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_1_(1985%E2%80%9386))
+   - An elderly janitor (Leo Penn) at a college can suddenly master any subject of the classroom he cleans. When this becomes public, he becomes subject to a heated debate among the professors (John Alvin, Gary Berghen, and Ben Kronen) about the ability of human intellect, proving to be more than he can handle.
 6. Sony Walkman Feel The Music Commercial 1981
-7. [Eerie, Indiana - E09 - "Who's Who"](https://en.wikipedia.org/wiki/Eerie%2C_Indiana#Episodes)
-   - A young artist (Shanelle Workman) in a dysfunctional family of slovenly males begins to change her life for the better when she uses an Eerie brand pencil to draw her masterpieces — and ends up stealing Marshall's mother when she draws a picture of her and signs it.
+7. [Eerie, Indiana - E10 - "The Lost Hour"](https://en.wikipedia.org/wiki/Eerie%2C_Indiana#Episodes)
+   - Marshall does not like the Indiana practice of ignoring Daylight Saving Time, and sets his clock back an hour anyway. When he wakes up the next day, he finds himself all alone in another dimension, save for an elderly milkman, a runaway teenage girl (Nikki Cox), and a group of garbage collectors who want the two of them dead.
 8. Amazon - Bullshit or Not
-8. [Nightmare Cafe - S01E01 - "Pilot"](https://en.wikipedia.org/wiki/Nightmare_Cafe#Episodes)
-   -  Frank Nolan and Fay Peronivic find themselves mysteriously drawn to an all-night café following a surreal brush with death.
+8. [Nightmare Cafe - S01E02 - "Dying Well is the Best Revenge"](https://en.wikipedia.org/wiki/Nightmare_Cafe#Episodes)
+   - When Frank gets involved with a married woman whose husband is very possessive, Fay worries for his safety.
 9. Artie's Workout
 10. Akumaizer - He Dead
 11. Sounds of the 70's
@@ -31,18 +31,18 @@ SecretTV Playlist:
 24. Masters Of The Universe - Hordak and the Evil Horde UK TV
 25. Can't Touch This
 26. Gianellis Italian Sausage more commercials Syracuse NY mid1980s480p
-27. [Ray Bradbury Theater - S06E09 - "Silent Towns"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
-    - A man (John Glover) is stranded on Mars during an evacuation, and desperately seeks out someone, anyone, else who may still remain.
-28. [Ray Bradbury Theater - S06E10 - "Downwind From Gettysburg"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
-    - Walter Bynes (Howard Hesseman) has created a robotic duplicate of Abraham Lincoln. If one can believe it, the night of its public unveiling is marred by a killer named Booth (Robert Joy) who plans to assassinate the robot.
+27. [Ray Bradbury Theater - S06E11 - "Some Live Like Lazarus"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
+    -  A couple who've had to endure the groom-to-be's domineering mother for 40 years are uncertain how to proceed onward when she finally dies.
+28. [Ray Bradbury Theater - S06E12 - "The Handler"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
+    -  A mortician (Michael J. Pollard) has made a career of punishing his enemies in his morbid workplace. His time, however, is up.
 29. A&W Family Restaurants - Root Bear Glass (1981)
 30. Scooter Jousting Aka Vespa Joust (1957)
-31. [In Search of... with Leonard Nimoy - S02E05 - "Astrology"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
-    - Can astronomical movements affect the affairs of man? Leonard Nimoy reviews the long history of astrology and looks at its attraction today.
+31. [In Search of... with Leonard Nimoy - S02E07 - "Hurricanes"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
+    - Take a close-up look at these violent killers that have taken the lives of hundreds of thousands of people. Can they be controlled or prevented?
 32. Madness 'Colgate' TV Advert '80s Classic
 33. Motobecane 50 Enduro
-34. [In Search of... with Leonard Nimoy - S02E06 - "Michael Rockefeller"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
-    - Did he drown or was he murdered? An investigation into the disappearance of Nelson Rockefeller's youngest son who vanished without a trace among some of the most primitive peoples in the world.
+34. [In Search of... with Leonard Nimoy - S02E08 - "The Ogopogo Monster"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
+    - This large beast, similar to Scotland's Loch Ness Monster, is claimed to have been seen by thousands of people in western Canada.
 35. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 36. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 37. Undertale - Napping with Ghost (Outro & Raid out)
