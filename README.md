@@ -1,4 +1,25 @@
-# 2024/04/30 - SecretTV Playlist
+# 2024/05/07 - SecretTV Playlist
+
+
+## 🚮🚮 Trash Talk Tuesday Raid Train 🚮🚮
+
+All Times PST
+- 11am [smoka_tidepod](https://twitch.tv/smoka_tidepod)
+- 12pm [ScarterberryArterberryNik](https://twitch.tv/ScarterberryArterberryNik)
+- 1pm [echolightwave_unspeakable](https://twitch.tv/echolightwave_unspeakable)
+- 2pm [travkam0](https://twitch.tv/travkam0)
+- 3pm [OnlineVCR](https://twitch.tv/OnlineVCR)
+- 4pm [awbored](https://twitch.tv/awbored)
+- 5pm [m0nst3r_m1k3](https://twitch.tv/m0nst3r_m1k3)
+- 6pm [jimmyfranks](https://twitch.tv/jimmyfranks)
+- 7pm [mefaun](https://twitch.tv/mefaun)
+- 8pm [tuxedo__flask](https://twitch.tv/tuxedo__flask)
+- 9pm [JeNeSaisCroix](https://twitch.tv/JeNeSaisCroix)
+- 10pm [Cry6a6yClu6](https://twitch.tv/Cry6a6yClu6)
+- 11pm [smoka_tidepod](https://twitch.tv/smoka_tidepod)
+
+
+## SecretTV Playlist
 
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
