@@ -22,7 +22,55 @@ All Times PST
 
 ### My trash playlist
 
-asdfasdf
+1. Rent-A-Friend - "The intro"
+2. TMNT on Oprah Winfrey - Intro
+3. Rent-A-Friend - "What's your name?"
+4. Stay Tuned - Max Hell
+5. Beyond Belief - Intro
+6. Jerry Springer - UFOs
+7. Amazon Women On The Moon - No Soul Simmons
+8. TMNT on Oprah Winfrey - Turtles in the street
+9. Stay Tuned - You Can't Win
+10. Jackass - Half pipe
+11. Crimewave - How to talk to girls
+12. TMNT on Oprah Winfrey - Turtles intros
+13. Beyond Belief - But if Dan was halucinating
+14. Mismatched Couples - Morning Routine
+15. Jackass - Preston Lacy and Wee Man 001
+16. Amazon Women On The Moon - Ray
+17. Hentai Kamen - "It's like kissing a rice cake"
+18. Beyond Belief - Pregnancy Tests
+19. TMNT on Oprah Winfrey - Coming out of our Shells
+20. Police Story - "Nice Parking Job"
+21. Stay Tuned - The Final Question
+22. Jackass - The good, the bad and the jackass
+23. Beyond Belief - Game
+24. TMNT on Oprah Winfrey - We're not going to fight
+25. Ninja Commandments - Traitor
+26. Jackass - Preston Lacy and Wee Man 002
+27. Stay Tuned - The Silencer of the Lambs
+28. The Jerry Springer Show - "I met her naked and I've been trying to keep her that way ever since"
+29. Battlefield Baseball - Jubeh!
+30. TMNT on Oprah Winfrey - A polyamphibious situation
+31. Mismatched Couples - Train station battle
+32. Home Alone - I made my parents disappear
+33. TMNT on Oprah Winfrey - Shredder shows up
+34. On The Air - "Bang Bang Bang"
+35. Beyond Belief - The Baby
+36. Battlefield Baseball - The team is back
+37. Police Story - The Car Scene
+38. Escape from New York - "Get a new one"
+39. Stay Tuned - Duanes Underworld
+40. Amazon Women On The Moon - Son of the Invisible Man
+41. The Jerry Springer Show - How to quickly get a divorce
+42. TMNT on Oprah Winfrey - Raph Walks Song
+43. Mismatched Couples - The Tennis scene
+44. TMNT on Oprah Winfrey - That Bon Jovi sounding one
+45. Ninja Commandments - You would tell me if I looked like a hot dog, right?
+46. Jackass - Preston Lacy and Wee Man 003
+47. Crimewave - What's so funny?
+48. Jackass - Skunk
+
 
 ## SecretTV Playlist
 
@@ -31,14 +79,14 @@ SecretTV Playlist:
 2. Amazon Women on the Moon CLIP - Short Attention Span
 3. 900-Creep Phone
 4. ホ！ホ！ホ！
-5. [Amazing Stories - S01E23 - "One for the Books"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_1_(1985%E2%80%9386))
-   - An elderly janitor (Leo Penn) at a college can suddenly master any subject of the classroom he cleans. When this becomes public, he becomes subject to a heated debate among the professors (John Alvin, Gary Berghen, and Ben Kronen) about the ability of human intellect, proving to be more than he can handle.
+5. [Amazing Stories - S01E24 - "Grandpa's Ghost"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_1_(1985%E2%80%9386))
+   - A man (Andrew McCarthy) isn't around to see the ghost of his grandfather (Ian Wolfe).  Also starring Herta Ware.
 6. Sony Walkman Feel The Music Commercial 1981
-7. [Eerie, Indiana - E10 - "The Lost Hour"](https://en.wikipedia.org/wiki/Eerie%2C_Indiana#Episodes)
-   - Marshall does not like the Indiana practice of ignoring Daylight Saving Time, and sets his clock back an hour anyway. When he wakes up the next day, he finds himself all alone in another dimension, save for an elderly milkman, a runaway teenage girl (Nikki Cox), and a group of garbage collectors who want the two of them dead.
+7. [Eerie, Indiana - E11 - "Marshall's Theory of Believability"](https://en.wikipedia.org/wiki/Eerie%2C_Indiana#Episodes)
+   - Nigel Zirchron (John Standing), a professor renowned as an authority on the supernatural, comes to Eerie to observe an extraterrestrial object he believes will land here. Marshall immediately sees an opportunity to blow the lid off the Eerie weirdness, but the professor may not really be all that he claims to be.
 8. Amazon - Bullshit or Not
-8. [Nightmare Cafe - S01E02 - "Dying Well is the Best Revenge"](https://en.wikipedia.org/wiki/Nightmare_Cafe#Episodes)
-   - When Frank gets involved with a married woman whose husband is very possessive, Fay worries for his safety.
+8. [Nightmare Cafe - S01E03 - "Fay & Ivy"](https://en.wikipedia.org/wiki/Nightmare_Cafe#Episodes)
+   - Fay's younger sister Ivy comes to the city to visit her, but trouble comes along in the form of her scummy boyfriend Jesse.
 9. Artie's Workout
 10. Akumaizer - He Dead
 11. Sounds of the 70's
@@ -57,18 +105,18 @@ SecretTV Playlist:
 24. Masters Of The Universe - Hordak and the Evil Horde UK TV
 25. Can't Touch This
 26. Gianellis Italian Sausage more commercials Syracuse NY mid1980s480p
-27. [Ray Bradbury Theater - S06E11 - "Some Live Like Lazarus"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
-    -  A couple who've had to endure the groom-to-be's domineering mother for 40 years are uncertain how to proceed onward when she finally dies.
-28. [Ray Bradbury Theater - S06E12 - "The Handler"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
-    -  A mortician (Michael J. Pollard) has made a career of punishing his enemies in his morbid workplace. His time, however, is up.
+27. [Ray Bradbury Theater - S06E13 - "Fee Fie Foe Fum"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
+    - A prankster goes too far in tormenting his wife's grandmother (Jean Stapleton). Featuring Lucy Lawless.
+28. [Ray Bradbury Theater - S06E14 - "Great Wide World Over There"](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
+    - Cora Gibbs (Tyne Daly) lives on an isolated farm, but thanks to her nephew (David Orth) finally has the chance to connect with the outside world.
 29. A&W Family Restaurants - Root Bear Glass (1981)
 30. Scooter Jousting Aka Vespa Joust (1957)
-31. [In Search of... with Leonard Nimoy - S02E07 - "Hurricanes"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
-    - Take a close-up look at these violent killers that have taken the lives of hundreds of thousands of people. Can they be controlled or prevented?
+31. [In Search of... with Leonard Nimoy - S02E11 - "Reincarnation"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
+    - Reviews case histories of people who claim to have lived in previous lifetimes.
 32. Madness 'Colgate' TV Advert '80s Classic
 33. Motobecane 50 Enduro
-34. [In Search of... with Leonard Nimoy - S02E08 - "The Ogopogo Monster"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
-    - This large beast, similar to Scotland's Loch Ness Monster, is claimed to have been seen by thousands of people in western Canada.
+34. [In Search of... with Leonard Nimoy - S02E12 - "The Shark Worshippers"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
+    - A trip to remote parts of the Pacific where man-eating sharks are considered gods. Adults pray to them and children swim unafraid among them.
 35. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 36. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 37. Undertale - Napping with Ghost (Outro & Raid out)
