@@ -1,5 +1,7 @@
 # 2024/05/07 - SecretTV Playlist
 
+Today at 4 pm I will be doing a 1 hour special for the Trash Talk Raid Train which was organized by [smoka_tidepod](https://twitch.tv/smoka_tidepod) & [OnlineVCR](https://twitch.tv/OnlineVCR).  I will be doing my 1 hour in the train and then come back at 6pm with the usual SecretTV.  If you are BORED of SecretTV then please, PLEASE find the current streamer in the train and see what TRASH they are doing.
+
 
 ## 🚮🚮 Trash Talk Tuesday Raid Train 🚮🚮
 
@@ -18,6 +20,9 @@ All Times PST
 - 10pm [Cry6a6yClu6](https://twitch.tv/Cry6a6yClu6)
 - 11pm [smoka_tidepod](https://twitch.tv/smoka_tidepod)
 
+### My trash playlist
+
+asdfasdf
 
 ## SecretTV Playlist
 
@@ -72,4 +77,3 @@ SecretTV Playlist:
 ## Info about SecretTVBot
 
 A public version of SecretTVBot is available on the [PyTwitchBot Repo](https://github.com/awbored/PyTwitchBot) which is written in Python.  The initial nuts and bolts of the programming was from a YouTube video which I have credited in the code.
-](https://i.ytimg.com/vi/KJi-ZKwVXVg/maxresdefault.jpg)
