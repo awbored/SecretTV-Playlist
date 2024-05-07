@@ -1,4 +1,4 @@
-# 2024/05/07 - SecretTV Playlist
+[# 2024/05/07 - SecretTV Playlist
 
 
 ## 🚮🚮 Trash Talk Tuesday Raid Train 🚮🚮
@@ -72,3 +72,4 @@ SecretTV Playlist:
 ## Info about SecretTVBot
 
 A public version of SecretTVBot is available on the [PyTwitchBot Repo](https://github.com/awbored/PyTwitchBot) which is written in Python.  The initial nuts and bolts of the programming was from a YouTube video which I have credited in the code.
+](https://i.ytimg.com/vi/KJi-ZKwVXVg/maxresdefault.jpg)
