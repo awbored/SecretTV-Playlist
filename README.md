@@ -1,4 +1,4 @@
-[# 2024/05/07 - SecretTV Playlist
+# 2024/05/07 - SecretTV Playlist
 
 
 ## 🚮🚮 Trash Talk Tuesday Raid Train 🚮🚮
