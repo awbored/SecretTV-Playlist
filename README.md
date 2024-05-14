@@ -2,7 +2,8 @@
 
 ## SecretTV Playlist
 
-SecretTV Playlist:
+Tonight we will be finishing Ray Bradbury Theater and starting Ralph Bakshi's Spicy City!
+
 1. Secret TV Roller Coaster (intro)
 2. Rent-A-Friend - what's your name
 3. Amazon Women On The Moon (1987) CLIP - No Soul Simmons
