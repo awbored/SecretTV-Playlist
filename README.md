@@ -2,8 +2,7 @@
 
 ## SecretTV Playlist
 
-Tonight we will be finishing Ray Bradbury Theater and starting Ralph Bakshi's Spicy City!
-
+SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
 2. Rent-A-Friend - what's your name
 3. Amazon Women On The Moon (1987) CLIP - No Soul Simmons
@@ -41,7 +40,7 @@ Tonight we will be finishing Ray Bradbury Theater and starting Ralph Bakshi's Sp
 32. Gianellis Italian Sausage more commercials Syracuse NY mid1980s480p
 33. [Ray Bradbury Theater - S06E15 - "The Tombstone" - The LAST episode of the series!](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
     - A woman (Shelly Duvall) thinks the hotel she and her husband are staying in is haunted. The tombstone in her room would surely give anyone cause for concern.
-34. A&W Family Restaurants - 
+34. A&W Root Beer World's Greatest Float Maker Snoopy Commercial (1988-89)
 35. [Spicy City - S01E01 - "Love Is a Download" (1997)](https://en.wikipedia.org/wiki/Spicy_City#Episodes)
     - A woman seeking escape from her abusive boyfriend finds true love in a virtual world with a washed-up veteran now working as a "virtual investigator" who attempts to save the woman from being stalked.
 36. Scooter Jousting Aka Vespa Joust (1957)
