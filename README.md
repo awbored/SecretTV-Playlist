@@ -1,4 +1,4 @@
-# 2024/05/14 - SecretTV Playlist
+# 2024/05/21 - SecretTV Playlist
 
 ## SecretTV Playlist
 
@@ -8,13 +8,13 @@ SecretTV Playlist:
 3. Amazon Women On The Moon (1987) CLIP - No Soul Simmons
 4. 900-Creep Phone
 5. ホ！ホ！ホ！
-6. [Amazing Stories - S02E01 - "The Wedding Ring" - Starting season 2!](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_2_(1986%E2%80%9387))
-   - A wax-museum dresser (Danny DeVito) takes a ring from a statue that turns his wife (Rhea Perlman) into a femme fatale.  Also starring Louis Giambalvo, David Byrd, and Tracey Walter.
+6. [Amazing Stories - S02E02 - "Miscalculation"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_2_(1986%E2%80%9387))
+   - While fooling around in chemistry class, a college student (Jon Cryer) spills a chemical element on a picture of a puppy, and brings it to life. He tries doing the same thing to his pornographic magazines, with both surprising... and horrifying results.  Also starring JoAnn Willette, J.J. Cohen, Lana Clarkson, Galyn Görg, and Rebecca Schaffer.
 7. Jackass - Preston and Wee Man 001
-8. [Eerie, Indiana - S01E12 - "Tornado Days"](https://en.wikipedia.org/wiki/Eerie%2C_Indiana#Episodes)
-   - As the tornado "Old Bob" approaches Eerie, the citizens prepare for their annual tornado day picnic to appease him. But Marshall and Simon insist on staying home, and a tornado-chasing meteorologist, Howard Raymer (Matt Frewer) crash-lands on their front lawn, looking to take down Old Bob himself.
-9. [Nightmare Cafe - S01E04 - "The Heart of the Mystery"](https://en.wikipedia.org/wiki/Nightmare_Cafe#Episodes)
-   - The café slows down time in order to enable a detective to find the answer to an unsolved murder before his death by gunshot.
+8. [Eerie, Indiana - S01E13 - "The Hole in the Head Gang"*](https://en.wikipedia.org/wiki/Eerie%2C_Indiana#Episodes)
+   - Marshall and Simon investigate an old mill rumored to be haunted, only to discover that it is a hoax set up by a mysterious young man who does not want anybody nosing around until they accidentally uncover a rusted gun, containing the ghost of Grungy Bill (Claude Akins), Eerie's worst (as in "most incompetent", not "most evil") bank robber.
+9. [Nightmare Cafe - S01E05 - "Sanctuary for a Child"](https://en.wikipedia.org/wiki/Nightmare_Cafe#Episodes)
+   - The café brings Frank back to his hometown, where he befriends a boy whose comatose body lies in the town hospital.
 10. Artie's Workout
 11. Jackass - Preston and Wee Man 002
 12. Dr Bolls Marmalade
@@ -38,20 +38,18 @@ SecretTV Playlist:
 30. Masters Of The Universe - Hordak and the Evil Horde UK TV
 31. Cats PSA Your Childs Life is in Your Hands Child Car Seats US Dept Of Transportation
 32. Gianellis Italian Sausage more commercials Syracuse NY mid1980s480p
-33. [Ray Bradbury Theater - S06E15 - "The Tombstone" - The LAST episode of the series!](https://en.wikipedia.org/wiki/List_of_Ray_Bradbury_Theater_episodes#Season_6_(1992))
-    - A woman (Shelly Duvall) thinks the hotel she and her husband are staying in is haunted. The tombstone in her room would surely give anyone cause for concern.
-34. A&W Root Beer World's Greatest Float Maker Snoopy Commercial (1988-89)
-35. [Spicy City - S01E01 - "Love Is a Download" (1997)](https://en.wikipedia.org/wiki/Spicy_City#Episodes)
-    - A woman seeking escape from her abusive boyfriend finds true love in a virtual world with a washed-up veteran now working as a "virtual investigator" who attempts to save the woman from being stalked.
-36. Scooter Jousting Aka Vespa Joust (1957)
-37. Jackass - Preston and Wee Man 003
+33. A&W Root Beer World's Greatest Float Maker Snoopy Commercial (1988-89)
+34. [Spicy City - S01E02 - "Mano's Hands" (1997)](https://en.wikipedia.org/wiki/Spicy_City#Episodes)
+    - A strange tale of a bongo player's hands coming to life and terrorizing civilians after mob members chop them off.
+35. Scooter Jousting Aka Vespa Joust (1957)
+36. Jackass - Preston and Wee Man 003
+37. Phoone Tawlk (1987)
 38. Alien 18-inch Kenner Action Figure Commercial
-39. [In Search of... with Leonard Nimoy - S02E13 - "Anastasia"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
-    - An examination of evidence that the youngest daughter of Russia's Tsar Nicholas II Aleksandrovich Romanov survived the family executions, and settled in Charlottesville, Virginia.  NOTE: This was produced years before Anna Anderson Manahan, as she in time came to be known, was proven, through DNA evidence which could not have been forensically examined at the time, to have been an impostor.
-40. Madness 'Colgate' TV Advert '80s Classic
-41. Motobecane 50 Enduro
-42. [In Search of... with Leonard Nimoy - S02E14 - "The Secrets of Life"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
-    - Explores the possibility that human life can be created in laboratories engaged in DNA research.
+39. Madness 'Colgate' TV Advert '80s Classic
+40. Motobecane 50 Enduro
+41. HBO Feature Presentation (1983)
+42. [The Outer Limits S01E01 - "The Sandkings"](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_1_(1995))
+    - Dr. Simon Kress's (Beau Bridges) research for the government on Martian life is aborted because one of his specimens almost escapes into the natural environment. However, Kress does not agree with the abandonment of the project and decides to continue his experiments in his barn.
 43. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 44. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 45. Undertale - Napping with Ghost (Outro & Raid out)
