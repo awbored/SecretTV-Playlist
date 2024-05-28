@@ -4,7 +4,8 @@
 
 News: 
 - There MAY be no music stream on Thursday, May 30th.  I will be working late that evening and it might go into the usual streaming time.
-- Upcoming IRL shows (https://scontent.cdninstagram.com/v/t51.29350-15/446331612_1159525991903381_6726030760002495651_n.heic?stp=dst-jpg_e35&efg=eyJ2ZW5jb2RlX3RhZyI6ImltYWdlX3VybGdlbi4xNDQweDEwODAuc2RyLmYyOTM1MCJ9&_nc_ht=scontent.cdninstagram.com&_nc_cat=105&_nc_ohc=qRTP5GVRilYQ7kNvgGQhQHW&edm=APs17CUBAAAA&ccb=7-5&ig_cache_key=MzM3NzQ0NTE0OTQ1NzYyNzA5MA%3D%3D.2-ccb7-5&oh=00_AYBC6hFOq8lqYn28TSthCrfcmCIN68rN8sr4gkFrXQLJ5Q&oe=6658E31A&_nc_sid=10d13b)
+- Upcoming IRL shows 
+[Flier](https://scontent.cdninstagram.com/v/t51.29350-15/446331612_1159525991903381_6726030760002495651_n.heic?stp=dst-jpg_e35&efg=eyJ2ZW5jb2RlX3RhZyI6ImltYWdlX3VybGdlbi4xNDQweDEwODAuc2RyLmYyOTM1MCJ9&_nc_ht=scontent.cdninstagram.com&_nc_cat=105&_nc_ohc=qRTP5GVRilYQ7kNvgGQhQHW&edm=APs17CUBAAAA&ccb=7-5&ig_cache_key=MzM3NzQ0NTE0OTQ1NzYyNzA5MA%3D%3D.2-ccb7-5&oh=00_AYBC6hFOq8lqYn28TSthCrfcmCIN68rN8sr4gkFrXQLJ5Q&oe=6658E31A&_nc_sid=10d13b)
 
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
