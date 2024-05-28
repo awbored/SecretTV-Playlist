@@ -64,14 +64,14 @@ SecretTV Playlist:
 A public version of SecretTVBot is available on the [PyTwitchBot Repo](https://github.com/awbored/PyTwitchBot) which is written in Python.  The initial nuts and bolts of the programming was from a YouTube video which I have credited in the code.
 
 Here is a list of the main commands:
-- !help/!commands: this message
-- !about: info on todays show!
-- !so [username]: gives shoutout
-- !events: events
-- !lurk: lurk
-- !web: web info
-- !discord: discord server
-- !raid [name]: welcomes raiders
-- !hb [name]: gives a happy birthday
-- !santa [blank/person]: Santa gifts
-- !secret: shhhhutup
+- *!help/!commands*: this message
+- *!about*: info on todays show!
+- *!so [username]*: gives shoutout
+- *!events*: events
+- *!lurk*: lurk
+- *!web*: web info
+- *!discord*: discord server
+- *!raid [name]*: welcomes raiders
+- *!hb [name]*: gives a happy birthday
+- *!santa [blank/person]*: Santa gifts
+- *!secret*: shhhhutup
