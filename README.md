@@ -8,6 +8,7 @@ News:
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
 2. Rent-A-Friend - what's your name
+3. Ernie Kovaks Nairobi Trio
 3. Amazon Women On The Moon (1987) CLIP - No Soul Simmons
 4. 900-Creep Phone
 5. ホ！ホ！ホ！
