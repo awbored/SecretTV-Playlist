@@ -1,9 +1,10 @@
-# 2024/05/28 - SecretTV Playlist
+# 2024/06/04 - SecretTV Playlist
 
 ## SecretTV Playlist
 
 News: 
-- There MAY be no music stream on Thursday, May 30th.  I will be working late that evening and it might go into the usual streaming time.
+- Next Music Stream: 6/6/2024
+- No Music Stream: 6/13/2024 - I will be at an IRL gig doing my theremin shit
 
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
@@ -12,13 +13,13 @@ SecretTV Playlist:
 3. Amazon Women On The Moon (1987) CLIP - No Soul Simmons
 4. 900-Creep Phone
 5. ホ！ホ！ホ！
-6. [Amazing Stories - S02E03 - "Magic Saturday"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_2_(1986%E2%80%9387))
-   - 10-year-old Mark (Taliesin Jaffe) adores his grandfather "Stormin' Norman" (M. Emmet Walsh), who tells him stories and plays baseball with him every Saturday. When "Norman" soon falls ill, Mark uses a magic spell that allows them to swap bodies so the old man can treat him to one last ball game.  Also starring Jeff Cohen.
+6. [Amazing Stories - S02E04 - "Welcome to My Nightmare"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_2_(1986%E2%80%9387))
+   - Teenage horror film buff Harry (David Hollander) has become the subject of concern from his family (Sharon Spelman, Robert L. Gibson, Christina Applegate, and Parker Jacobs) for how out of touch with reality he is, even declining a date offer from a new girl in town (Robyn Lively). Angry that the real world is so dull, Harry wishes he was in the movies, resulting in him being transported to the set of Psycho, where the blood-curdling nature of a certain scene leaves him scrambling to get back to the real world.
 7. Jackass - Preston and Wee Man 001
-8. [Eerie, Indiana - S01E14 - "Mr. Chaney"](https://en.wikipedia.org/wiki/Eerie%2C_Indiana#Episodes)
-   - Marshall is chosen to be the Eerie and Mr. Chaney (Stephen Root) as the "Harvest King" and must go face the Eerie wolf in the forest. The trouble is that none of the previous harvest kings have ever returned.
-9. [Nightmare Cafe - S01E06 - "Aliens Ate My Lunch"](https://en.wikipedia.org/wiki/Nightmare_Cafe#Episodes)
-   - When a desperate tabloid writer concocts a story about a small-town alien invasion, his simple lie snowballs out of his control.
+8. [Eerie, Indiana - S01E15 - "No Brain, No Pain"](https://en.wikipedia.org/wiki/Eerie%2C_Indiana#Episodes)
+   - Marshall and Simon help out a homeless man (Paul Sand) after witnessing him being attacked by a woman (Anita Morris) with a ray gun, which proves difficult when all the homeless man can do is speak gibberish and build bizarre contraptions. Meanwhile, Dash X helps the mysterious woman find the homeless man.
+9. [Monsters - S01E01 - "The Feverman"](https://en.wikipedia.org/wiki/List_of_Monsters_episodes)
+   - When a doctor (Patrick Garner) is unable to heal a man's sick daughter (Michele Gornick), the desperate father, Mason (John C. Vennema), goes to Boyle (David McCallum), a "Feverman"; one of many mysterious healers who literally fight the illness by summoning a physical manifestation of it from within the patient. The doctor, James, angry at Mason's belief in superstition, tries to expose Boyle as a fraud. In doing so, not only does James learn the truth, but he also learns that there is a price to pay for faith.
 10. Artie's Workout
 11. Jackass - Preston and Wee Man 002
 12. Dr Bolls Marmalade
@@ -29,6 +30,7 @@ SecretTV Playlist:
 17. The LaserTour from Perceptronics (1982)
 18. Lenny Dee Melodies of Love
 19. Jerry Springer UFOs (1996)
+19. Sifl & Olly - S02E01
 20. Punk CD
 21. Escape from New York clip - Get a new one
 22. Katy Perry Slimed
@@ -43,18 +45,18 @@ SecretTV Playlist:
 31. Cats PSA Your Childs Life is in Your Hands Child Car Seats US Dept Of Transportation
 32. Gianellis Italian Sausage more commercials Syracuse NY mid1980s480p
 33. A&W Root Beer World's Greatest Float Maker Snoopy Commercial (1988-89)
-34. [Spicy City - S01E03 - "Tears of a Clone" (1997)](https://en.wikipedia.org/wiki/Spicy_City#Episodes)
-    - A detective goes on a search to find a rich man's daughter, only to return with her clone instead.
+34. [Spicy City - S01E04 - "An Eye for an Eye" (1997)](https://en.wikipedia.org/wiki/Spicy_City#Episodes)
+    -  A ruthless female cop named Margo, known for her striking blue eyes and penchant for abusing her power, plots to blackmail Spicy City's near-sighted judge, and her partner, Ernie, must choose between staying out of it and stopping Margo's reign of terror once and for all.
 35. Scooter Jousting Aka Vespa Joust (1957)
 36. Jackass - Preston and Wee Man 003
 37. Phoone Tawlk (1987)
 38. Alien 18-inch Kenner Action Figure Commercial
-42. [The Outer Limits S01E02 - "Valerie 23"](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_1_(1995))
-    - Valerie 23 (Sofia Shinas) is the latest development from the Innobotics Corporation, and she is designed to be an attractive, helpful and perfect companion for a disabled man. While being an ideal test candidate, due to his condition and qualifications, Frank Hellner (William Sadler) is reluctant to take part, and he initially wants nothing to do with Valerie...
+42. [The Outer Limits S01E03 - "Blood Brothers"](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_1_(1995))
+    - Spencer Deighton spends his time working on cures for serious illnesses, while his brother Michael pushes for the development of more lucrative drugs. Spencer begins a romantic relationship with a reporter, Tricia (Kate Vernon). Spencer makes a breakthrough and finds what appears to be a wonder drug, Deighton C, capable of curing virtually any disease...
 39. Madness 'Colgate' TV Advert '80s Classic
 40. Motobecane 50 Enduro
-43. [In Search Of... With Leonard Nimoy - S02E15 - "Immortality"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
-    - Looks at scientific discoveries of new methods of prolonging human life, such as cryonics, which can suspend life for centuries.
+43. [In Search Of... With Leonard Nimoy - S02E16 - "The Swamp Monster"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
+    - An investigation of reports that a huge man-like beast is living in the swamps of Louisiana's bayou.
 43. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 44. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 45. Undertale - Napping with Ghost (Outro & Raid out)
