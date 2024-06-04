@@ -4,7 +4,7 @@
 
 News: 
 - Next Music Stream: 6/6/2024
-- No Music Stream: 6/13/2024 - I will be at an IRL gig doing my theremin shit
+- No Music Stream: 6/13/2024 - I will be at an IRL gig doing my theremin shit.  More details: [web](https://andrewway.net)
 
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
