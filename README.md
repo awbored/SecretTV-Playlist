@@ -31,7 +31,7 @@ SecretTV Playlist:
 17. The LaserTour from Perceptronics (1982)
 18. Lenny Dee Melodies of Love
 19. Jerry Springer UFOs (1996)
-19. Sifl & Olly - S02E02
+19. Jacques Cousteau - S01E09 - The Night of the Squid (Happy birthday [@DjSemicolon](https://www.twitch.tv/DjSemicolon) & [Jacques Cousteau](https://en.wikipedia.org/wiki/Jacques_Cousteau)!!)
 20. Punk CD
 21. Escape from New York clip - Get a new one
 22. Katy Perry Slimed
