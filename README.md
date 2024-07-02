@@ -62,13 +62,12 @@ SecretTV Playlist:
     - Despite a breakthrough in his virtual reality research, Jack (Josh Brolin) finally loses grant funding. Bill Trenton (David Warner), the rich owner of a research company, hires him to a lucrative contract with a well-equipped laboratory to continue his work. Trenton tries the virtual reality suit, and he "jumps" a few hours into the future...
 50. Madness 'Colgate' TV Advert '80s Classic
 51. Motobecane 50 Enduro
-52. Cop Rock - Pilot (secret surprise)
-53. [In Search Of... With Leonard Nimoy - S02E20 - "Haunted Castles"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
+52. [In Search Of... With Leonard Nimoy - S02E20 - "Haunted Castles"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
     - Probe into one of the world's most haunted places.
 
-54. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-55. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-56. Undertale - Napping with Ghost (Outro & Raid out)
+53. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+54. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+55. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 ## Info about SecretTVBot
