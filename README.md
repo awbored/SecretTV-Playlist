@@ -3,7 +3,7 @@
 ## SecretTV Playlist
 
 News: 
-- No music stream on Thursday, July 4th.  I'm going to have a burger and a beer.
+- No music stream on Thursday, July 4th.  I'm going to have a burger and a beer and keep the kitty safe from fireworks.
 - My theremin performance at the Crocker Arts Museum is now on [YouTube](https://youtu.be/ptiVbGhveMU?si=gCHdL-9A_WpCVhUW)
 
 SecretTV Playlist:
