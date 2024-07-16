@@ -1,4 +1,4 @@
-# 2024/07/09 - SecretTV Playlist
+# 2024/07/16 - SecretTV Playlist
 
 ## SecretTV Playlist
 
@@ -12,14 +12,14 @@ SecretTV Playlist:
 3. Ernie Kovaks Nairobi Trio
 4. Amazon Women On The Moon (1987) CLIP - No Soul Simmons
 5. ホ！ホ！ホ！
-6. [Amazing Stories - S02E09 - "Thanksgiving"](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_2_(1986%E2%80%9387))
-   - On Thanksgiving, the mean-spirited Calvin (David Carradine) and his stepdaughter Dora (Kyra Sedgwick) find treasure in a dry well which is believed to be inhabited by a race of "hole people", which trade this treasure in exchange for things, specifically food.
+6. [Amazing Stories - S02E10 - "The Pumpkin Competition" (1986)](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_2_(1986%E2%80%9387))
+   - The rich and miserly Elma Dinnock (Polly Holliday) gains a secret from mysterious botanist Bertram Carver (J. A. Preston) to win the Yarborough Country pumpkin-growing contest against her rival Mildred (June Lockhart) after 22 years of losing to her.  Also starring Ritch Brinkley and Joshua Rudoy.
 7. Jackass - Johnny Knoxville Half Pipe
-8. [Eerie Indiana: The Other Dimension - S01E01 - "Switching Channels" (1998)](https://en.wikipedia.org/wiki/Eerie,_Indiana:_The_Other_Dimension)
-   - Mitchell Taylor and his best friend, Stanley live in Eerie, Indiana, the normal place on Earth. However, the town soon begins to live up to its name when two similar-looking boys (Marshall and Simon from the first series) begin communicating with them through the Taylor's new satellite TV installation, which is actually a mad cable installer's attempt at opening portals to strange, new dimensions whose residents begin appearing in Eerie.
+8. [Eerie Indiana: The Other Dimension - S01E02 - "The Goody-Two Shoes People" (1998)](https://en.wikipedia.org/wiki/Eerie,_Indiana:_The_Other_Dimension#Episodes)
+   -  Mitchell and Stanley join Eerie's "Junior Executives Club" in order to fund their research on the weird, unexplained phenomena in their town...and learn that their teacher, Mr. Stepford, is abducting the members and turning them into robot clones so parents can finally have perfect kids.
 9. DiC
-10. [Monsters - S01E06 - "Where's the Rest of Me?" (1988)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes)
-    - Mad scientist Willard Wingite (Meat Loaf) owns a plantation on a small Caribbean island. He's developed a serum that keeps dead bodies alive, and is currently harvesting the body of a dead guerrilla leader named Adam (Frank Tarsia) for his clients...
+10. [Monsters - S01E07 - "The Legacy" (1988)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes)
+    - Failed horror writer Dale (David Brisbin) buys the home of Fulton Pierce, a deceased horror movie actor, and moves in with his shrewish wife Debbie (Lara Harris). Dale discovers Pierce's makeup kit, and to gain inspiration, begins putting on some of the makeup to act out his favorite horror roles. Dale gets a lot more than he bargained for the more time he keeps the makeup on.  Based on a story by Robert Bloch.
 11. Artie's Workout
 12. Jackass - Preston and Wee Man 002
 13. Dr Bolls Marmalade
@@ -34,7 +34,7 @@ SecretTV Playlist:
 22. Jackass - Preston and Wee Man 001
 23. Jerry Springer UFOs (1996)
 24. John Keister - Seattle TV Show Review - Heavy Metal
-25. Sifl and Olly - S02E05
+25. Sifl and Olly - S02E06
 26. Warning Signs of Satanic Behavior
 27. Punk CD
 28. Escape from New York clip - Get a new one
@@ -52,18 +52,18 @@ SecretTV Playlist:
 40. Gianellis Italian Sausage more commercials Syracuse NY mid1980s480p
 41. A&W Root Beer World's Greatest Float Maker Snoopy Commercial (1988-89)
 42. 3-2-1 Contact "Noisy/Quiet Music" with Suzanne Ciani (1980)
-43. [Mann & Machine - S01E03 - "No Pain, No Gain"](https://en.wikipedia.org/wiki/Mann_%26_Machine#Episodes)
-    - Eve revives an ex-cop, who wants to die, by getting him to help investigate murders committed for body parts.
+43. [Mann & Machine - S01E04 - "Water, Water Everywhere" (1992)](https://en.wikipedia.org/wiki/Mann_%26_Machine#Episodes)
+    - Mann's neighbor, a food reporter, investigates the murder of another reporter who broke the story about a contaminated reservoir.
 44. Scooter Jousting Aka Vespa Joust (1957)
 45. Jackass - Preston and Wee Man 003
 46. Phoone Tawlk (1987)
 47. Alien 18-inch Kenner Action Figure Commercial
-48. [The Outer Limits S01E08 - "Living Hell"](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_1_(1995))
-    - Brought to the hospital with a gunshot wound to the head, Ben Kohler's only chance, according to Dr. Jennifer Martinez, is her experimental brain–computer interface Cerebral Chip (the CCI2). A month later Kohler experiences a horrible vision. In the vision, he is chasing a woman in the forest and reaches out to attack her.
+48. [The Outer Limits S01E09 - "Corner of the Eye" (1995)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_1_(1995))
+    - A priest begins to see horrific demonic creatures among the ordinary population. They are aliens that have the powers to alter their appearance and to heal the sick.
 49. Madness 'Colgate' TV Advert '80s Classic
 50. Motobecane 50 Enduro
-51. [In Search Of... With Leonard Nimoy - S02E21 - "Butch Cassidy"](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
-    - Examines the possibility that Butch Cassidy was not killed in Bolivia along with the Sundance Kid, but actually lived a full life and died peacefully in 1937.
+51. [In Search Of... With Leonard Nimoy - S02E22 - "Deadly Ants" (1977)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
+    - A look at the billions of fire ants that march across the southern United States and the failure so far of all attempts to stop them.
 52. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 53. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 54. Undertale - Napping with Ghost (Outro & Raid out)
