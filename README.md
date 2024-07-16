@@ -3,8 +3,9 @@
 ## SecretTV Playlist
 
 News: 
-- Next music stream will be on Thursday, July 11th.  Hmm 7/11 themed???
+- Next music stream will be on Thursday, July 18th.
 - My theremin performance at the Crocker Arts Museum is now on [YouTube](https://youtu.be/ptiVbGhveMU?si=gCHdL-9A_WpCVhUW)
+- Next IRL gigs will be: 7/21 - The Sacramento Audio Waffle; 7/25 - Sacramento House Show
 
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
