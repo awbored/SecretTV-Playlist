@@ -1,73 +1,64 @@
-# 2024/07/23 - SecretTV Playlist
+# 2024/07/30 - SecretTV Playlist
 
 ## SecretTV Playlist
 
 News: 
-- 07/25 - Thursday, July 25th, I will be performing at a House Show in Sacramento so no Twitch stream
 - 08/01 - Next music stream will be on Thursday, August 1st at 7:00pm Pacific.  
 - My theremin performance at the Crocker Arts Museum is now on [YouTube](https://youtu.be/ptiVbGhveMU?si=gCHdL-9A_WpCVhUW)
+- My performance from 7/25 will be on YouTube SOON-ish
 
 SecretTV Playlist:
 1. Secret TV Roller Coaster (intro)
-2. Rent-A-Friend - The Intro
-3. Ernie Kovaks Nairobi Trio
-4. Amazon Women On The Moon (1987) CLIP - No Soul Simmons
-5. ホ！ホ！ホ！
-6. [Amazing Stories - S02E11 - "What If...?" (1986)](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_2_(1986%E2%80%9387))
-   - Little Jonah Kelley (Jake Hart) starts seeing things randomly disappearing to the point where the house becomes sterile, and worries why his status-seeking parents Pamela and Raymond (Clare Kirkconnell and Tom McConnell) are more concerned with their social lives than they are with his problems. An explanation for this phenomenon is only revealed when he meets an expectant mother at a toy store.  Also starring Dennis Haskins and Michael Horse.
-7. Jackass - Johnny Knoxville Half Pipe
-8. [Eerie Indiana: The Other Dimension - S01E03 - "Standard Deviation" (1998)](https://en.wikipedia.org/wiki/Eerie,_Indiana:_The_Other_Dimension#Episodes)
-   - A woman from the Mad Bureau of Statistics cites Mitchell's family for not being "normal" and fixes to make them and Eerie, Indiana the most normal family and town in America...unless Mitchell and Stanley can reunite her with her Latino lover/tango partner who was abducted by aliens years ago.
+2. Transformers G1 Optimus Prime and Megatron Commercial (1986)
+3. Amazon - Bullshit or Not
+4. Dragon Ball - Rohto Children's Eye Drops (1986)
+5. Phoone Tawlk (1987)
+6. [Amazing Stories - S02E12 - "The Eternal Mind" (1986)](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_2_(1986%E2%80%9387))
+   - Dying scientist John Baldwin (Jeffrey Jones) becomes the first human subject of a test that merges man and machine. The results of this action, unfortunately, bring John unexpected heartaches.  Also starring Katherine Borowitz and Robert Axelrod.
+7. Mr Gatti's Pizza (1985)
+8. [Eerie Indiana: The Other Dimension - S01E04 - "Time Flies" (1998)](https://en.wikipedia.org/wiki/Eerie,_Indiana:_The_Other_Dimension#Episodes)
+   -  Mr. Tempis, a slick-talking salesman (Tony Rosato) and his scientist partner, Mr. Fugit, sell Mr. Crawford a coffee machine that causes time in Eerie to speed up...and Mr. Tempis to steal the unused time and sell it to others.
 9. DiC
-10. [Monsters - S01E08 - "Sleeping Dragon" (1988)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes)
-    - Merrick (Kin Shriner), a young man who believes in conspiracy theories and myths, brings a gigantic, prehistoric, egg-like artifact to Jeffrey (Russell Johnson), a skeptical professor. Merrick's girlfriend and Jeffrey's daughter Lisa (Beth Toussaint) begs her father to give Merrick a chance. He does so, but the two men unleash an ancient reptilian creature, which looks for victims to kill and eat, and leaves the trio scrambling to keep it from escaping.
+10. [Monsters - S01E09 - "Pool Sharks" (1988)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes)
+    - Natasha (Rebecca Kyler Downs) is a beautiful vampire who, accompanied by her mortician friend Lester, loves to play pool in run-down bars. She routinely challenges pool sharks to a game against her, and kills and devours them should they lose. Her latest potential victim is Gabe, (Tom Mason) who's mourning his dead brother. As Gabe's brother was one of her previous victims, Natasha is unaware of who is actually hunting who.
 11. Artie's Workout
-12. Jackass - Preston and Wee Man 002
-13. Dr Bolls Marmalade
-14. Commodore 64
-15. Technics Cassette Tape Commercial, Japan (1970's)
-16. 5 Neat Guys
-17. Transformers G1 Optimus Prime & Megatron (1980's)
-18. Gary Numan - Metal
-19. Monster Ballads The Ultimate Set
-20. The LaserTour from Perceptronics (1982)
-21. Lenny Dee Melodies of Love
-22. Jackass - Preston and Wee Man 001
-23. Jerry Springer UFOs (1996)
-24. John Keister - Seattle TV Show Review - Heavy Metal
-25. Sifl and Olly - S02E07
-26. Warning Signs of Satanic Behavior
-27. Punk CD
-28. Escape from New York clip - Get a new one
-29. Got Milk - Ants (2001)
-30. Katy Perry Slimed
-31. Nestlé Alpine White Sweet Dreams Commercial 1986 - Maxfield Parrish
-32. Jennifer Connelly Technics Commercial (1986)
-33. Chevy Astro Van commercial (1985)
-34. Australian Garfield Phone Ad (1987)
-35. Home Alone (1990) - I made my parents disappear
-36. Balzac Commercial
-37. Gonzo "Guilt"
-38. Masters Of The Universe - Hordak and the Evil Horde UK TV
-39. Cats PSA Your Childs Life is in Your Hands Child Car Seats US Dept Of Transportation
-40. Gianellis Italian Sausage more commercials Syracuse NY mid1980s480p
-41. A&W Root Beer World's Greatest Float Maker Snoopy Commercial (1988-89)
-42. 3-2-1 Contact "Noisy/Quiet Music" with Suzanne Ciani (1980)
-43. [Mann & Machine - S01E05 - "Torch Song" (1992)](https://en.wikipedia.org/wiki/Mann_%26_Machine#Episodes)
-    - Eve's capacity for emotion expands when she makes friends with a singer fearful of a music executive suspected of killing her sister.
-44. Scooter Jousting Aka Vespa Joust (1957)
-45. Jackass - Preston and Wee Man 003
-46. Phoone Tawlk (1987)
-47. Alien 18-inch Kenner Action Figure Commercial
-48. [The Outer Limits S01E10 - "Under the Bed" (1995)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_1_(1995))
-    - When a little boy is abducted and eaten, the only witness, his sister, claims that someone or something under the bed took him.
-49. Madness 'Colgate' TV Advert '80s Classic
-50. Motobecane 50 Enduro
-51. [In Search Of... With Leonard Nimoy - S02E23 - "The Coming Ice Age" (1977)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
-    - An inquiry into whether the dramatic weather changes in America's northern states mean that a new ice age is approaching.
-52. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-53. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-54. Undertale - Napping with Ghost (Outro & Raid out)
+12. Big Bill's Hell
+13. Time Life Sounds of the 70s Disco Collection
+14. Sky High Solar Powered Radio Helmet
+15. What a Cartoon Show - INTRO
+16. [What a Cartoon Show - Tumbleweed Tex in School Daze (1996)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
+17. UHF - Wheel of Fish
+18. Harvey Leeds - State of Shock
+19. Multiple SIDosis
+20. Lenny Dee Melodies of Love (1985)
+21. Talking Kermits - Once In A Lifetime
+22. Gonzo "Guilt"
+23. Time Life Books Mysteries of the Unknown
+24. Got Milk - Ants
+25. Sifl and Olly - S02E08
+26. Pete n Pete - Greetings Photo Gal
+27. AT&T You Will Commercials
+28. Zoobooks
+29. Beavis & Butthead - Star Trek
+30. Young MC - Taco Bell
+31. Nestle Alpine White
+32. Middle School Weezer Cover Goes Horribly Wrong
+33. The Count Censored
+34. SNL - Cluckin Chicken
+35. My Name Is The Dog
+36. Encyclopedia Brittanica Annoying Know It All (1990)
+37. [Mann & Machine - S01E06 - "Mann's Fate" (1992)](https://en.wikipedia.org/wiki/Mann_%26_Machine#Episodes)
+    - Mann moves in with Eve after a psychotic bomber destroys his home, seeking the person who arrested him.
+38. JENNIFER CONNELLY Japanese Technics commercial (1986)
+39. [The Outer Limits S01E11 - "Dark Matters" (1995)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_1_(1995))
+    - A commercial transport vessel on a routine mission is suddenly forced out of hyperspace into a black and starless void.
+40. LA Gear
+41. Punk
+42. [In Search Of... With Leonard Nimoy - S02E24 - "The Garden of Eden" (1978)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
+    - Using the Old Testament as a road map, researchers attempt to trace the possible site of the original Garden to India, China, and an island off the coast of Saudi Arabia.
+43. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+44. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+45. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 ## Info about SecretTVBot
