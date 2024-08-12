@@ -3,7 +3,6 @@
 ## SecretTV Playlist
 
 News: 
-- 08/08 - Next music stream will be on Thursday, August 8th at 7:00pm Pacific.  Maybe 808 inspired (I have no idea what to do yet)
 - 08/13 - No SecretTV on August 13th.  I will have a work call that will take the whole evening, sorry!
 - My theremin performance at the Crocker Arts Museum is now on [YouTube](https://youtu.be/ptiVbGhveMU?si=gCHdL-9A_WpCVhUW)
 - My performance from 7/25 will be on YouTube SOON-ish
