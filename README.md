@@ -1,9 +1,9 @@
-# 2024/08/06 - SecretTV Playlist
+# 2024/08/20 - SecretTV Playlist
 
 ## SecretTV Playlist
 
 News: 
-- 08/13 - No SecretTV on August 13th.  I will have a work call that will take the whole evening, sorry!
+- 08/22 - Next music stream will be on Thursday, August 22nd at 7:00pm Pacific.  
 - My theremin performance at the Crocker Arts Museum is now on [YouTube](https://youtu.be/ptiVbGhveMU?si=gCHdL-9A_WpCVhUW)
 - My performance from 7/25 will be on YouTube SOON-ish
 
@@ -13,20 +13,20 @@ SecretTV Playlist:
 3. Amazon - Bullshit or Not
 4. Dragon Ball - Rohto Children's Eye Drops (1986)
 5. Phoone Tawlk (1987)
-6. [Amazing Stories - S02E13 - "Lane Change" (1986)](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_2_(1986%E2%80%9387))
-   - Charlene Benton (Kathy Baker), driving on a stormy night while approaching divorce, gets glimpses of her past through the windshield after she picks up a stranded woman (Priscilla Pointer) along the way.
+6. [Amazing Stories - S02E13 - "Blue Man Down" (1987)](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_2_(1986%E2%80%9387))
+   - Duncan Moore (Max Gail), a police officer who lost his young partner DeSoto (Chris Nash) in a supermarket shootout and remains surrounded by the guilt, regains his confidence with the help of his new partner Patty O'Neil (Kate McNeil), a woman who appears invisible to everyone else.  Also starring Sal Viscuso and Richard Epcar.
 7. Mr Gatti's Pizza (1985)
-8. [Eerie Indiana: The Other Dimension - S01E05 - "The Phantom" (1998)](https://en.wikipedia.org/wiki/Eerie,_Indiana:_The_Other_Dimension#Episodes)
-   - Mitchell and Stanley go ghost-hunting for a school phantom, only to discover that the "phantom" is actually a boy named Oliver whose lack of self-confidence is turning him invisible and if Mitchell and Stanley can't create a bold, new personality for Oliver, he'll end up in a dimension for lost and forgotten things.
+8. [Eerie Indiana: The Other Dimension - S01E06 - "The Young And The Twitchy" (1998)](https://en.wikipedia.org/wiki/Eerie,_Indiana:_The_Other_Dimension#Episodes)
+   - When dashing soap opera star, Stag Carnalli, visits Eerie and stays with Mitchell's family, his presence turns all life in Eerie into a torrid daytime drama, filled with love triangles, improbable plot twists, and bad organ music. Can Mitchell save his family before he gets caught up in the drama?
 9. DiC
-10. [Monsters - S01E10 - "Pillow Talk" (1988)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes)
-    - Famous author Miles Magnus (John Diehl) brings home a buxom blonde date, who gets ready for sex with him. But before she can do so, his bed grows a mouth and eats her...
+10. [Monsters - S01E11 - "Rouse Him Not" (1988)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes)
+    - Artist Linda McGuire (Laraine Newman) lives alone in an old house in the country, where she's harassed by local peeping tom Ritzen (Terrence Evans). She's visited by author John Thunston (Alex Cord), who is conducting research on a warlock who used to live in the home. As it turns out, the house and Thunston are both more than they seem, especially since the warlock's demonic familiar is still imprisoned in the basement.  Based on a story by Manly Wade Wellman.
 11. Artie's Workout
 12. Big Bill's Hell
 13. Time Life Sounds of the 70s Disco Collection
 14. Sky High Solar Powered Radio Helmet
 15. What a Cartoon Show - INTRO
-16. [What a Cartoon Show - Buy One Get One Free (1996)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
+16. [What a Cartoon Show - "What's Goin' on Back There!?" (1997)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
 17. UHF - Wheel of Fish
 18. Harvey Leeds - State of Shock
 19. Multiple SIDosis
@@ -35,7 +35,7 @@ SecretTV Playlist:
 22. Gonzo "Guilt"
 23. Time Life Books Mysteries of the Unknown
 24. Got Milk - Ants
-25. Sifl and Olly - S02E09
+25. Sifl and Olly - S02E10
 26. Pete n Pete - Greetings Photo Gal
 27. AT&T You Will Commercials
 28. Zoobooks
@@ -47,15 +47,15 @@ SecretTV Playlist:
 34. SNL - Cluckin Chicken
 35. My Name Is The Dog
 36. Encyclopedia Brittanica Annoying Know It All (1990)
-37. [Mann & Machine - S01E07 - "Truth or Consequences" (1992)](https://en.wikipedia.org/wiki/Mann_%26_Machine#Episodes)
-    - Eve learns more about humans while guarding a young girl and her mother, who is to testify against her accountant husband's mobster employers.
+37. [Mann & Machine - S01E08 - "Billion Dollar Baby" (1992)](https://en.wikipedia.org/wiki/Mann_%26_Machine#Episodes)
+    - A genetically-engineered baby is sought by baby brokers who will kill to find the child. The baby's presence prompts parental instincts in Eve.
 38. JENNIFER CONNELLY Japanese Technics commercial (1986)
-39. [The Outer Limits S01E12 - "The Conversion" (1995)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_1_(1995))
-    - Henry Marshall participates in a real estate scam and is caught. After a long stretch in prison, he still has not learned to value people more than money.
+39. [The Outer Limits S01E13 - "Quality of Mercy" (1995)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_1_(1995))
+    - In the future, humanity is losing an interstellar war against a technologically-advanced race. Major John Skokes, a prisoner of the aliens, is thrown into a cell, where he encounters another captive - a young female cadet. She reveals that their captors are apparently grafting alien skin onto her body a bit at a time. Skokes tries to escape from their cell through an overhead vent, but his attempt fails at first when he is attacked by something lurking in the vents. Skokes makes a second attempt to escape through the air ducts, but an alien guard severs his hand before Skokes is knocked out. As their situation appears bleak, Skokes attempts to raise his fellow prisoner's spirits by telling her of a top secret plan to launch a sneak attack that might turn the tide of the war. Suddenly, a guard enters the cell, and she willingly leaves, revealing that she is really an alien spy who is actually being slowly transformed back into her original form.  Note: The story concludes in episode 18 of season 2, "The Light Brigade".
 40. LA Gear
 41. Punk
-42. [In Search Of... With Leonard Nimoy - S03E01 - "UFO Captives" (1978)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_2_(1977%E2%80%931978))
-    - Meet people who believe they have been held captive aboard alien spacecraft - close encounters of the fourth kind.
+42. [In Search Of... With Leonard Nimoy - S03E02 - "Tornadoes" (1978)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
+    - A terrifying look at one of nature's deadliest forces. Tornadoes can swallow up buildings and people without a trace - can they be stopped?
 43. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 44. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 45. Undertale - Napping with Ghost (Outro & Raid out)
