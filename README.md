@@ -11,7 +11,7 @@
 
 ## SecretTV Playlist
 
-🎂🎂 Happy Birthday [Paul Reubens (Pee Wee)](https://en.wikipedia.org/wiki/Paul_Reubens)!!  We miss you dearly!! 🎂🎂
+🎂🎂 Happy Birthday [Paul Reubens (Pee-Wee Herman)](https://en.wikipedia.org/wiki/Paul_Reubens)!!  We miss you dearly!! 🎂🎂
 
 1. Secret TV Roller Coaster (intro)
 2. Transformers G1 Optimus Prime and Megatron Commercial (1986)
