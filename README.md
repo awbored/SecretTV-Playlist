@@ -3,7 +3,10 @@
 ## SecretTV Playlist
 
 News: 
-- 08/22 - Next music stream will be on Thursday, August 22nd at 7:00pm Pacific.  
+- I will be taking a break from Music Thursdays until mid-October
+  - I am planning a west coast tour that will be starting the first week of October.  Tour dates and announcements will happen as soon as we have them solidified.
+  - During this time, instead of doing music shows on Twitch I should be working on tour planning and sets
+  - I also may do a few music streams in September depending how I feel about the planning schedules 
 - My theremin performance at the Crocker Arts Museum is now on [YouTube](https://youtu.be/ptiVbGhveMU?si=gCHdL-9A_WpCVhUW)
 - My performance from 7/25 will be on YouTube SOON-ish
 
