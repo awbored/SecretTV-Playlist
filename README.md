@@ -1,8 +1,7 @@
-# 2024/08/20 - SecretTV Playlist
+# 2024/08/27 - SecretTV Playlist
 
-## SecretTV Playlist
+## General News
 
-News: 
 - I will be taking a break from Music Thursdays until mid-October
   - I am planning a west coast tour that will be starting the first week of October.  Tour dates and announcements will happen as soon as we have them solidified.
   - During this time, instead of doing music shows on Twitch I should be working on tour planning and sets
@@ -10,7 +9,10 @@ News:
 - My theremin performance at the Crocker Arts Museum is now on [YouTube](https://youtu.be/ptiVbGhveMU?si=gCHdL-9A_WpCVhUW)
 - My performance from 7/25 will be on YouTube SOON-ish
 
-SecretTV Playlist:
+## SecretTV Playlist
+
+🎂🎂 Happy Birthday [Paul Reubens (Pee Wee)](https://en.wikipedia.org/wiki/Paul_Reubens)!!  We miss you dearly!! 🎂🎂
+
 1. Secret TV Roller Coaster (intro)
 2. Transformers G1 Optimus Prime and Megatron Commercial (1986)
 3. Amazon - Bullshit or Not
