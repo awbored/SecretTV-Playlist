@@ -9,7 +9,7 @@
 - My theremin performance at the Crocker Arts Museum is now on [YouTube](https://youtu.be/ptiVbGhveMU?si=gCHdL-9A_WpCVhUW)
 - My performance from 7/25 will be on YouTube SOON-ish
 
-## SecretTV Playlist
+## SecretTV Playlist - OOPS!!  All Pee-wee!!
 
 🎂🎂 Happy Birthday [Paul Reubens (Pee-wee Herman)](https://en.wikipedia.org/wiki/Paul_Reubens)!!  We miss you dearly!! 🎂🎂
 
