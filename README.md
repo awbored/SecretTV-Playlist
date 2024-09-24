@@ -11,7 +11,8 @@
 
 ## SecretTV Playlist
 
-🎂🎂🎂 Happy Birthday Jim Henson!! 🎂🎂🎂
+🎂🎂🎂 Happy Birthday [Jim Henson](https://en.wikipedia.org/wiki/Jim_Henson)!! 🎂🎂🎂
+
 Born September 24, 1936
 
 1. Secret TV Roller Coaster (intro)
