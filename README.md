@@ -1,4 +1,4 @@
-# 2024/09/17 - SecretTV Playlist
+# 2024/09/24 - SecretTV Playlist
 
 ## General News
 
@@ -11,46 +11,36 @@
 
 ## SecretTV Playlist
 
+🎂🎂🎂 Happy Birthday Jim Henson!! 🎂🎂🎂
+Born September 24, 1936
+
 1. Secret TV Roller Coaster (intro)
-2. SNL - James Brown Celebrity Hot Tub Party
-3. [Amazing Stories - S02E15 - "Family Dog" (1987)](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_2_(1986%E2%80%9387))
-   - The show's only animated episode, serving as the backdoor pilot to the cartoon series of the same name. A dog (voiced by Brad Bird) goes through life with his new family (voiced by Stan Freberg, Annie Potts, Scott Menville, and Brooke Ashley) in three separate vingettes.  Also starring the voices of Jack Angel, Marshall Efron, Mercedes McCambridge, and Stanley Ralph Ross.
-4. UHF - Spatula City
-5. [Eerie Indiana: The Other Dimension - S01E08 - "The Newsroom" (1998)](https://en.wikipedia.org/wiki/Eerie,_Indiana:_The_Other_Dimension#Episodes)
-   - Mitchell and Stanley go down to Eerie's local newspaper office to complain about false advertisement when they receive a tin-can telephone in the mail, and discover that the editor created a typewriter that makes bad news come true...including news of an impending nuclear plant disaster.
-6. DiC
-7. [Monsters - S01E13 - "Glim-Glim" (1989)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes)
-    - An alien named Glim-Glim (performed by Ken Walker) crash-lands in a small Midwestern town just before Christmas, accidentally unleashing a virus that wipes out the town's populace in a single weekend. The only survivors of the virus, local bully Carl (Brian Fitzpatrick), an unnamed male high school teacher (Mark Hofmaier), and the teacher's daughter Amy (Jenna von Oÿ) take refuge in the basement of the local library, while Glim-Glim scours the library books to learn why these three humans are resistant to the virus (which is harmless to aliens). Glim-Glim has also established a forcefield around the town to keep the virus from spreading further, but the forcefield's battery is dying. To prevent the human race's extinction, Glim-Glim must make contact with the trusting Amy and find a cure (by analyzing her blood), before the angry adults find a way to wreak vengeance on him.
-8. Artie's Workout
-9. 5 Neat Guys - Neatest Hits
-10. 900 Freak Phone
-11. Big Bill Hell's
-12. Full House Alternate Intro
-13. What a Cartoon Show - INTRO
-14. [What a Cartoon Show - "Bloo's Gang in Bow Wow Bucaneer" (Mike Milo and Harry McLaughlin) (1996)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
-15. Chevy Astro Van Commercial (1985)
-16. Balzac Commercial
-17. Gary Numan - Metal Sync' with Judo
-18. Chipmunk Punk Commercial
-19. Beavis and Butthead - Anarchy
-20. Sifl and Olly - S02E12
-21. Punk CD
-23. ホ！ホ！ホ！
-24. Lenny Dee Melodies of Love Album Commercial
-26. The Count Censored
-27. Amazon Women On The Moon - Son of the Invisible Man (1987)
-28. [Journey to the Unknown - S01E01 - Eve (1968)](https://en.wikipedia.org/wiki/Journey_to_the_Unknown#Episodes)
-    - A shy sales clerk (Dennis Waterman) falls in love with a mannequin (Carol Lynley) in his department store. Based on the short story "Special Delivery" by John Collier.
-29. A&W Family Restaurants - Root Bear Glass (1981)
-30. [The Outer Limits S01E15 - "The Voyage Home" (1995)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_1_(1995))
-    - The Mars III crewed expedition to Mars is in its 315th and final day when the crew discover a cave containing strange alien writing and a capsule. The capsule suddenly opens and the crew is knocked unconscious.
-31. Scooter Jousting
-32. 3-2-1 Contact "Noisy Quiet: Music with Suzanne Ciani" (1980)
-33. [In Search Of... With Leonard Nimoy - S03E04 - "Water Seekers" (1978)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
-    - Scientists take another look at the divining rod. Does water emit valuable signals?
-34. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-35. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-36. Undertale - Napping with Ghost (Outro & Raid out)
+2. Inchworm
+3. Cloverland Cow
+4. [Jim Henson Hour - S01E01 - Outer Space & The Heartless Giant (1989)](https://en.wikipedia.org/wiki/The_Jim_Henson_Hour#Episodes)
+5. Flying A Robot
+6. Aurora Bath Tissue Commercial
+7. [Jim Henson Hour - S01E02 - Oceans & Lighthouse Island (1989)](https://en.wikipedia.org/wiki/The_Jim_Henson_Hour#Episodes)
+8. Big Bird Watchers
+9. FHA Commercial
+10. Kerns Bread
+11. Mirinda Craver
+12. Business, Business (The Ed Sullivan Show)
+13. [The Muppets Show - S02E09 - Madeline Kahn (1977)](https://en.wikipedia.org/wiki/List_of_The_Muppet_Show_episodes#Season_2_(1977%E2%80%9378))
+14. La Choy Chow Mein - "Sad Bride"
+15. La Choy Chow Mein - "Wifeless Husband"
+16. [The Muppets Show - S02E11 - Dom DeLuise (1977)](https://en.wikipedia.org/wiki/List_of_The_Muppet_Show_episodes#Season_2_(1977%E2%80%9378))
+17. Red Diamond Coffee Commercials
+18. I've Grown Accustomed to Your Face
+19. [The Muppets Show - S02E12 - Bernadette Peters (1977)](https://en.wikipedia.org/wiki/List_of_The_Muppet_Show_episodes#Season_2_(1977%E2%80%9378))
+20. Mahna Mahna
+21. Royal Crown Cola Commercials
+22. Monster Trash Can Dance
+23. [The Muppets Show - S02E23 - John Cleese (1977)](https://en.wikipedia.org/wiki/List_of_The_Muppet_Show_episodes#Season_2_(1977%E2%80%9378))
+24. Jim Henson Commercial Outtakes
+25. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+26. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+27. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 ## Info about SecretTVBot
