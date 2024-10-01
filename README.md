@@ -1,47 +1,26 @@
-# 2024/09/24 - SecretTV Playlist
+# 2024/10/01 - SecretTV Playlist
 
 ## General News
 
-- I will be taking a break from Music Thursdays until mid-October
-  - I am planning a west coast tour that will be starting the first week of October.  Tour dates and announcements will happen as soon as we have them solidified.
-  - During this time, instead of doing music shows on Twitch I should be working on tour planning, music, travel plans, promo material, etc
-  - I also may do a few music streams in September depending how I feel about the planning schedules
+- [WEST COAST TOUR DETAILS](https://andrewway.net/wp/2024-fall-tour-with-tv-ma/) - October 4th through October 21st!
+- 10/1 will be my last stream until (at least) 10/21 which is when I will be done with tour.  If we're playing in your neighborhood, please come by and say hi.
 - My theremin performance at the Crocker Arts Museum is now on [YouTube](https://youtu.be/ptiVbGhveMU?si=gCHdL-9A_WpCVhUW)
-- My performance from 7/25 will be on YouTube SOON-ish
+- My performance from 7/25 will be on YouTube SOON-ish (lol I still haven't edited this one)
 
 ## SecretTV Playlist
 
-🎂🎂🎂 Happy Birthday [Jim Henson](https://en.wikipedia.org/wiki/Jim_Henson)!! 🎂🎂🎂
-
-Born September 24, 1936
-
 1. Secret TV Roller Coaster (intro)
-2. Inchworm
-3. Cloverland Cow
-4. [Jim Henson Hour - S01E01 - Outer Space & The Heartless Giant (1989)](https://en.wikipedia.org/wiki/The_Jim_Henson_Hour#Episodes)
-5. Flying A Robot
-6. Aurora Bath Tissue Commercial
-7. [Jim Henson Hour - S01E02 - Oceans & Lighthouse Island (1989)](https://en.wikipedia.org/wiki/The_Jim_Henson_Hour#Episodes)
-8. Big Bird Watchers
-9. FHA Commercial
-10. Kerns Bread
-11. Mirinda Craver
-12. Business, Business (The Ed Sullivan Show)
-13. [The Muppets Show - S02E09 - Madeline Kahn (1977)](https://en.wikipedia.org/wiki/List_of_The_Muppet_Show_episodes#Season_2_(1977%E2%80%9378))
-14. La Choy Chow Mein - "Sad Bride"
-15. La Choy Chow Mein - "Wifeless Husband"
-16. [The Muppets Show - S02E11 - Dom DeLuise (1977)](https://en.wikipedia.org/wiki/List_of_The_Muppet_Show_episodes#Season_2_(1977%E2%80%9378))
-17. Red Diamond Coffee Commercials
-18. I've Grown Accustomed to Your Face
-19. [The Muppets Show - S02E12 - Bernadette Peters (1977)](https://en.wikipedia.org/wiki/List_of_The_Muppet_Show_episodes#Season_2_(1977%E2%80%9378))
-20. Mahna Mahna
-21. Royal Crown Cola Commercials
-22. Monster Trash Can Dance
-23. [The Muppets Show - S02E23 - John Cleese (1977)](https://en.wikipedia.org/wiki/List_of_The_Muppet_Show_episodes#Season_2_(1977%E2%80%9378))
-24. Jim Henson Commercial Outtakes
-25. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-26. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-27. Undertale - Napping with Ghost (Outro & Raid out)
+2. Halloween Commericals CUT 1
+3. Kids Time Halloween Special
+4. The Garfield's Halloween Adventure (1985)
+5. It's the Great Pumpkin, Charlie Brown (1966)
+6. Halloween Commercials CUT 2
+7. The Simpsons Treehouse of Horror 1 (1990 Broadcast)
+8. Halloween Commercials CUT 3
+9. The Simpsons Treehouse of Horror Marathon 2-5 (1994 Broadcast)
+10. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+11. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+12. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 ## Info about SecretTVBot
