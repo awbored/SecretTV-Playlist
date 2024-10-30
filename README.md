@@ -6,7 +6,8 @@
 
 ## SecretTV Playlist
 
-The Secret Spoopy Marathon 2024 is on!  This playlist is 40+ hours and will go until roughly November 1st.  Enjoy!
+🎃🎃🎃 The Secret Spoopy Marathon 2024 is on! 🎃🎃🎃 
+This playlist is 40+ hours and will go until roughly November 1st.  Enjoy!
 
 1. Halloween Commercial Block - CUT-1
 2. Burger King - Simpsons Spooky Light-Ups (2001)
