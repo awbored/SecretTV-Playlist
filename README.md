@@ -14,6 +14,7 @@ The Secret Spoopy Marathon 2024 is on!  This playlist is 40+ hours and will go u
 4. Disneys Halloween Treat
 5. Memories with Lawrence Welk - Halloween Party - WFLD-TV (Complete Broadcast 10-31-1982) 
 6. Pee Wee Herman And Daves Haunted Mansion Letterman
+23. Knott's Halloween Haunt Hanging (1990 By Rock Garcia)
 7. Grinch Halloween (ABC Primetime 10-30-80)
 8. Family Matters - S08E07 Stevil
 9. Family Matters - Stevil II - This Time He's Not Alone - (10-31-97)
@@ -30,7 +31,6 @@ The Secret Spoopy Marathon 2024 is on!  This playlist is 40+ hours and will go u
 20. Nick At Nite Halloween Munster Mash - (10-xx-95)
 21. Disney's Halloween Haunts - (1990)
 22. Chris LaMartina Halloween Remix
-23. Knott's Halloween Haunt Hanging (1990 By Rock Garcia)
 24. Anglia_Halloween_'82_[societyglitch.com]_[dpad]
 25. Bram Stoker's Dracula 1974 Trailer
 26. Halloween Commercial Block - CUT-5
