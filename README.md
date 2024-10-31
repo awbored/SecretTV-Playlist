@@ -48,8 +48,8 @@ This playlist is 40+ hours and will go until roughly November 1st.  Enjoy!
 37. Halloween Commercial Block - CUT-7
 38. Elvira Mistress of the Dark - NBC (7-05-91)
 39. Halloween 3 Hosted by Joe Bob Briggs
-40. The Shining D1
-41. The Shining D2
+40. The Shining D1 (ABC 1985)
+41. The Shining D2 (ABC 1985)
 42. Nightmare on Elm Street - WFLD32 Chicago (1987)
 43. Nightmare On Elm Street 4 - The Dream Master (TV23 KTMA - September 13, 1991)
 44. Halloween Commercial Block - CUT-8
