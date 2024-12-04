@@ -23,15 +23,12 @@
 10. 900 Freak Phone
 11. Big Bill Hell's
 12. Full House Alternate Intro
-13. What a Cartoon Show - INTRO
-14. [What a Cartoon Show - Dino in "The Great Egg-Scape", Dir: Hanna Barbara (1997)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
 15. Chevy Astro Van Commercial (1985)
 16. Balzac Commercial
 17. Gary Numan - Metal Sync' with Judo
 18. Chipmunk Punk Commercial
 19. Beavis and Butthead - Anarchy
 20. The Greatest Wrestling Promo Ever
-20. Sifl and Olly - S02E15
 21. Punk CD
 23. ホ！ホ！ホ！
 24. Lenny Dee Melodies of Love Album Commercial
