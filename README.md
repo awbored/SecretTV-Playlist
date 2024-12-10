@@ -1,4 +1,4 @@
-# 2024/12/03 - SecretTV Playlist
+# 2024/12/10 - SecretTV Playlist
 
 ## General News
 
@@ -6,42 +6,44 @@
 
 ## SecretTV Playlist
 
-0. Pre-Show: [Mid-Valley Mutations with Austin Rich: TV-MA & Andrew Wayne Is Broadcasting, LIVE!](https://wfmu.org/playlists/shows/145444)
-   - TV-MA and Andrew Wayne are live on WFMU with music and interviews!  [Austin Rich](https://austinrich.org/) was our gracious host.
+
 1. Secret TV Roller Coaster (intro)
 2. SNL - James Brown Celebrity Hot Tub Party
-3. [Amazing Stories - S02E19 - "Without Diana" (1987)](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_2_(1986%E2%80%9387))
-   - George Willoughby (Billy "Green" Bush) and his dying wife Kathryn (Dianne Hull) are comforted by Diana (Gennie James), the daughter they had lost in the woods 40 years ago, and never stopped believing would appear one last time before they passed on.
+3. [Amazing Stories - S02E20 - "Moving Day" (1987)](https://en.wikipedia.org/wiki/Amazing_Stories_(1985_TV_series)#Season_2_(1986%E2%80%9387))
+   - Alan Webster (Stephen Geoffreys) learns that he and his parents, Mara and Val (Mary Ellen Trainor and Dennis Lipscomb) are moving. Alan is understandably upset with this major change, but is surprised to learn that they intend to move to the planet Alturus, 85 billion miles from Earth.
 4. UHF - Spatula City
-5. [Eerie Indiana: The Other Dimension - S01E11 - "Nightmare On Eerie Street" (1998)](https://en.wikipedia.org/wiki/Eerie,_Indiana:_The_Other_Dimension#Episodes)
-   - The legendary Sandman (depicted as a late-night radio DJ) can't sleep, so he decides to keep all of Eerie awake with nightmares.
+5. [Eerie Indiana: The Other Dimension - S01E12 - "Mr. Lucky" (1998)](https://en.wikipedia.org/wiki/Eerie,_Indiana:_The_Other_Dimension#Episodes)
+   - Mitchell gains continuous good luck after breaking a wishbone with an Irish man at the World O'Stuff, but when the winning streak causes his family to hate him, Mitchell sues the stranger who cursed him.
 6. DiC
-7. [Monsters - S01E16 - "Their Divided Self", Dir: Frank De Palma, Writer: Michael Bishop (1989)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes)
-   - James (David L. Lander) and Robert Self (Keith MacKechnie) are conjoined twins who have achieved resounding success as a comedic duo. In recent years however, they have put their tours on hold due to their relationship becoming strained. Sick of the brothers' constant fighting with one another, James' girlfriend Elegy (Karen Haber) brings in noted psychiatrist Dr. Blackman (Rich Hall) to help them get along. The Self Brothers do indeed end up getting along in the end, but only after they discover that they have a common enemy in Dr. Blackman.
+7. [Monsters - S01E17 - "Taps", Dir: David Misch, Writer: Larry Charles and David Misch (1989)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes)
+   - Dancer Suzy St. Claire (Mary Jo Keenan) has aspirations to travel to Hollywood and become a movie star. Her agent Sam (Dan Frazer) advises her to dump her partner and boss Gary Gregory (Neal Jones), who refuses to release her contract and wants to dance with her forever. Instead, she poisons Gary and cuts up his body with an electric knife. A year passes, and Suzy does become a movie star. Returning to New York City, she's housed in her old apartment, where she is menaced by Gary's animate severed leg, her former partner's desire to dance forever keeping it alive.
 8. Artie's Workout
 9. 5 Neat Guys - Neatest Hits
-10. 900 Freak Phone
-11. Big Bill Hell's
-12. Full House Alternate Intro
-15. Chevy Astro Van Commercial (1985)
-16. Balzac Commercial
-17. Gary Numan - Metal Sync' with Judo
-18. Chipmunk Punk Commercial
-19. Beavis and Butthead - Anarchy
-20. The Greatest Wrestling Promo Ever
-21. Punk CD
-23. ホ！ホ！ホ！
-24. Lenny Dee Melodies of Love Album Commercial
-26. The Count Censored
-28. A&W Family Restaurants - Root Bear Glass (1981)
-29. [The Outer Limits S01E18 - "I, Robot" (1995)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_1_(1995))
-    - Dr. Link is working on the central memory of a robot, Adam, when it suddenly activates and attacks him. A lab assistant enters the room in time to see Adam smashing up the laboratory before crashing through a window and escaping, while Dr. Link is left dead. Later, a police officer finds Adam in a back alley, and Adam, apparently remembering nothing of the incident, asks the officer to contact Dr. Link. Adam is taken to a cell and preparations are made to disassemble it. Mina, Dr. Link's daughter, contacts a lawyer, Thurman Cutler (Leonard Nimoy), who pushes for a murder trial, insisting that Adam is his client and not simply a machine. A court hearing begins, and the prosecutor pushes for dismissal of the case on the grounds that Adam is just a machine. Cutler argues that, although Adam is clearly not human, it possesses intelligence and will, and, on that basis, deserves a trial...
-30. Scooter Jousting
-31. [In Search Of... With Leonard Nimoy - S03E07 - "Siberian Fireball" (1978)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
-    - Considers the possibility that the unexplained and catastrophic explosion in Siberia in 1908 was an atomic blast occurring 37 years before the development of the A-bomb.
-32. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-33. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-34. Undertale - Napping with Ghost (Outro & Raid out)
+10. Big Bill Hell's
+11. Classic Christmas Commercials CUT 1
+12. What a Cartoon Show - INTRO
+13. [What a Cartoon Show - Dino in "The Great Egg-Scape", Dir: Hanna Barbara (1997)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
+14. Chipmunk Punk Commercial
+15. Beavis and Butthead - Anarchy
+16. The Greatest Wrestling Promo Ever
+17. Sifl and Olly - S02E15
+18. Punk CD
+19. Classic Christmas Commercials CUT 2
+20. Lenny Dee Melodies of Love Album Commercial
+21. Emmet Otter's Jug Band Christmas Outtakes
+22. [Journey to the Unknown - S01E04 - "Miss Belle" (1968)](https://en.wikipedia.org/wiki/Journey_to_the_Unknown#Episodes)
+    - An embittered spinster (Barbara Jefford) has turned against all men, and is raising her niece Roberta as a proper young lady—in spite of the fact that Roberta is actually Robert, a boy. A drifter (George Maharis) starts to work for Miss Belle... Based on the short story "Miss Gentilbelle" by Charles Beaumont.
+23. A&W Family Restaurants - Root Bear Glass (1981)
+24. Classic Christmas Commercials CUT 3
+25. [The Outer Limits S01E19 - "If These Walls Could Talk" (1995)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_1_(1995))
+    - A woman (Alberta Watson) asks physicist Dr. Leviticus Mitchell (Dwight Schultz) to investigate a haunted house where her son (Ryan Reynolds) and his girlfriend were last seen.
+26. Scooter Jousting
+27. [In Search Of... With Leonard Nimoy - S03E08 - "The Great Lakes Triangle" (1978)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
+    - The Great Lakes Triangle: Investigates efforts by scientists and psychics to discover the mysterious forces around the Great Lakes that have caused more air and sea disasters than the Bermuda Triangle.
+28. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+29. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+30. Undertale - Napping with Ghost (Outro & Raid out)
+
 
 
 ## Info about SecretTVBot
