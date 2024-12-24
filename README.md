@@ -10,7 +10,7 @@ Friends and family streams:
 - [CivicTV Coast to Coast - December Holiday Special - 12/25 at NOON Pacific](https://www.twitch.tv/civictv83) - featuring MANY GUESTS (including me)
 - [Holiday Special's Yule Log - December 24th ~ 25th all day](https://www.twitch.tv/djholidayspecial)
 
-🎄📺🎄 SecretTV Secret Christmas Marathon 
+🎄📺🎄 SecretTV Secret Christmas Marathon 🎄📺🎄
 
 1. A Christmas Story (TNT)
 2. CBS Seasons Greetings (1966)
