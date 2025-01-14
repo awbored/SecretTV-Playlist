@@ -1,4 +1,4 @@
-# 2025/01/07 - SecretTV Playlist
+# 2025/01/14 - SecretTV Playlist
 
 ## General News
 
@@ -8,42 +8,42 @@
 
 1. Secret TV Roller Coaster (intro)
 2. Nameneko Japanese Punk Rock Kittens 2
-3. [Eerie Indiana: The Other Dimension - S01E14 - "I'm Okay, You're Really Weird" (1998)](https://en.wikipedia.org/wiki/Eerie,_Indiana:_The_Other_Dimension#Episodes)
-   - Eerie's resident psychotherapist, Ziggy Lloyd, is turning all of Eerie's adults into immature, impulsive goofballs with his latest book and aromatherapy sessions, and the only way to stop Eerie from becoming more of a circus sideshow than it already is, is to find Ziggy's mother.
-4. UHF - Spatula City
-5. [Eerie Indiana: The Other Dimension - S01E15 - "The Jackalope" (1998)](https://en.wikipedia.org/wiki/Eerie,_Indiana:_The_Other_Dimension#Episodes)
-   - Mitchell and Stanley fight to protect a mythical animal from being hunted to extinction by a ruthless poacher.
+3. UHF - Spatula City
+5. Manimal - PILOT - (1983)
+   - When a group of thieves devise a plan to hijack a shipment of nerve gas, detective Brooke Mackenzie must stop them. She teams up with Dr. Jonathan Chase, a man that knows the secrets that divide man and animal and who is trained in an African technique that allows him to transform into different animals.
 6. DiC
-7. [Monsters - S01E19 - "Rain Dance", Dir: Richard Friedman, Writer: Michael Kimball (1989)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes)
-   - Tom Solo (Kent McCord) is a greedy archaeologist who has a bored, beautiful wife named Vanessa (Teri Copley) and makes his living by stealing Native American artifacts to sell. An old Native American woman (Betty Carvalho) brings Tom and Vanessa a statue of a Native American rain god, telling them that the "rain dance" would make it rain so long as a sacrifice was made to the rain god...
+7. [Monsters - S01E20 - "Cocoon", Dir: John Gray, Writer: Edithe Swensen (1989)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes)
+   - Police detective Richard (Billy Drago) and his psychic girlfriend Sarah (Silvana Gallardo) investigate a wealthy, mysterious woman (Kim Johnston Ulrich, credited as "Kim Ulrich") who survives a violent traffic collision, but lacks any forms of ID. When she is interviewed by Sarah, the woman manages to give Sarah flashes of numerous moments of her past, revealing that she is actually a human-looking creature...
 8. Artie's Workout
 9. 5 Neat Guys - Neatest Hits
 10. Big Bill Hell's
 11. Nameneko Japanese Punk Rock Kittens 4
 12. Microman - Micro Change - MC21 RadiCasse Robo
 13. What a Cartoon Show - INTRO
-14. [What a Cartoon Show - Godfrey and Zeke in "Lost Control", Dir: Jason Butler Rote and Zac Moncrief (1996)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
-    - A giraffe named Godfrey (voiced by Tom Kenny) and a pig named Zeek (voiced by Rob Paulsen) leave their zoo home and visit a residual water treatment plant to retrieve the remote control they accidentally flushed down the toilet.
+14. [What a Cartoon Show - "Gramps", Dir: Mike Ryan, Butch Hartman (1996)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
+    - Gramps (voiced by Rob Paulsen) tells his grandchildren (voiced by Christine Cavanaugh and Kath Soucie) about his battle against invading aliens (voiced by Charlie Adler and Neil Dickson).
 15. Chipmunk Punk Commercial
 16. Lewis Sings Dylan - Martin Short (SCTV 1984)
 17. The Greatest Wrestling Promo Ever
-18. Sifl and Olly - S02E17
+18. Sifl and Olly - S02E18
 19. Punk CD
 20. Teenage Mutant Hardcore Turtles
 21. Lenny Dee Melodies of Love Album Commercial
 22. Honda Motocompo / City Ad with Madness! (1981)
-23. [Journey to the Unknown - S01E06 - "The New People" (1968)](https://en.wikipedia.org/wiki/Journey_to_the_Unknown#Episodes)
-    - A young American couple (Robert Reed and Jennifer Hilary) move to England, where they find their neighbors are a bit too friendly and helpful. Based on the short story "The New People" by Charles Beaumont.
+23. [Journey to the Unknown - S01E07 - "One on an Island" (1968)](https://en.wikipedia.org/wiki/Journey_to_the_Unknown#Episodes)
+    - Shipwrecked on a desert island, a man (Brandon deWilde) is soon joined by two companions (Suzanna Leigh and Bob Sessions), but jealousy overwhelms him. Based on a story by Donald E. Westlake.
 24. A&W Family Restaurants - Root Bear Glass (1981)
 25. Nameneko Japanese Punk Rock Kittens 5
-26. [The Outer Limits S01E21 - "The Voice of Reason" (1995)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_1_(1995))
-    - Randall Strong tries to convince the members of a government committee that a number of different alien invasions of Earth are occurring, and he demands an official investigation and response to these threats. His evidence comes from incidents in previous episodes of the first season: the experiments of Simon Kress in "The Sandkings"; an attempt to impersonate the crew of a spacecraft returning to Earth in "The Voyage Home"; an alien parasite in "Caught in the Act"; an alien enzyme in "If These Walls Could Talk"; aliens posing as religious messengers in "Corner of the Eye"...
+26. [The Outer Limits S02E01 - "A Stitch in Time" (1996)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_2_(1996))
+    - FBI agent Jamie Pratt (Michelle Forbes) investigates a series of murders spanning a period of forty years that were all committed with the same gun. The gun is traced to Dr. Theresa Givens (Amanda Plummer), a former employee at a top-secret government project. Mysteriously, Givens was only five years old at the time of the first murder, and the gun had not even been manufactured yet...
 27. Scooter Jousting
-28. [In Search Of... With Leonard Nimoy - S03E10 - "Bermuda Triangle Pirates" (1978)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
-    - Luxurious yachts are disappearing off the coast of Florida. Are pirates trafficking in drugs to blame?
+28. [In Search Of... With Leonard Nimoy - S03E11 - "Native American Astronomers" (1978)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
+    - Recent excavations in Southern Illinois provide tantalizing glimpses at Native American use of astronomy.
 29. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 30. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 31. Undertale - Napping with Ghost (Outro & Raid out)
+
+
 
 ## Info about SecretTVBot
 
