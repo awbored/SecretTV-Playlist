@@ -21,7 +21,7 @@
 12. Microman - Micro Change - MC21 RadiCasse Robo
 13. What a Cartoon Show - INTRO
 14. [What a Cartoon Show - "Hard Luck Duck", Dir: William Hanna (1995)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
-    - Gramps (voiced by Rob Paulsen) tells his grandchildren (voiced by Christine Cavanaugh and Kath Soucie) about his battle against invading aliens (voiced by Charlie Adler and Neil Dickson).
+    - After venturing away from the watch of his friend Harley Gator (voiced by Brad Garrett), Hard Luck Duck (voiced by Russi Taylor) is a target of a hungry fox chef (voiced by Jim Cummings) to be cooked. Though the fox's attempts are constantly thwarted by Harley.
 15. Chipmunk Punk Commercial
 16. Lewis Sings Dylan - Martin Short (SCTV 1984)
 17. The Greatest Wrestling Promo Ever
