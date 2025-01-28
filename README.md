@@ -16,6 +16,7 @@
    - Xantipe Finch (Deborah Strang), a harried single mother and frustrated writer, is visited by a devil named Clancy (Chris Noth). Clancy claims that he had won a football bet with Lucifer, and has been allowed to ascend Earth so Xantipe can ghostwrite his memoirs. While he solves all of Xantipe's problems, Clancy sets a bad example for her son Marty (Danny Gerard). The more Clancy helps, the more devilish Xantipe and Marty become. Xantipe finally agrees to help Clancy write the book if he'll remove their new demonic natures. But will he be able to live up to his promise?
 8. Artie's Workout
 9. 5 Neat Guys - Neatest Hits
+10. Twin Peaks Georgia Coffee Commercials JP (Miniseries)
 10. Big Bill Hell's
 11. Nameneko Japanese Punk Rock Kittens 4
 12. Microman - Micro Change - MC21 RadiCasse Robo
