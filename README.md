@@ -1,46 +1,45 @@
-# 2025/02/18 - SecretTV Playlist
+# 2025/02/25 - SecretTV Playlist
 
 ## General News
 
-- Happy new year!
+- Meh!
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
 2. Nameneko Japanese Punk Rock Kittens 2
 3. UHF - Spatula City
-5. [Manimal - S01E06 - "Scrimshaw" - (1983)](https://en.wikipedia.org/wiki/Manimal#Episodes)
-   - While at the beach, Jonathan and the others discover a scrimshaw (walrus tusk with carvings on it) in the clutches of a skeleton. They begin investigating at a local bar where they encounter someone who has been looking for it for their whole life. This episode includes a new transformation sequence, in which Jonathan turns into a snake.  Guest stars: Meeno Peluce as Corky Morgan, Keenan Wynn as Sea Dog Morgan
+5. [Manimal - S01E07 - "Breath of the Dragon" - (1983)](https://en.wikipedia.org/wiki/Manimal#Episodes)
+   - Jonathan, Brooke and Ty must stop a criminal who extorts money from businesses in Chinatown while posing as a superstitious icon known as The Dragon.  Guest stars: George Cheung as the Dragon, James Hong as Grandfather Tan
 6. DiC
-7. [Monsters - S02E01 - "The Face", Dir: Allen Coulter, Writer: Benjamin Carr (1989)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
-   - Redneck brothers Raymond (Gregory Grove) and Cliff (Gary Roberts) attempt to rob an old woman (Imogene Coca) in the dead of night. When she cries out for help, Raymond covers her mouth. She proceeds to bite Raymond's hand, prompting Raymond to kill her. That night, the wound morphs into the face of the old woman, and it begins to talk to Raymond, tormenting him for his crime. Raymond can't bring himself to cut out the face on his own and asks for Cliff's help, with disastrous results.
+7. [Monsters - S02E02 - "Portrait of the Artist", Dir: Gerald Cotts, Writer: D. Keith Mano (1989)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
+   - Private investigator Roger Darcy (Beeson Carroll) is introduced to art gallery owner Hubert Pocock (Darren McGavin). Darcy discovers that Pocock's gallery consists of life-sized, three-dimensional sculptures of people reported missing, hanging from the walls in tormented positions, including his missing daughter Penny (voiced by Cheryl Russell). Suspecting that Pocock is a serial killer, Darcy attempts to play a psychological mind game with him to gain a confession. Unknown to Darcy however, the truth is much worse than he can comprehend.
 8. Artie's Workout
 9. 5 Neat Guys - Neatest Hits
 10. Twin Peaks Georgia Coffee Commercials JP (Miniseries)
 10. Big Bill Hell's
 11. Nameneko Japanese Punk Rock Kittens 4
 12. Microman - Micro Change - MC21 RadiCasse Robo
-13. What a Cartoon Show - INTRO
-14. [What a Cartoon Show - "Malcom and Melvin", Dir: Ralph Bakshi (1997)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
+14. [What a Cartoon Show - "Malcom and Melvin in Babe, He Calls Me", Dir: Ralph Bakshi (1999)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
     - Melvin (voiced by Craig Marin) is an alienated loser until he meets Malcom (Craig Marin), a trumpeter cockroach who has a huge talent.  Note: The creator Bakshi disowned both shorts upon release.
 15. Chipmunk Punk Commercial
 16. Lewis Sings Dylan - Martin Short (SCTV 1984)
 17. The Greatest Wrestling Promo Ever
-18. [On the Air - S01E02 - "Episode 1.3", Dir: Jack Fisk, Writer: Robert Engels (1992)](https://en.wikipedia.org/wiki/On_the_Air_(TV_series)#Episodes)
-    - Lester plots to destroy Betty by hosting a rigged quiz show, pitting her and her 7th grade teacher, Mrs. Thissle, against Professor R. Answer, the man with the highest I.Q. ever recorded. Betty and Mrs. Thissle prevail until Mrs. Thissle, realizing that she is on live TV, has a panic attack. Mr. McGonigle, dazed on allergy medicine, substitutes as Betty's partner, and they manage to coincidentally answer the final question to win the game.
+18. [On the Air - S01E04 - "Episode 1.4", Dir: Jonathan Sanger, Writer: Scott Frost (1992)](https://en.wikipedia.org/wiki/On_the_Air_(TV_series)#Episodes)
+    - Guest stars this week are Doodles the Duck and star of stage and screen Stan Tailings. Lester hopes that his and Tailings's superior acting will help him derail Betty's ever-growing popularity, but Tailings has voice issues and suffers from coughing fits. Doodles is accidentally fried by technicians, who go on to eat him. Tailings's continual voice problems and Lester's run-in with a prop electric chair once again dash Lester's plans and reduce the dramatic show to farce.
 19. Punk CD
 20. Teenage Mutant Hardcore Turtles
 21. Lenny Dee Melodies of Love Album Commercial
 22. Honda Motocompo / City Ad with Madness! (1981)
-23. [Journey to the Unknown - S01E12 - "The Beckoning Fair One" (1968)](https://en.wikipedia.org/wiki/Journey_to_the_Unknown#Episodes)
-    - A young man (Robert Lansing) recovering from a nervous breakdown moves into a haunted house. The ghost is a beautiful girl, and he falls in love with her, overlooking his living fiancee (Gabrielle Drake). Based on the novella The Beckoning Fair One by Oliver Onions.
+23. [Journey to the Unknown - S01E13 - "The Last Visitor", Dir: Don Chaffey, Writer: Alfred Shaughnessy (1968)](https://en.wikipedia.org/wiki/Journey_to_the_Unknown#Episodes)
+    - On vacation at a resort, a young woman (Patty Duke) is plagued by a mysterious visitor; the proprietress (Kay Walsh) informs her that the visitor is her estranged husband.
 24. A&W Family Restaurants - Root Bear Glass (1981)
 25. Nameneko Japanese Punk Rock Kittens 5
-26. [The Outer Limits S02E06 - "Beyond the Veil", Dir: Allan Eastman, Writer: Chris Brancato (1996)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_2_(1996))
-    - Eddie Wexler suffers from flashbacks of an alien abduction, which eventually drives him to suicidal behavior. After checking himself into a mental institution with others suffering from similar problems, he begins to suspect that there is something more sinister going on at the hospital.
+26. [The Outer Limits S02E07 - "First Anniversary", Dir: Brad Turner, Based on short story by: Richard Matheson; Teleplay by: Jon Cooksey & Ali Marie Matheson  (1996)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_2_(1996))
+    - Norman Glass (Matt Frewer) celebrates his first wedding anniversary with his beautiful & talented wife, Ady (Michelle Johnson). Norman's best friend, Dennis (Clint Howard), also has a beautiful wife, Barbara (Jayne Heitmeyer). Over the next few days, both relationships unravel rather quickly. First, Dennis walks out on Barbara; Norman goes to talk to Dennis in a park and is frightened by what he finds. Dennis, clearly unhinged & paranoid, claims that Barbara is not what she seems; a strange woman approaches Dennis, begging him to talk to her. Norman does not recognize her, but Dennis does...
 27. Scooter Jousting
-28. [In Search Of... With Leonard Nimoy - S03E15 - "Animal ESP" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
-    - Dramatic scenes attempt to demonstrate that close communication between people and their pets may be due to more than emotional bonds.
+28. [In Search Of... With Leonard Nimoy - S03E16 - "The Money Pit Mystery" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
+    - A true tale of hidden treasure and mysterious death. Six people have died in the scramble to dig up the Oak Island treasures, supposedly buried by Captain Kidd.
 29. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 30. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 31. Undertale - Napping with Ghost (Outro & Raid out)
