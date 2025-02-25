@@ -2,7 +2,7 @@
 
 ## General News
 
-- Meh!
+- Feb 28th - Join us in the 24 hr Economic Black Out!  Do not make any purchases during the entirety of Feb 28th, 00:00-24:00.  The United States runs on our money, let's show them that we still hold the power!  More info: [The Peoples Union USA](https://thepeoplesunionusa.com/)
 
 ## SecretTV Playlist
 
