@@ -1,45 +1,46 @@
-# 2025/02/25 - SecretTV Playlist
+# 2025/03/04 - SecretTV Playlist
 
 ## General News
 
-- Feb 28th - Join us in the 24 hr Economic Black Out!  Do not make any purchases during the entirety of Feb 28th, 00:00-24:00.  The United States runs on our money, let's show them that we still hold the power!  More info: [The Peoples Union USA](https://thepeoplesunionusa.com/)
+- Rest in Peace [Michelle Trachtenberg](https://en.wikipedia.org/wiki/Michelle_Trachtenberg)
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
 2. Nameneko Japanese Punk Rock Kittens 2
 3. UHF - Spatula City
-5. [Manimal - S01E07 - "Breath of the Dragon" - (1983)](https://en.wikipedia.org/wiki/Manimal#Episodes)
-   - Jonathan, Brooke and Ty must stop a criminal who extorts money from businesses in Chinatown while posing as a superstitious icon known as The Dragon.  Guest stars: George Cheung as the Dragon, James Hong as Grandfather Tan
+5. [Manimal - S01E08 - "Night of the Beast" - (1983)](https://en.wikipedia.org/wiki/Manimal#Episodes)
+   - While on a well-deserved vacation, Jonathan, Ty and Brooke get involved to thwart an attempt by a syndicate boss to illegally take over the town of Birch Hollow in order legalize gambling and build a large casino.  Guest stars: Jeff Corey as Zeke Bethune, Dana Gladstone as Jack Slocum, Robert Englund as Thug, Grainger Hines as Keslo, Wayne Heffley as Osmond.
 6. DiC
-7. [Monsters - S02E02 - "Portrait of the Artist", Dir: Gerald Cotts, Writer: D. Keith Mano (1989)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
-   - Private investigator Roger Darcy (Beeson Carroll) is introduced to art gallery owner Hubert Pocock (Darren McGavin). Darcy discovers that Pocock's gallery consists of life-sized, three-dimensional sculptures of people reported missing, hanging from the walls in tormented positions, including his missing daughter Penny (voiced by Cheryl Russell). Suspecting that Pocock is a serial killer, Darcy attempts to play a psychological mind game with him to gain a confession. Unknown to Darcy however, the truth is much worse than he can comprehend.
+7. [Monsters - S02E03 - "A Bond of Silk", Dir: Ernest D. Farino, Writer: Michael Kimball (1989)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
+   - Wealthy oilman Nash (Marc McClure) and his new bride Portia (Lydia Cornell) arrive in a "too-good-to-be-true" honeymoon suite in the basement of a posh hotel. The pair discover that the room is actually part of the basement for an abandoned factory, and the "bed" is a hammock in the shape of a spider's web. The dim-witted Nash throws himself on the hammock, and discovers that it is more than what it appears to be when he becomes stuck to it. When Portia becomes stuck as well, the couple try to free themselves before the web's eight-legged owner arrives for dinner.
 8. Artie's Workout
-9. 5 Neat Guys - Neatest Hits
+9. ALF verus Gremlins
 10. Twin Peaks Georgia Coffee Commercials JP (Miniseries)
 10. Big Bill Hell's
 11. Nameneko Japanese Punk Rock Kittens 4
 12. Microman - Micro Change - MC21 RadiCasse Robo
-14. [What a Cartoon Show - "Malcom and Melvin in Babe, He Calls Me", Dir: Ralph Bakshi (1999)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
-    - Melvin (voiced by Craig Marin) is an alienated loser until he meets Malcom (Craig Marin), a trumpeter cockroach who has a huge talent.  Note: The creator Bakshi disowned both shorts upon release.
+13. What a Cartoon Intro
+14. [What a Cartoon Show - "Pfish and Chip in Blammo the Clown", Dir: Butch Hartman, Michael Rann, and Eugene Mattos (1999)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
+    - The bomb squad Pfish and Chip face yet another clown bomber named Blammo. It is not easy when they have to watch and protect the chief's teddy bear while the Chief is attending a carnival.
 15. Chipmunk Punk Commercial
 16. Lewis Sings Dylan - Martin Short (SCTV 1984)
-17. The Greatest Wrestling Promo Ever
-18. [On the Air - S01E04 - "Episode 1.4", Dir: Jonathan Sanger, Writer: Scott Frost (1992)](https://en.wikipedia.org/wiki/On_the_Air_(TV_series)#Episodes)
-    - Guest stars this week are Doodles the Duck and star of stage and screen Stan Tailings. Lester hopes that his and Tailings's superior acting will help him derail Betty's ever-growing popularity, but Tailings has voice issues and suffers from coughing fits. Doodles is accidentally fried by technicians, who go on to eat him. Tailings's continual voice problems and Lester's run-in with a prop electric chair once again dash Lester's plans and reduce the dramatic show to farce.
+17. I'm a delicious gummy bear!
+18. [The Adventures of Pete & Pete  - S02E01 - "Grounded for Life", (1994)](https://en.wikipedia.org/wiki/The_Adventures_of_Pete_%26_Pete#)
+    - Little Pete destroys Dad's lawn in an experiment gone awry, and after being caught making a break for the Canadian border is grounded for a month and is forced to tunnel his way out of the house past a state-of-the-art security system in order to make it to the celebrations of his favorite holiday, the Fourth of July. During his escape attempt Pete meets Nona F. Mecklenberg (Michelle Trachtenberg), who has just moved to Wellsville and is trying to get her dog to pee.
 19. Punk CD
 20. Teenage Mutant Hardcore Turtles
-21. Lenny Dee Melodies of Love Album Commercial
+21. Japanese Star Wars Tuna Commercia (1978)
 22. Honda Motocompo / City Ad with Madness! (1981)
-23. [Journey to the Unknown - S01E13 - "The Last Visitor", Dir: Don Chaffey, Writer: Alfred Shaughnessy (1968)](https://en.wikipedia.org/wiki/Journey_to_the_Unknown#Episodes)
-    - On vacation at a resort, a young woman (Patty Duke) is plagued by a mysterious visitor; the proprietress (Kay Walsh) informs her that the visitor is her estranged husband.
+23. [Journey to the Unknown - S01E14 - "Poor Butterfly", Dir: Alan Gibson, Writer: Jeremy Paul (1969)](https://en.wikipedia.org/wiki/Journey_to_the_Unknown#Episodes)
+    - Invited to a costume party at a wealthy mansion, a man (Chad Everett) finds that everything looks as it did in the 1920s. Then he meets a girl who keeps saying she needs to leave... Based on the short story "Poor Butterfly" by William Abney.
 24. A&W Family Restaurants - Root Bear Glass (1981)
 25. Nameneko Japanese Punk Rock Kittens 5
-26. [The Outer Limits S02E07 - "First Anniversary", Dir: Brad Turner, Based on short story by: Richard Matheson; Teleplay by: Jon Cooksey & Ali Marie Matheson  (1996)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_2_(1996))
-    - Norman Glass (Matt Frewer) celebrates his first wedding anniversary with his beautiful & talented wife, Ady (Michelle Johnson). Norman's best friend, Dennis (Clint Howard), also has a beautiful wife, Barbara (Jayne Heitmeyer). Over the next few days, both relationships unravel rather quickly. First, Dennis walks out on Barbara; Norman goes to talk to Dennis in a park and is frightened by what he finds. Dennis, clearly unhinged & paranoid, claims that Barbara is not what she seems; a strange woman approaches Dennis, begging him to talk to her. Norman does not recognize her, but Dennis does...
+26. [The Outer Limits S02E08 - "Straight and Narrow", Dir: Joseph L Scanlan, Joel Metzger (1996)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_2_(1996))
+    - A mother sends her recalcitrant son, Rusty Dobson (Ryan Phillippe), to a militaristic academy. The administrators are actually controlling the students through a chip inserted into their heads. They want to create a group of business executives who are willing to commit murder in order to make more money for their companies...
 27. Scooter Jousting
-28. [In Search Of... With Leonard Nimoy - S03E16 - "The Money Pit Mystery" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
-    - A true tale of hidden treasure and mysterious death. Six people have died in the scramble to dig up the Oak Island treasures, supposedly buried by Captain Kidd.
+28. [In Search Of... With Leonard Nimoy - S03E17 - "Psychic Sea Hunt" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
+    - A team of psychics gives scientists the exact description and location of an unknown shipwreck, and a submarine hunt proves them right.
 29. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 30. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 31. Undertale - Napping with Ghost (Outro & Raid out)
