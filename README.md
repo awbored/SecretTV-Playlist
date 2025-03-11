@@ -2,45 +2,44 @@
 
 ## General News
 
-- Rest in Peace [Michelle Trachtenberg](https://en.wikipedia.org/wiki/Michelle_Trachtenberg)
+- Meh!
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
 2. Nameneko Japanese Punk Rock Kittens 2
-3. UHF - Spatula City
-5. [Manimal - S01E08 - "Night of the Beast" - (1983)](https://en.wikipedia.org/wiki/Manimal#Episodes)
-   - While on a well-deserved vacation, Jonathan, Ty and Brooke get involved to thwart an attempt by a syndicate boss to illegally take over the town of Birch Hollow in order legalize gambling and build a large casino.  Guest stars: Jeff Corey as Zeke Bethune, Dana Gladstone as Jack Slocum, Robert Englund as Thug, Grainger Hines as Keslo, Wayne Heffley as Osmond.
+3. Amazon Women On the Moon - Short Attention Span
+5. [Nightman - S02E06 - "Manimal" - (1998)](https://en.wikipedia.org/wiki/Manimal#Night_Man)
+   - Night Man allies with Dr. Jonathan Chase, a man who knows how to transform into different animals.
 6. DiC
-7. [Monsters - S02E03 - "A Bond of Silk", Dir: Ernest D. Farino, Writer: Michael Kimball (1989)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
-   - Wealthy oilman Nash (Marc McClure) and his new bride Portia (Lydia Cornell) arrive in a "too-good-to-be-true" honeymoon suite in the basement of a posh hotel. The pair discover that the room is actually part of the basement for an abandoned factory, and the "bed" is a hammock in the shape of a spider's web. The dim-witted Nash throws himself on the hammock, and discovers that it is more than what it appears to be when he becomes stuck to it. When Portia becomes stuck as well, the couple try to free themselves before the web's eight-legged owner arrives for dinner.
+7. [Monsters - S02E04 - "Rerun", Dir: John Auerbach, Writer: Peg Haller and Bob Schneider (1989)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
+   - Allison (Rachel Jones), an anthropology student, is infatuated with deceased movie star Tony Sterling (Mark Nassar), and out of the blue, Tony appears in her room and pledges his eternal love for Allison. Allison's roommate Max (Mitchell Whitfield) insists that people don't just return from the grave, and seeks out Sterling's old agent Faye Ingram (Kaye Ballard) for an explanation. Faye reveals that Tony was not only a talentless hack, but also a Satanist who has played the same ruse with numerous other women. When Max also learns that Tony is actually a lamprey-like demon in disguise, he tries to save Allison before it's too late.
 8. Artie's Workout
 9. ALF verus Gremlins
-10. Twin Peaks Georgia Coffee Commercials JP (Miniseries)
+10. Austrailian Garfield Phone Ad
 10. Big Bill Hell's
 11. Nameneko Japanese Punk Rock Kittens 4
 12. Microman - Micro Change - MC21 RadiCasse Robo
-13. What a Cartoon Intro
-14. [What a Cartoon Show - "Pfish and Chip in Blammo the Clown", Dir: Butch Hartman, Michael Rann, and Eugene Mattos (1999)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
-    - The bomb squad Pfish and Chip face yet another clown bomber named Blammo. It is not easy when they have to watch and protect the chief's teddy bear while the Chief is attending a carnival.
+14. [What a Cartoon Show - "Pizza Boy in No Tip", Dir: Robert Alvarez (1999)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
+    - Pizza Boy (voiced by Gary Imhoff) must deliver a pizza from his dad Kocoum (voiced by Phil Hayes) to an Eskimo couple (voiced by Brian Cummings and Candi Milo) and their polar bear (voiced by Gregg Berger) that are sick of blubber products to the Arctic Circle safe and sound under five minutes or else he will receive no tip.
 15. Chipmunk Punk Commercial
 16. Lewis Sings Dylan - Martin Short (SCTV 1984)
-17. I'm a delicious gummy bear!
-18. [The Adventures of Pete & Pete  - S02E01 - "Grounded for Life", (1994)](https://en.wikipedia.org/wiki/The_Adventures_of_Pete_%26_Pete#)
-    - Little Pete destroys Dad's lawn in an experiment gone awry, and after being caught making a break for the Canadian border is grounded for a month and is forced to tunnel his way out of the house past a state-of-the-art security system in order to make it to the celebrations of his favorite holiday, the Fourth of July. During his escape attempt Pete meets Nona F. Mecklenberg (Michelle Trachtenberg), who has just moved to Wellsville and is trying to get her dog to pee.
+17. Living in the 90's CD Commercial
+18. [On The Air - S01E05 - "Episode 1.5", Dir: Lesli Linka Glatter, Writer: Mark Frost (1992)](https://en.wikipedia.org/wiki/On_the_Air_(TV_series)#Episodes)
+    - Betty is nervous over the appearance on the show of her famous sister Sylvia Hudson, an early television pioneer. Also on the show is Mr. Peanuts, a puppet from a popular children's show (operated by guest star Chuck McCann). After Sylvia humiliates Mr. Peanuts on the air, Betty and the cast cheer him by singing his theme, "The Mr. Peanuts Song." Even the hard-hearted Buddy Budwaller is moved.
 19. Punk CD
-20. Teenage Mutant Hardcore Turtles
-21. Japanese Star Wars Tuna Commercia (1978)
+21. Japanese Star Wars Tuna Commercial (1978)
 22. Honda Motocompo / City Ad with Madness! (1981)
-23. [Journey to the Unknown - S01E14 - "Poor Butterfly", Dir: Alan Gibson, Writer: Jeremy Paul (1969)](https://en.wikipedia.org/wiki/Journey_to_the_Unknown#Episodes)
-    - Invited to a costume party at a wealthy mansion, a man (Chad Everett) finds that everything looks as it did in the 1920s. Then he meets a girl who keeps saying she needs to leave... Based on the short story "Poor Butterfly" by William Abney.
+23. [Journey to the Unknown - S01E15 - "Stranger in the Family", Dir: Peter Duffell, Writer: David Campton (1969)](https://en.wikipedia.org/wiki/Journey_to_the_Unknown#Episodes)
+    - A boy can control people; this sometimes leads to their deaths. Both a scientist and the agent of a struggling actress (Janice Rule) would like to get their hands on him.
 24. A&W Family Restaurants - Root Bear Glass (1981)
 25. Nameneko Japanese Punk Rock Kittens 5
-26. [The Outer Limits S02E08 - "Straight and Narrow", Dir: Joseph L Scanlan, Joel Metzger (1996)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_2_(1996))
-    - A mother sends her recalcitrant son, Rusty Dobson (Ryan Phillippe), to a militaristic academy. The administrators are actually controlling the students through a chip inserted into their heads. They want to create a group of business executives who are willing to commit murder in order to make more money for their companies...
+26. [The Outer Limits S02E09 - "Trial by Fire", Dir: Jonathan Glassner, Writer: Brad Wright (1996)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_2_(1996))
+    - The President (Robert Foxworth) is taken to an underground bunker on his inauguration night, and he is told that an object is quickly approaching the Earth. This object turns out to be from an alien spaceship, and a fleet of alien spaceships is heading in towards Earth...
+20. Dr Bolls Marmalade
 27. Scooter Jousting
-28. [In Search Of... With Leonard Nimoy - S03E17 - "Psychic Sea Hunt" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
-    - A team of psychics gives scientists the exact description and location of an unknown shipwreck, and a submarine hunt proves them right.
+28. [In Search Of... With Leonard Nimoy - S03E18 - "The Angel of Death" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
+    - Nazi hunter Simon Wiesenthal tracks infamous war criminal Josef Mengele to his hiding place in Paraguay.
 29. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 30. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 31. Undertale - Napping with Ghost (Outro & Raid out)
