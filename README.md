@@ -2,7 +2,7 @@
 
 ## General News
 
-- Meh!
+- Next Sacramento Audio Waffle will be on April 20th!  More details: [On my site](https://andrewway.net)!
 
 ## SecretTV Playlist
 
