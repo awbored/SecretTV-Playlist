@@ -6,7 +6,7 @@
 
 ## SecretTV Playlist
 
-[Paul Fierlinger](https://www.cartoonbrew.com/rip/from-teeny-little-super-guys-to-animated-dogs-paul-fierlinger-dies-at-89-246675.html) passed at 89 on April 4th, 2025.  In honor I have dropped a few of his early Teeny Little Super Guy animations, which I watched a lot on Sesame Street and have been wanting to track down to add to the Regulars.  
+[Paul Fierlinger](https://www.cartoonbrew.com/rip/from-teeny-little-super-guys-to-animated-dogs-paul-fierlinger-dies-at-89-246675.html) passed at 89 on April 4th, 2025.  In honor I have dropped a few of his early Teeny Little Super Guy animations from Sesame Street.  
 
 1. Secret TV Roller Coaster (intro)
 2. Max Hell
