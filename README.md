@@ -1,4 +1,4 @@
-# 2025/04/08 - SecretTV Playlist
+[# 2025/04/08 - SecretTV Playlist
 
 ## General News
 
@@ -63,3 +63,4 @@ Here is a list of the main commands:
 - **!hb [name]**: gives a happy birthday
 - **!santa [blank/person]**: Santa gifts
 - **!secret**: shhhhutup
+](https://www.cartoonbrew.com/rip/from-teeny-little-super-guys-to-animated-dogs-paul-fierlinger-dies-at-89-246675.html)
