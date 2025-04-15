@@ -1,4 +1,4 @@
-# 2025/04/08 - SecretTV Playlist
+# 2025/04/15 - SecretTV Playlist
 
 ## General News
 
@@ -6,47 +6,42 @@
 
 ## SecretTV Playlist
 
-[Paul Fierlinger](https://www.cartoonbrew.com/rip/from-teeny-little-super-guys-to-animated-dogs-paul-fierlinger-dies-at-89-246675.html) passed at 89 on April 4th, 2025.  In honor I have dropped a few of his early Teeny Little Super Guy animations from Sesame Street.  
-
 1. Secret TV Roller Coaster (intro)
 2. Max Hell
-3. Multiple SIDosis (1970)
-4. Teeny Little Super Guy - Owning a Pet
-5. [Automan - S01E03 - "The Great Pretender" - (1983)](https://en.wikipedia.org/wiki/Automan#Episodes)
-   - When a truck load of paper the government uses to print money is hijacked, Automan, with the help of Cursor, poses as a rich criminal competing to undermine the existing network of a known criminal dealing in counterfeit money.
+3. Ernie Kovak's Nairobi Trio
+5. [Automan - S01E04 - "Ships in the Night" - (1984)](https://en.wikipedia.org/wiki/Automan#Episodes)
+   - Walter and Auto fly to San Cristobal to investigate the disappearances of Americans. They discover a man, aided by the local authorities, that lures investors in order to kill them and take their money.
 6. DiC
-7. [Monsters - S02E07 - "Jar", Dir: Bette Gordon, Writer: Peg Haller and Bob Schneider (1989)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
-   - Mr. Hallet (Fritz Weaver) is the owner of a general store and hotel near a swamp. He is visited by Jack Bateman (Richard Edson), a private investigator who is looking for a missing woman, that was last seen at the hotel. Jack then meets beautiful Ann Spiros (Gina Gershon) and her loutish but wealthy husband George (Ed Kovens), and is immediately attracted to her. Hallet is actually selling small monsters he stores in large Mason jars...
+7. [Monsters - S02E08 - "The Demons", Dir: Scott Alexander, Writer: Martin Olson and Robert Sheckley (1989)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
+   - A greedy extraterrestrial sorcerer named Arturus (Richard Moll) attempts to summon a demon that he will command to bring him gold (or "drast" as he calls it). By using a wrong ingredient during the summoning ritual, Arturus accidentally summons his dimensional counterpart, a work-obsessed insurance salesman named Arthur Gammet (Jeff Silverman)...
 8. Artie's Workout
 9. Masters Of The Universe Hordak and the Evil Horde UK TV toy advert
 10. Austrailian Garfield Phone Ad
 11. Big Bill Hell's
 12. Katy Perry Slimed
 13. Gonzo Guilt
-14. Teeny Little Super Guy - DANGER
-15. [What a Cartoon Show - "Strange Things", Dir: Mike Wellins (1997)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
-    - A robot finds a job as a janitor. He must remember the advice from his supervisor Mel (voiced by Ronnie Schell) that if it says "Don't Touch", don't touch.  Note: The series' only 3D animated short.
+15. [What a Cartoon Show - "Tales of Worm Paranoia", Dir: Eddit Fitzgerald (1997)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
+    - Johnny is a peaceful and forgiving worm (voiced by Patrick Pinney) until a human (Patrick Pinney) steps on him repeatedly. As a result, the worm becomes paranoid and angered at the human race, seeking revenge.
 16. Chipmunk Punk Commercial
 17. Lewis Sings Dylan - Martin Short (SCTV 1984)
 18. Monster Ballads
-19. [The Adventures of Pete & Pete - S00E01 - "Valentine's Day Massacre"](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Specials_(1991%E2%80%9393))
-    - Big Pete and the school's stadium line painter, Mr. Beverly (whose squid, Edna, the school mascot, Pete has just accidentally killed), vie for the love of the math teacher (Ms. Fingerwood). However, Openface (one of Big Pete's arch-enemies) tries to get the upper hand in a quest for the missing squid and helps Mr. Beverly with his love for Ms. Fingerwood. He tries to get Ellen to exploit the Petes by revealing the secret of what really happened to Edna. Mr. Beverly is played by Richard Edson.
-20. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E03
+19. [The Adventures of Pete & Pete - S00E02 - "What We Did On Our Summer Vacation"](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Specials_(1991%E2%80%9393))
+    - After the Petes and Ellen unintentionally drive Mr. Tastee (the local ice-cream man) out of town by trying to find out about his personal life, they start a hunt to find him and bring him back as the summer comes to a close.
+20. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E04
 21. Punk CD
 22. Japanese Star Wars Tuna Commercial (1978)
 23. Honda Motocompo / City Ad with Madness! (1981)
-24. [Tales From the Darkside - S01E04 - "The Odds" KPLR 3/1/1985](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%931985))
-    - Tommy Vale (Danny Aiello), a bookie who never turns down a bet, meets Bill Lacey (Tom Noonan), a mysterious bettor who manages to successfully predict outcomes on every gamble he makes, and becomes determined to break Tommy at any cost. When Tommy ends up wagering on the time of his death, he must do everything he can to outsmart a man who has never lost.  Written and directed by James Sadwith.
+24. [Tales From the Darkside - S01E06 - "SDlippage" KPLR 3/4/1985](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%931985))
+    - Graphic designer Richard Hall (David Patrick Kelly) discovers that he has been turned down for a promotion, hasn't received an invitation to his high school reunion, and that his own mother has failed to recognize him. Putting everything together, Richard determines that the source of the problem is that he is mysteriously being erased from existence.
 Based on a short story by Barbara Owens, adapted by Mark Durand.
-25. Teeny Little Super Guy - Sleeping
 26. A&W Family Restaurants - Root Bear Glass (1981)
 27. Nameneko Japanese Punk Rock Kittens 4
-28. [The Outer Limits S02E12 - "Inconstant Moon", Dir: Joseph Scanlan, Writer: Based on the short story by: Larry Niven; Teleplay by: Brad Wright (1996)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_2_(1996))
-    - Physics professor Dr. Stan Hurst (Michael Gross) notices that the Moon is extremely bright, and he realizes that the Sun must have gone nova with the daylight side of the Earth suffering extreme heat. Realizing that he only has a few hours left to live, he speaks to another academic and decides that it would be better if people did not know what had happened. For two years, he has had a secret crush on Leslie (Joanna Gleason), the owner of a local book shop, but he never had the courage to ask her out...
+28. [The Outer Limits S02E13 - "From Within", Dir: Neill Fearnley, Writer: Jonathan Glassner (1996)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_2_(1996))
+    -  A slightly underdeveloped boy named Howie (Neil Patrick Harris) is the last unaffected person in a small town overrun by a strange madness. Miners unearth ancient parasites, in the shape of worms, which attack the brains of their hosts. While the infected townsfolk lose all their inhibitions, Howie must save his sister Sheila..
 29. Dr Bolls Marmalade
 30. Scooter Jousting
-31. [In Search Of... With Leonard Nimoy - S03E21 - "Ghostly Stakeout" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
-    - In a haunted house, a psychic team contacts troubled spirits that live on after death.
+31. [In Search Of... With Leonard Nimoy - S03E22 - "Brain Power" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
+    - A study of the incredible hidden potential of the human mind, including the possibility that average people can become geniuses.
 32. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 33. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 34. Undertale - Napping with Ghost (Outro & Raid out)
