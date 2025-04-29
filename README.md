@@ -1,4 +1,4 @@
-# 2025/04/22 - SecretTV Playlist
+# 2025/04/29 - SecretTV Playlist
 
 ## General News
 
@@ -9,39 +9,40 @@
 1. Secret TV Roller Coaster (intro)
 2. Max Hell
 3. Ernie Kovak's Nairobi Trio
-4. [Automan - S01E05 - "Unreasonable Facsimile" - (1984)](https://en.wikipedia.org/wiki/Automan#Episodes)
-   - Automan and Walter attempt to solve the murder of a businessman and the crash of a police helicopter. Meanwhile, Automan begins acting peculiar after watching soap operas on television.
+4. [Automan - S01E06 - "Flashes and Ashes" - (1984)](https://en.wikipedia.org/wiki/Automan#Episodes)
+   - Walter's friend and fellow cop Frank Cooney is killed during a theft of police weaponry. When Internal Affairs believes Frank was involved, Walter is suspended when he and Automan interfere trying to prove his friend's innocence.
 5. DiC
-6. [Monsters - S02E09 - "Reaper", Dir: Jean Patenaude, Writer: Josef Anderson (1989)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
-   - Mr. Ross (George D. Wallace), a cantankerous old man in a retirement home, tires of life and hopes for death to take him soon. He grows attracted to kindly nurse Sheila Brewer (Barbara Billingsley) after she helps him get a room. That night, the Grim Reaper (Curt Lowens) appears in Ross' room and attempts to take his soul...
+6. [Monsters - S02E10 - "The Mandrake Root", Dir: Brian Thomas Jones, Writer: Harvey Jacobs (1989)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
+   - A young woman named Angela (Melba Moore), whose husband Jack (Frankie Faison) does not pay much attention to her, is cleaning out the home of her grandmother, who died after spending the last 30 years as a recluse. In the house's basement, Angela discovers a grotesque mandrake root sprouting from the floor with her grandmother's ring on it...
 7. Artie's Workout
 8. Masters Of The Universe Hordak and the Evil Horde UK TV toy advert
 9. Austrailian Garfield Phone Ad
 10. Big Bill Hell's
 11. Katy Perry Slimed
 12. Gonzo Guilt
-13. [What a Cartoon Show - "The Ignoramooses", Dir: Mike Milo and Harry McLaughlin (1996)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
-    - Two moose named Pomeroy (voiced by Dee Bradley Baker) and Sherwood (voiced by Tom Kenny) believe they are going to be adopted by a rich hunter named Ed (voiced by Jeff Bennett) due to tracking collars that a biologist named Jimmy (Jeff Bennett) put on them (they think they are pet collars) and wreak havoc in his mansion.
+13. [What a Cartoon Show - "The Kitchen Casanova", Dir: John McIntyre (1996)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
+    - A first-time cook named Casanova (voiced by Carlos Alazraqui) is preparing a dinner for his date Doris (voiced by Mary Kay Bergman) while neglecting the feeding of his dog Pudge (vocal effects provided by Frank Welker). Trouble arises with one of the attempts when the wind flips the pages from his cookbook causing a mixture of ingredients.
 14. Chipmunk Punk Commercial
 15. Lewis Sings Dylan - Martin Short (SCTV 1984)
 16. Monster Ballads
-17. [The Adventures of Pete & Pete - S00E03 - "Space, Geeks, and Johnny Unitas" (1992)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Specials_(1991%E2%80%9393))
-    - Big Pete and Ellen work on a science project to determine whether unearthly life exists on Earth and inadvertently make a new friend. Pete becomes obsessed with football hero Johnny Unitas and one life-changing play (The Greatest Game Ever Played), while Ellen discovers that some things are best left unrevealed.
-18. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E05
+17. [The Adventures of Pete & Pete - S00E04 - "Apocalypse Pete" (1992)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Specials_(1991%E2%80%9393))
+    - The Petes' father, Don Wrigley, and Ellen's father, Phil Hickle (Steve Buscemi), start a prank war, which helps Little Pete and his father get closer while tearing Big Pete and Ellen apart. Based on the short entitled "The Big Race."
+18. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E06
+   - The Octopus sees something that he really, really wants.  And then he gets it!
 19. Punk CD
 20. Japanese Star Wars Tuna Commercial (1978)
 21. Honda Motocompo / City Ad with Madness! (1981)
-22. [Tales From the Darkside - S01E07 - "Inside The Closet" KPLR 3/27/1985, Dir: Tom Savini](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%931985))
-    - Graduate student Gail Aynsley (Roberta Weiss) takes up a room for rent in the house of Dr. Fenner (Fritz Weaver), the dean of a local veterinary school. She discovers that her new room has a strange miniature door inside it, and estimates that there may be something lurking on the other side.
+22. [Tales From the Darkside - S01E09 - "A Case of the Stubborns" KPLR 3/3/1985](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%931985))
+    - Jody Tolliver (Christian Slater) and his mother mourn the death of Grandpa Titus (Eddie Bracken). The next morning Titus rises and carries on as if nothing happened. Jody and his mother enlist several townsfolk to help convince the stubborn man that he is dead.  Written by James Houghton, based on a short story by Robert Bloch and guest-starring Brent Spiner as Reverend Peabody.
 Based on a short story by Barbara Owens, adapted by Mark Durand.
 23. A&W Family Restaurants - Root Bear Glass (1981)
 24. Nameneko Japanese Punk Rock Kittens 4
-25. [The Outer Limits S02E14 - "The Heist", Dir: Brad Turner, Writer: Steven Barnes (1996)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_2_(1996))
-    - Bitter ex-soldier, Lee Taylor, agrees to help a militia hijack a U.S. Army shipment of missiles. Instead of missiles, they find a lone guard who pleads with them not to open the shipment because it is deadly. Major Mackie demands to know what is in the shipment and believes that the Captain is lying. But all the lone guard will tell him is "Don't open it."...
+25. [The Outer Limits S02E15 - "Afterlife", Dir: Mario Azzopardi, Writer: John F. Whelpley (1996)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_2_(1996))
+    - Linden Stiles (Clancy Brown) is a wrongly convicted murderer of eleven people and is offered a choice between his execution and cooperation with an experiment. His Christian beliefs do not allow him to make any choice but to go through with what turns out to be a genetic experiment to splice his genes with extraterrestrial genes...
 26. Dr Bolls Marmalade
 27. Scooter Jousting
-28. [In Search Of... With Leonard Nimoy - S03E23 - "Sodom & Gomorrah" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
-    - Studies evidence developed by archaeologists suggesting that the two wicked cities existed on the site of a crater now filled in by the Dead Sea.
+28. [In Search Of... With Leonard Nimoy - S03E24 - "King Tut" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
+    - Investigates the ancient Egyptian monarch's final days. Was he a beloved leader who died a natural death or did court intrigues lead to his assassination?  Years after this installment was transmitted, Egyptological historians became convinced that Tutankhamun was in atrocious health for almost his entire life due to birth deformities. These historians came to believe that his birth deformities resulted from inbreeding within the Pharaoh's family.
 29. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 30. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 31. Undertale - Napping with Ghost (Outro & Raid out)
