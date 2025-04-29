@@ -28,7 +28,7 @@
 17. [The Adventures of Pete & Pete - S00E04 - "Apocalypse Pete" (1992)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Specials_(1991%E2%80%9393))
     - The Petes' father, Don Wrigley, and Ellen's father, Phil Hickle (Steve Buscemi), start a prank war, which helps Little Pete and his father get closer while tearing Big Pete and Ellen apart. Based on the short entitled "The Big Race."
 18. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E06
-   - The Octopus sees something that he really, really wants.  And then he gets it!
+    - The Octopus sees something that he really, really wants.  And then he gets it!
 19. Punk CD
 20. Japanese Star Wars Tuna Commercial (1978)
 21. Honda Motocompo / City Ad with Madness! (1981)
