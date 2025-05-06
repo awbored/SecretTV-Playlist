@@ -32,19 +32,20 @@
 19. Punk CD
 20. Japanese Star Wars Tuna Commercial (1978)
 21. Honda Motocompo / City Ad with Madness! (1981)
-22. [Tales From the Darkside - S01E10 - "Djinn, No Chaser" KPLR 3/20/1985](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%931985))
+22. Detroit Institute of Arts - You Gotta Have Art!
+23. [Tales From the Darkside - S01E10 - "Djinn, No Chaser" KPLR 3/20/1985](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%931985))
     - Newlyweds Danny and Connie Squires (Charles Levin and Colleen Camp) purchase a lamp which turns out to hold a genie (Kareem Abdul-Jabbar). Extremely angered at being trapped for 10,000 years, the genie lashes out at his new masters, torturing them with various plagues. Fortunately, Connie offers a simple solution to the genie's problem.  Based on a story by Harlan Ellison and adapted by Haskell Barkin.
-23. A&W Family Restaurants - Root Bear Glass (1981)
-24. Nameneko Japanese Punk Rock Kittens 4
-25. [The Outer Limits S02E16 - "The Deprogrammers", Dir: Joseph L Scanlan, Writer: James Crocker (1996)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_2_(1996))
+24. A&W Family Restaurants - Root Bear Glass (1981)
+25. Nameneko Japanese Punk Rock Kittens 4
+26. [The Outer Limits S02E16 - "The Deprogrammers", Dir: Joseph L Scanlan, Writer: James Crocker (1996)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_2_(1996))
     - Earth is under alien occupation and the human race has been conditioned for slavery, unable to think for itself or disobey an order. One human, the slave of an important alien ruler, is captured by a small band of rebel humans who try to break his conditioning and restore his free will. Starring Brent Spiner as Professor Trent Davis.
-26. Dr Bolls Marmalade
-27. Scooter Jousting
-28. [In Search Of... With Leonard Nimoy - S04E01 - "Tidal Waves" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
+27. Dr Bolls Marmalade
+28. Scooter Jousting
+29. [In Search Of... With Leonard Nimoy - S04E01 - "Tidal Waves" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
     - See a reenactment of the incredible destruction wrought by the tsunami (giant sea wave) that struck Hawaii in 1960.
-29. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-30. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-31. Undertale - Napping with Ghost (Outro & Raid out)
+30. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+31. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+32. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 
