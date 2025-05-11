@@ -2,7 +2,7 @@
 
 ## General News
 
-- Meh!
+- There will be no streams during the week of 5/19 as I will be out.  Thank you!
 
 ## SecretTV Playlist
 
