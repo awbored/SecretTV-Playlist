@@ -1,48 +1,48 @@
-# 2025/05/06 - SecretTV Playlist
+# 2025/05/13 - SecretTV Playlist
 
 ## General News
 
-- There will be no streams during the week of 5/19 as I will be out.  Thank you!
+- There will be no streams during the week of 5/19 as I will be out of town. Thank you!
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
 2. Max Hell
 3. Ernie Kovak's Nairobi Trio
-4. [Automan - S01E07 - "The Biggest Game in Town" - (1984)](https://en.wikipedia.org/wiki/Automan#Episodes)
-   - Automan and Walter attend a computer game convention where they must track down Ronald Tilson, a computer genius who has programmed computers to cause disasters that will kill people unless he gets ten million dollars.
+4. [Automan - S01E08 - "Renegade Run" - (1984)](https://en.wikipedia.org/wiki/Automan#Episodes)
+   - When Walter investigates a crooked sheriff who is using illegal immigrants for manual labor, he and a friend are put in jail. Automan teams up with a motorcycle gang to free him.
 5. DiC
-6. [Monsters - S02E11 - "Half as Old as Time", Dir: Christopher Todd, Writer: Thomas Babe (1989)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
-   - Dr. Miner (Leif Garrett), an elderly archeologist dying from a brain tumor, begs his tomboy archeologist daughter "Jake" (Valerie Wildman) to take him to the location of an ancient Native American spring presided over by a statue of a snake god; the spring being rumored to actually be the Fountain of Youth...
+6. [Monsters - S02E12 - "Museum Hearts", Dir & Writer: Theodore Gershuny (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
+   - Danny (Patrick Breen) is a sleazy, womanizing museum curator who is cheating on his fiancé Edwina (Sarah Trigger) with a café waitress named Cheryl (Louise Roberts). Edwina discovers Danny's infidelity when she stumbles upon him attempting to have sex with Cheryl in the museum's basement as it is under construction. All three people are unintentionally locked in for the night by the museum staff...
 7. Artie's Workout
 8. Masters Of The Universe Hordak and the Evil Horde UK TV toy advert
 9. Austrailian Garfield Phone Ad
 10. Big Bill Hell's
 11. Katy Perry Slimed
 12. Gonzo Guilt
-13. [What a Cartoon Show - "Wind-Up Wolf", Dir: William Hanna (1996)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
-    - The Big Bad Wolf (voiced by Dee Bradley Baker) creates a robot minion wolf (Dee Bradley Baker) to attempt to finally get the Three Little Pigs (voiced by Dee Bradley Baker and Jeannie Elias).  Note 1: This was based on a cartoon that Tex Avery originally pitched at Hanna-Barbera.  Note 2: William Hanna's final cartoon short.  Note 3: Cameos from The Jetsons.
+13. [What a Cartoon Show - "Yoink of the Yukon", Dir: Don Jurwich, Jerry Eisenberg, and Jim Ryan (1995)](https://en.wikipedia.org/wiki/What_a_Cartoon!)
+    - The mounted police has its uniforms stolen by a bear named Noof (voiced by Rob Paulsen) in retaliation for his forest friends being skinned of their fur, so Yoink and Sergeant Farnsworth Farflung (both voiced by Paulsen) are sent by the mounted police captain (voiced by Charlie Adler) to retrieve them.
 14. Chipmunk Punk Commercial
 15. Lewis Sings Dylan - Martin Short (SCTV 1984)
 16. Monster Ballads
-17. [The Adventures of Pete & Pete - S00E05 - "New Year's Pete" (1993)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Specials_(1991%E2%80%9393))
-    - Little Pete reflects on a year in which he ultimately failed to achieve his New Year's Resolution of changing the world.  Note: This episode is narrated by Little Pete instead of Big Pete. Featuring Deborah Harry as the second land mine customer and Vincent Pastore as the professional bowling scout. It was long rumored that this episode contained a cameo by Hunter S. Thompson because of an extra with a similar name.
-18. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E07
+17. [The Adventures of Pete & Pete - S01E01 - "King of the Road" (1993)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_1_(1993%E2%80%9394))
+    - On a family trip to the Hoover Dam, Don is determined to defend his title of "King of the Road" from a challenging family, but lengthy bathroom breaks and a lack of family cohesion threaten his success.
+18. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E08
     - The Octopus sees something that he really, really wants.  And then he gets it!
 19. Punk CD
 20. Japanese Star Wars Tuna Commercial (1978)
 21. Honda Motocompo / City Ad with Madness! (1981)
 22. Detroit Institute of Arts - You Gotta Have Art!
-23. [Tales From the Darkside - S01E10 - "Djinn, No Chaser" KPLR 3/20/1985](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%931985))
-    - Newlyweds Danny and Connie Squires (Charles Levin and Colleen Camp) purchase a lamp which turns out to hold a genie (Kareem Abdul-Jabbar). Extremely angered at being trapped for 10,000 years, the genie lashes out at his new masters, torturing them with various plagues. Fortunately, Connie offers a simple solution to the genie's problem.  Based on a story by Harlan Ellison and adapted by Haskell Barkin.
+23. [Tales From the Darkside - S01E11 - "All a Clone by the Telephone" KPLR 4/24/1985](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%931985))
+    - Meek, struggling screenwriter Leon (Harry Anderson) is contacted by his answering machine, which happens to come from an alternate universe. Making it known how intensely strong-willed it is, the machine, speaking in Leon's voice, gradually begins to take over the original Leon's life. Eventually, Leon lashes out at the machine and shuts it off, but this ends up sending the machine's "friends" after him; automated recordings torturing him non-stop with useless information.  Written by Haskell Barkin.
 24. A&W Family Restaurants - Root Bear Glass (1981)
 25. Nameneko Japanese Punk Rock Kittens 4
-26. [The Outer Limits S02E16 - "The Deprogrammers", Dir: Joseph L Scanlan, Writer: James Crocker (1996)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_2_(1996))
-    - Earth is under alien occupation and the human race has been conditioned for slavery, unable to think for itself or disobey an order. One human, the slave of an important alien ruler, is captured by a small band of rebel humans who try to break his conditioning and restore his free will. Starring Brent Spiner as Professor Trent Davis.
+26. [The Outer Limits S02E17 - "Paradise", Dir: Mario Azzopardi, Writer: Jonathan Walker and Chris Dickie (1996)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_2_(1996))
+    - Dr. Christina Markham and Sheriff Grady Markham have to investigate a spate of strange incidents involving young and apparently healthy women suddenly growing old and dying.
 27. Dr Bolls Marmalade
 28. Scooter Jousting
-29. [In Search Of... With Leonard Nimoy - S04E01 - "Tidal Waves" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_3_(1978%E2%80%931979))
-    - See a reenactment of the incredible destruction wrought by the tsunami (giant sea wave) that struck Hawaii in 1960.
+29. [In Search Of... With Leonard Nimoy - S04E02 - "Carlos, the Most Wanted Man in the World" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
+    - A chilling profile of the playboy-turned-terrorist called Carlos the Jackal, who was called "The World's Most Wanted Man."  In 1994, Carlos was given up to French intelligence by the Government of Sudan, was charged and subsequently convicted of murder of an informant and is serving a life term in prison, which was lengthened with an additional life term for a terrorist attack on French soil.
 30. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 31. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 32. Undertale - Napping with Ghost (Outro & Raid out)
