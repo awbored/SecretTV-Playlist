@@ -1,9 +1,5 @@
 # 2025/06/17 - SecretTV Playlist
 
-## General News
-
-- I'm back!
-
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
