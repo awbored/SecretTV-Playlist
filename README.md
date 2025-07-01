@@ -1,19 +1,21 @@
-# 2025/06/24 - SecretTV Playlist
+# 2025/07/01 - SecretTV Playlist
 
 ## General News
 
-- Meh!
+- Meh!  And it's July!
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
 2. Colin's Bear Animation
 3. Ernie Kovak's Nairobi Trio
-4. [Automan - S01E13 - "Club Ten" - (1984)](https://en.wikipedia.org/wiki/Automan#Episodes)
-   - The exclusive Club Ten resort is a center for diamond smuggling. When Laura Ferguson stumbles on this secret she manages to put out an SOS call to her old friend Roxanne before being taken prisoner. Roxanne, Walter and Automan are soon on the trail of the missing Laura, unaware they themselves are being trailed. (THE LAST EPISODE!)
+4. [Heat Vision and Jack - Pilot (1999)](https://en.wikipedia.org/wiki/Heat_Vision_and_Jack)
+   - Heat Vision and Jack is a 1999 American comedy science fiction television pilot created and written by Rob Schrab and Dan Harmon, directed by Ben Stiller, and starring Jack Black, Owen Wilson, and Ron Silver. The pilot was originally ordered by Fox, which ultimately did not order it to series. While the show was not picked up, the pilot became a cult classic and gained an online following.
 5. DiC
-6. [Monsters - S02E17 - "One Wolf's Family", Dir: Alex Zamm; Writer: Paul Dini (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
-   - In this comedic, sitcom-style story, the Lupazians, a family of werewolves who have recently immigrated from Europe, try to their best to settle down in their new American neighborhood in spite of their tendency to kill and eat people. The family patriarch, Victor (Jerry Stiller), hears from his devoted wife Greta (Anne Meara) that their daughter Anya (Amy Stiller) has gotten engaged...
+6. [Monsters - S02E18 - "The Offering", Dir: Ernest D. Farino; Writer: Dan Simmons (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
+   - A young man named Louis (Robert Krantz) is currently residing in the hospital, suffering a concussion after a bad car accident. His mother happens to be in the same hospital, suffering from cancer much like his late father, and according to the family doctor, Dr. Hubbard (Orson Bean), her prognosis is poor. That night, Louis goes to his mother's room and witnesses a giant bug-like creature depositing its larvae into his mother's body...
+6. [Monsters - S02E19 - "Far Below", Dir: Debra Hill; Writer: Michael McDowell (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
+   - Dr. Rathmore (Barry Nelson) is the maniacal supervisor of an obscure but essential unit of the subway system of a major city, which he operates from an underground office. His men - Jensen (Rick Goldman), Luchinsky (Calvin Levels), and Watson (Jan Munroe) - while repairing the audio and video cameras in the subway tunnels, come under siege by a race of mysterious, subterranean, yeti-like creatures that feed on human flesh.
 7. Artie's Workout
 8. Masters Of The Universe Hordak and the Evil Horde UK TV toy advert
 9. Austrailian Garfield Phone Ad
@@ -24,26 +26,26 @@
 14. Chipmunk Punk Commercial
 15. LA Gear Commercial (1988)
 16. Monster Ballads
-17. [The Adventures of Pete & Pete - S01E06 - "Don't Tread on Pete" (1993)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_1_(1993%E2%80%9394))
-    - While Big Pete engages in a struggle against time to study for a test on the American Revolutionary War (with the fear that failing would cause him to wind up like the school's janitor, rumored to have failed the same test years before), Little Pete leads his gym class to try to beat his teacher's intramural dodgeball team. 
-18. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E13
+17. [The Adventures of Pete & Pete - S01E07 - "When Petes Collide" (1994)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_1_(1993%E2%80%9394))
+    -  The Petes compete for Dad's affections as he prepares to pass down "Rolling Thunder", a bowling ball that apparently has mystical powers. Things get even more complicated when the Petes' grandfather (William Hickey) visits to oversee the process.
+18. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E14
     - The Octopus sees something that he really, really wants.  And then he gets it!
 19. Punk CD
 19. Sifl & Olly - A Word With Chester - Squirrel
 20. Japanese Star Wars Tuna Commercial (1978)
 21. Honda Motocompo / City Ad with Madness! (1981)
 22. Detroit Institute of Arts - You Gotta Have Art!
-23. [Tales From the Darkside - S01E17 - "Madness Room" KPLR 4/24/1985](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%931985))
-    - Cathy and Edward Osbourne (Therese Pare and Stuart Whitman), along with their attorney Michael Fox (Nick Benedict), discover through communication with a spirit known as Ben that their house contains a boarded up room that causes anyone that steps inside it to go insane...
+23. [Tales From the Darkside - S01E18 - "If the Shoes Fit..." KPLR 5/12/1985](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%931985))
+    - Smarmy politician Bo Gumbs (Dick Shawn) checks into a hotel to prepare for a speech. After he tells the hotel waitstaff his philosophy that politics is solely about entertaining people, they help him to get ready by dressing him up as the clown that he truly is.
 24. A&W Family Restaurants - Root Bear Glass (1981)
 24. Phoone Tawlk (1987)
 25. Nameneko Japanese Punk Rock Kittens 4
-26. [The Outer Limits S02E22 - "The Sentence", Dir: Joseph Scanlan, Writer: Melissa Rosenberg (1996)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_2_(1996))
-    - Dr. Jack Henson (David Hyde Pierce) is conducting experiments in simulating time in prison, which he says will free up space, money and curtail what he feels are inhumane punishments. As a prisoner experiences twenty years in prison, only twenty minutes in reality has passed while he is attached to the machine that Henson has designed. A prisoner brought in for the experiment repeatedly claims to be innocent before being put into the simulation...
+26. [The Outer Limits S03E01 - "Bits of Love", Dir: Neill Fearnley, Writer: James Crocker (1997)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_3_(1997))
+    - After a nuclear holocaust, Aiden Hunter is possibly the last human alive. Despite this, for the last seven months, he has lived a hedonistic life deep below ground in a comfortable hi-tech bunker, with only computer-generated holograms of his friends and family for company...
 27. Dr Bolls Marmalade
 28. Scooter Jousting
-29. [In Search Of... With Leonard Nimoy - S04E07 - "The Shroud of Turin" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
-    - An in-depth examination of the famed cloth that many believe holds the image of Jesus Christ.
+29. [In Search Of... With Leonard Nimoy - S04E08 - "Mexican Pyramids" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
+    - The bloody story of the great pyramids, which were used for daily human sacrifices.
 30. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 31. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 32. Undertale - Napping with Ghost (Outro & Raid out)
