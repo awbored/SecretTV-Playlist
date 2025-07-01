@@ -31,7 +31,7 @@
 18. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E14
     - The Octopus sees something that he really, really wants.  And then he gets it!
 19. Punk CD
-19. Sifl & Olly - A Word With Chester - Squirrel
+19. Sifl & Olly - A Word With Chester - IQ Test
 20. Japanese Star Wars Tuna Commercial (1978)
 21. Honda Motocompo / City Ad with Madness! (1981)
 22. Detroit Institute of Arts - You Gotta Have Art!
