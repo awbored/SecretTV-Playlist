@@ -14,41 +14,43 @@
 5. DiC
 6. [Monsters - S02E18 - "The Offering", Dir: Ernest D. Farino; Writer: Dan Simmons (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
    - A young man named Louis (Robert Krantz) is currently residing in the hospital, suffering a concussion after a bad car accident. His mother happens to be in the same hospital, suffering from cancer much like his late father, and according to the family doctor, Dr. Hubbard (Orson Bean), her prognosis is poor. That night, Louis goes to his mother's room and witnesses a giant bug-like creature depositing its larvae into his mother's body...
-6. [Monsters - S02E19 - "Far Below", Dir: Debra Hill; Writer: Michael McDowell (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
+7. [Monsters - S02E19 - "Far Below", Dir: Debra Hill; Writer: Michael McDowell (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
    - Dr. Rathmore (Barry Nelson) is the maniacal supervisor of an obscure but essential unit of the subway system of a major city, which he operates from an underground office. His men - Jensen (Rick Goldman), Luchinsky (Calvin Levels), and Watson (Jan Munroe) - while repairing the audio and video cameras in the subway tunnels, come under siege by a race of mysterious, subterranean, yeti-like creatures that feed on human flesh.
-7. Artie's Workout
-8. Masters Of The Universe Hordak and the Evil Horde UK TV toy advert
-9. Austrailian Garfield Phone Ad
-10. Big Bill Hell's
-11. Katy Perry Slimed
-12. Gonzo Guilt
-13. Madness Colgate Advert
-14. Chipmunk Punk Commercial
-15. LA Gear Commercial (1988)
-16. Monster Ballads
-17. [The Adventures of Pete & Pete - S01E07 - "When Petes Collide" (1994)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_1_(1993%E2%80%9394))
+8. Artie's Workout
+9. Masters Of The Universe Hordak and the Evil Horde UK TV toy advert
+10. Austrailian Garfield Phone Ad
+11. Big Bill Hell's
+12. Katy Perry Slimed
+13. Gonzo Guilt
+14. Madness Colgate Advert
+15. Chipmunk Punk Commercial
+16. LA Gear Commercial (1988)
+17. Boglins Hotline Commercial (1988)
+18. Monster Ballads
+19. [The Adventures of Pete & Pete - S01E07 - "When Petes Collide" (1994)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_1_(1993%E2%80%9394))
     -  The Petes compete for Dad's affections as he prepares to pass down "Rolling Thunder", a bowling ball that apparently has mystical powers. Things get even more complicated when the Petes' grandfather (William Hickey) visits to oversee the process.
-18. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E14
+20. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E14
     - The Octopus sees something that he really, really wants.  And then he gets it!
-19. Punk CD
-19. Sifl & Olly - A Word With Chester - IQ Test
-20. Japanese Star Wars Tuna Commercial (1978)
-21. Honda Motocompo / City Ad with Madness! (1981)
-22. Detroit Institute of Arts - You Gotta Have Art!
-23. [Tales From the Darkside - S01E18 - "If the Shoes Fit..." KPLR 5/12/1985](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%931985))
+21. Punk CD
+22. Jimmy the Cab Driver - Ironic Parody (1996)
+23. Sifl & Olly - A Word With Chester - IQ Test
+24. Japanese Star Wars Tuna Commercial (1978)
+25. Honda Motocompo / City Ad with Madness! (1981)
+26. Detroit Institute of Arts - You Gotta Have Art!
+27. [Tales From the Darkside - S01E18 - "If the Shoes Fit..." KPLR 5/12/1985](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%931985))
     - Smarmy politician Bo Gumbs (Dick Shawn) checks into a hotel to prepare for a speech. After he tells the hotel waitstaff his philosophy that politics is solely about entertaining people, they help him to get ready by dressing him up as the clown that he truly is.
-24. A&W Family Restaurants - Root Bear Glass (1981)
-24. Phoone Tawlk (1987)
-25. Nameneko Japanese Punk Rock Kittens 4
-26. [The Outer Limits S03E01 - "Bits of Love", Dir: Neill Fearnley, Writer: James Crocker (1997)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_3_(1997))
+27. A&W Family Restaurants - Root Bear Glass (1981)
+28. Phoone Tawlk (1987)
+29. Nameneko Japanese Punk Rock Kittens 4
+30. [The Outer Limits S03E01 - "Bits of Love", Dir: Neill Fearnley, Writer: James Crocker (1997)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_3_(1997))
     - After a nuclear holocaust, Aiden Hunter is possibly the last human alive. Despite this, for the last seven months, he has lived a hedonistic life deep below ground in a comfortable hi-tech bunker, with only computer-generated holograms of his friends and family for company...
-27. Dr Bolls Marmalade
-28. Scooter Jousting
-29. [In Search Of... With Leonard Nimoy - S04E08 - "Mexican Pyramids" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
+31. Dr Bolls Marmalade
+32. Home-Made Playground (1967)
+33. [In Search Of... With Leonard Nimoy - S04E08 - "Mexican Pyramids" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
     - The bloody story of the great pyramids, which were used for daily human sacrifices.
-30. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-31. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-32. Undertale - Napping with Ghost (Outro & Raid out)
+34. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+35. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+36. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 
