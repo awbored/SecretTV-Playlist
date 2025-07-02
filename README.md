@@ -46,8 +46,8 @@
     - After a nuclear holocaust, Aiden Hunter is possibly the last human alive. Despite this, for the last seven months, he has lived a hedonistic life deep below ground in a comfortable hi-tech bunker, with only computer-generated holograms of his friends and family for company...
 31. Dr Bolls Marmalade
 32. Home-Made Playground (1967)
-33. [In Search Of... With Leonard Nimoy - S04E08 - "Mexican Pyramids" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
-    - The bloody story of the great pyramids, which were used for daily human sacrifices.
+33. [In Search Of... With Leonard Nimoy - S04E09 - "The Abominable Snowman" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
+    - Leonard Nimoy examines the experiences of the explorers who say they have actually sighted the legendary creature.
 34. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 35. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 36. Undertale - Napping with Ghost (Outro & Raid out)
