@@ -1,4 +1,4 @@
-# 2025/07/08 - SecretTV Playlist
+# 2025/07/15 - SecretTV Playlist
 
 ## General News
 
@@ -9,46 +9,48 @@
 1. Secret TV Roller Coaster (intro)
 2. Colin's Bear Animation
 3. Ernie Kovak's Nairobi Trio
-4. [Robocop - S01E01 Pilot - "The Future of Law Enforcement" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
-   - RoboCop and Madigan uncover a conspiracy by an insane genius and an OCP executive to develop a computer linked to a human brain designed to run the entire city.
+4. [Robocop - S01E03 - "Prime Suspect / First Suspect" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
+   - When televangelist Reverend Bob Taker is killed and the murder weapon is RoboCop's gun, he is arrested and placed on trial. He has an alibi which he refuses to divulge, so he's about to be deactivated.
 5. DiC
-6. [Monsters - S02E20 - "Micro Minds", Dir: Anthony Santa Croce; Writer: D. Emerson Smith (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
-   - In an homage to 1950s sci-fi movies, Dr. Thomas Becker (Troy Donahue), an astronomer, is upset that graduate student Paula (Belle Avery) hasn't been to his class. When the two meet, Paula reveals that she's made contact with an alien race. Noting that the source of the communication seems to be nearby, Paula theorizes that the aliens' ship must be in Earth's orbit...
-8. Artie's Workout
-9. Masters Of The Universe Hordak and the Evil Horde UK TV toy advert
-10. Austrailian Garfield Phone Ad
-11. Big Bill Hell's
-12. Katy Perry Slimed
-13. Gonzo Guilt
-14. Madness Colgate Advert
-15. Chipmunk Punk Commercial
-16. LA Gear Commercial (1988)
-17. Boglins Hotline Commercial (1988)
-18. Monster Ballads
-19. [The Adventures of Pete & Pete - S01E08 - "Hard Day's Pete" (1994)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_1_(1993%E2%80%9394))
-    - On his way to school, Little Pete happens upon a garage band playing his newfound favorite song: "Summerbaby" by Polaris. When he returns later that day, all traces of the band have vanished. Pete starts his own band to try to remember the tune before it forever slips his mind.
-20. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E15
+6. [Monsters - S02E21 - "Refugee", Dir: Scott Vickrey; Writer: Haskel Barkin (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
+   - Paul (Peter White), a disillusioned former spy, is brought out of retirement by his superior Oliver Ferguson (Philip Abbott). Paul is tasked with retrieving Anna Solenska (Judy Geeson), a Soviet physicist who is on the run after defecting from her nation. Paul and Anna manage to make their way to a safe house, but they are tracked down. The culprits turn out to not be KGB agents, but rather agents of the Devil...
+7. Artie's Workout
+8. Masters Of The Universe Hordak and the Evil Horde UK TV toy advert
+9. Austrailian Garfield Phone Ad
+10. Big Bill Hell's
+11. Katy Perry Slimed
+12. Gonzo Guilt
+13. Madness Colgate Advert
+14. Chipmunk Punk Commercial
+15. LA Gear Commercial (1988)
+16. Boglins Hotline Commercial (1988)
+17. Monster Ballads
+18. [The Adventures of Pete & Pete - S02E09 - "Grounded for Life" (1994)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_1_(1993%E2%80%9394))
+    - Little Pete destroys Dad's lawn in an experiment gone awry, and after being caught making a break for the Canadian border is grounded for a month and is forced to tunnel his way out of the house past a state-of-the-art security system in order to make it to the celebrations of his favorite holiday, the Fourth of July. During his escape attempt Pete meets Nona F. Mecklenberg (Michelle Trachtenberg), who has just moved to Wellsville and is trying to get her dog to pee.
+19. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E16
     - The Octopus sees something that he really, really wants.  And then he gets it!
-21. Punk CD
+20. Punk CD
+21. Diet Coke Ad with Weird Al
 22. Jimmy the Cab Driver - Ironic Parody (1996)
-23. Sifl & Olly - A Word With Chester - IQ Test
+23. Sifl & Olly - A Word With Chester - Tranquilized
 24. Japanese Star Wars Tuna Commercial (1978)
 25. Honda Motocompo / City Ad with Madness! (1981)
 26. Detroit Institute of Arts - You Gotta Have Art!
-27. [Tales From the Darkside - S01E19 - "Levitation" KPLR 5/27/1985](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%931985))
-    - College student Frank (Brad Cowgill), accompanied by his friend Ernie (Anthony Thompkins), goads The Great Kharma (Joe Turkel), a once-famous magician, into performing his greatest feat: wireless levitation. When Kharma relents and finally manages to perform the trick on Frank, the results are disastrous.
-27. A&W Family Restaurants - Root Bear Glass (1981)
-28. Phoone Tawlk (1987)
-29. Nameneko Japanese Punk Rock Kittens 4
-30. [The Outer Limits S03E02 - "Second Thoughts", Dir: Mario Azzopardi, Writer: Sam Egan (1997)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_3_(1997))
-    - Karl Durand (Howie Mandel) is a man in his 30s, but with the mind of a child. Dr. Jacob Valerian discovers a method for transferring memories and experiences into another person's brain. As his last dying act, he transfers his own memories into Karl's brain. Karl begins to have flashes of skill and talent from absorbing the doctor's memories. When he accidentally kills another man...
-31. Dr Bolls Marmalade
-32. Home-Made Playground (1967)
-33. [In Search Of... With Leonard Nimoy - S04E10 - "Pompeii" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
-    - This great Roman city was a wealthy resort and mecca for fun-lovers before it was destroyed by the eruption of Mount Vesuvius. Were early Christians among the Roman revelers?
-34. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-35. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-36. Undertale - Napping with Ghost (Outro & Raid out)
+27. [Tales From the Darkside - S01E20 - "It All Comes Out in the Wash" KPLR 5/28/1985](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%931985))
+    - Real estate developer Carl Gropper (Vince Edwards) discovers that laundromat owner Chow Ting (James Hong) is purportedly able to wash away the sin of his clients. With this in mind, Carl pays Ting for his special service, then goes onto engage in various increasingly mean-spirited actions to move up in the world, believing that his guilt will be washed away.
+28. A&W Family Restaurants - Root Bear Glass (1981)
+29. Colonial Lanes Bowling - Home of Gutterman
+30. Phoone Tawlk (1987)
+31. Nameneko Japanese Punk Rock Kittens 4
+32. [The Outer Limits S03E03 - "Re-generation", Dir: Brenton Spencer, Writer: Tom J Astle (1997)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_3_(1997))
+    - A high-profile and powerful public figure, Graham's (Daniel Benzali) position allows him to offer the opportunity to clone their deceased son. Rebecca (Kim Cattrall) is at first horrified and repulsed, but eventually agrees to undergo the procedure. After six months, strange things happen. Rebecca begins seeing things from her son's eyes...
+33. Dr Bolls Marmalade
+34. Home-Made Playground (1967)
+35. [In Search Of... With Leonard Nimoy - S04E11 - "D.B. Cooper" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
+    - The incredible story of the man who hijacked a jetliner, parachuted out with his loot, and was never seen again.
+36. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+37. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+38. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 
