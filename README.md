@@ -1,4 +1,4 @@
-# 2025/07/22 - SecretTV Playlist
+# 2025/07/29 - SecretTV Playlist
 
 ## General News
 
@@ -9,11 +9,11 @@
 1. Secret TV Roller Coaster (intro)
 2. Colin's Bear Animation
 3. Ernie Kovak's Nairobi Trio
-4. [Robocop - S01E04 - "Trouble in Delta City / Delta City"" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
-   - A new miracle drug gets rushed to the market by OCP, but more thorough testing reveals that it has powerful mind-altering properties. This causes many people in Delta City to have violent and psychotic outbursts, including none other than officer Madigan. RoboCop investigates to discover the truth about the dangerous drug and to get it off the streets, as well as clear Madigan of any wrongdoing.
+4. [Robocop - S01E05 - "Officer Missing / Absence of Police" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
+   - Feeling like the Chairman has been enjoying the spoils of OCP for too long, RoboCop decides to take him on a tour of the rundown part of Old Detroit. There he witnesses first hand the chaos and destruction left in the wake of big business. To make matters worse, a bizarre band of pirates has been terrorizing the streets, and RoboCop gets attacked by them and starts malfunctioning. In order to escape this nightmare, the two must team up with the parents of a sick child who needs a lung transplant.
 5. DiC
-6. [Monsters - S02E22 - "The Gift", Dir: Jeffrey Wolf; Writer: D. Emerson Smith (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
-   - Sid Dolan (Abe Vigoda) and his partner Kirby (Brad Greenquist), a pair of ruthless criminals, have kidnapped neglected rich kid Jeffrey (Zach Overton) and taken him to their mountain hideout to hold him for ransom. While searching the basement for blankets after Jeffrey complains about the cold, the duo discover a furry beast (performed by Carlos Lauchu, voiced by John Michael Bolger) in the hideout's cellar...
+6. [Monsters - S02E23 - "The Bargain", Dir/Writer: Tom Noonan (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
+   - Lonely bookstore owner Sarah (Kim Greist) is desperate to win the heart of a handsome TV repairman named Joe (Kevin Geer). She dials the phone number in a beauty ad she discovers in a 50-year-old magazine, and is visited by Carmen (Sharon Sharth, appearing as "Sharon Schlarth"), a young woman with a deformed face. Carmen offers Sarah a chance to become beautiful with a magic mask that will give her a new face, but insists that her services come with a price...
 7. Artie's Workout
 8. Masters Of The Universe Hordak and the Evil Horde UK TV toy advert
 9. Austrailian Garfield Phone Ad
@@ -25,9 +25,9 @@
 15. LA Gear Commercial (1988)
 16. Boglins Hotline Commercial (1988)
 17. Monster Ballads
-18. [The Adventures of Pete & Pete - S02E02 - "Field of Pete" (1994)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_2_(1994))
-    - Big Pete's baseball team (The Prosthetics) goes on a winning streak due to Little Pete's incredible knack for making distracting comments. Coach Ed Narrins' win-or-die attitude, a super-cold slushy drink called the Orange Lazarus, and Little Pete's dirty tactics threaten to destroy baseball forever, and Big Pete must choose between ultimate glory and the personal integrity of the sport he loves.  Note: The episode's title is a parody of 1989 sports fantasy film, Field of Dreams.
-19. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E17
+18. [The Adventures of Pete & Pete - S02E03 - "The Call" (1994)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_2_(1994))
+    - For twenty-seven years, Wellsville has been gripped by the terror of a pay phone that has never stopped ringing. On the hottest day of the summer, Little Pete decides to answer the phone while Big Pete decides to figure out who the call is for.
+19. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E18
     - The Octopus sees something that he really, really wants.  And then he gets it!
 20. Punk CD
 21. Diet Coke Ad with Weird Al
@@ -36,18 +36,18 @@
 24. Japanese Star Wars Tuna Commercial (1978)
 25. Honda Motocompo / City Ad with Madness! (1981)
 26. Detroit Institute of Arts - You Gotta Have Art!
-27. [Tales From the Darkside - S01E21 - "Bigalow's Last Smoke"](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%931985))
-    - Chain smoker Frank Bigalow (Richard Romanus) wakes up in a replica of his apartment outfitted with alarms and bars on the windows. He is overseen by Dr. Synapsis (Sam Anderson), an addiction counselor, who tells Frank that he will only be allowed to leave his prison if he quits smoking of his own accord.
+27. [Tales From the Darkside - S01E22 - "Grandma's Last Wish"](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_1_(1984%E2%80%931985))
+    - The doddering and slightly senile Grandma Rollins (Jane Connell) is treated as a burden by her self-centered, unsympathetic family, who plan to throw her in a nursing home against her will. When she is told to make a wish the week before she leaves, her family grows to understand, quite literally, the hardships that come with old age.  Written by Jule Selbo.
 28. A&W Family Restaurants - Root Bear Glass (1981)
 29. Colonial Lanes Bowling - Home of Gutterman
 30. Phoone Tawlk (1987)
 31. Nameneko Japanese Punk Rock Kittens 4
-32. [The Outer Limits S03E04 - "Last Supper", Dir: Helen Shaver, Writer: Scott Shepherd (1997)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_3_(1997))
-    - Frank Martin's son Danny (Fred Savage) brings home a beautiful girl to meet his family. The girl, Jade (Sandrine Holt), looks exactly like a girl Frank once rescued from a top-secret military experiment 20 years before.
+32. [The Outer Limits S03E05 - "Stream of Consciousness", Dir: Joe Nimziki, Writer: David Shore (1997)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_3_(1997))
+    - Due to a brain injury, Ryan Unger cannot enjoy the benefits of a neural implant that allows other people to tap into The Stream, which is a direct connection into all human knowledge. He tries, unsuccessfully, to keep up with everyone else by using a long-forgotten skill: reading books... 
 33. Dr Bolls Marmalade
 34. Home-Made Playground (1967)
-35. [In Search Of... With Leonard Nimoy - S04E12 - "The Ten Commandments" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
-    - Leonard Nimoy profiles Moses and tries to pinpoint Mount Sinai's exact location. Have pilgrims to the Holy Land been praying at the wrong location?
+35. [In Search Of... With Leonard Nimoy - S04E14 - "The San Andreas Fault" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
+    - Analyzes California's great earthquake fault line to determine whether the long-predicted catastrophic quake can be predicted.
 36. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 37. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 38. Undertale - Napping with Ghost (Outro & Raid out)
