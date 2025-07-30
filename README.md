@@ -46,8 +46,7 @@
     - Due to a brain injury, Ryan Unger cannot enjoy the benefits of a neural implant that allows other people to tap into The Stream, which is a direct connection into all human knowledge. He tries, unsuccessfully, to keep up with everyone else by using a long-forgotten skill: reading books... 
 33. Dr Bolls Marmalade
 34. Home-Made Playground (1967)
-35. [In Search Of... With Leonard Nimoy - S04E14 - "The San Andreas Fault" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
-    - Analyzes California's great earthquake fault line to determine whether the long-predicted catastrophic quake can be predicted.
+35. Happy Birthday spy_hapa!  Gong Show!
 36. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 37. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 38. Undertale - Napping with Ghost (Outro & Raid out)
