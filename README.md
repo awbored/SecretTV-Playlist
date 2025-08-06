@@ -37,7 +37,7 @@
 25. Honda Motocompo / City Ad with Madness! (1981)
 26. Detroit Institute of Arts - You Gotta Have Art!
 27. [Tales From the Darkside - S02E01 - "The Impressionist"](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
-    - Cassie Pines (Ronee Blakley), a ditzy, idiotic, superstitious woman, travels by bus to Texas to find her soulmate on the advice of a psychic machine. Before she reaches her destination however, she comes across another psychic machine that warns her against continuing on her trip, citing the threat of a potential false prophet.  Written by Jule Selbo.
+    - Through a combination of blackmail and boredom with his career, nightclub impressionist Spiffy Remo/"Mr. Personalities" (Chuck McCann) is brought to a secret government facility that houses a stubborn alien known as Hoffgosh. Seeing that Hoffgosh communicates primarily in gestures, Remo is tasked with emulating said gestures with absolute perfection in order to communicate with the alien, who happens to hold the secret to nuclear fusion.  Based on the short story "Impersonations" by M. Coleman Easton, adapted by Haskell Barkin.
 28. A&W Family Restaurants - Root Bear Glass (1981)
 29. Colonial Lanes Bowling - Home of Gutterman
 30. Phoone Tawlk (1987)
