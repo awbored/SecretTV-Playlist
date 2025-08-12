@@ -21,7 +21,7 @@
 11. Chipmunk Punk Commercial
 12. 5 Neat Guys Neatest Hits
 13. [PBS Video - Mysteries of Deep Space - The Search for Alien Worlds (1997)](https://www.pbs.org/deepspace/broadcast/)
-    -  Since the time of Aristotle, humans have wondered, "Are we alone?" The concluding hour tracks the accelerating search for planets and the presence of life beyond the solar system. 
+    -  Since the time of Aristotle, humans have wondered, "Are we alone?" This tape tracks the accelerating search for planets and the presence of life beyond the solar system. 
 14. Punk CD
 15. Diet Coke Ad with Weird Al
 16. The Brak Show - S01E01 - Mr. Bawk Bw Gawk
