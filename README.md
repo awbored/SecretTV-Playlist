@@ -2,7 +2,7 @@
 
 ## General News
 
-- We have completely fuded our Charity, $1000 towards the [Transgender Law Center](https://transgenderlawcenter.org/)!!  [@kashgfuiophf](https://www.twitch.tv/kashgfuiophf) had given the final donations so we are doing a set of VHS tapes from their collection!  Thank you kash!!!
+- We have completely funded our Charity, $1000 towards the [Transgender Law Center](https://transgenderlawcenter.org/)!!  [@kashgfuiophf](https://www.twitch.tv/kashgfuiophf) had given the final donations so we are doing a set of VHS tapes from their collection!  Thank you kash!!!
 
 ## SecretTV Playlist
 
