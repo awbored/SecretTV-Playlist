@@ -13,7 +13,7 @@
    - Umm learn some sick tricks for your fingerboard...
 5. DiC
 6. [Mr T's Be Somebody (1984)](https://en.wikipedia.org/wiki/Be_Somebody..._or_Be_Somebody%27s_Fool!)
-   - The video proceeds strongly from new wave and R&B culture of the mid-1980s to appeal to children to respect adults, avoid peer pressure, and build self-confidence.
+   - This is an educational video, where Mr. T attempts to instill good values (honor thy mother, don't give in to peer pressure, etc..) to kids through Rapping and Breakdancing, among other things.
 7. Artie's Workout
 8. Big Bill Hell's
 9. Katy Perry Slimed
