@@ -2,55 +2,46 @@
 
 ## General News
 
-- Meh!  And it's... August?!
+- We have completely fuded our Charity, $1000 towards the [Transgender Law Center](https://transgenderlawcenter.org/)!!  [@kashgfuiophf](https://www.twitch.tv/kashgfuiophf) had given the final donations so we are doing a set of VHS tapes from their collection!  Thank you kash!!!
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
 2. Colin's Bear Animation
 3. Ernie Kovak's Nairobi Trio
-4. [Robocop - S01E06 - "What Money Can't Buy" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
-   - A sickly boy who was rescued from the slums of Old Detroit desperately needs a lung transplant to stay alive. At the eleventh hour, his donor lungs are stolen by thieves who harvest organs and sell them on the black market for top dollar. It's up to RoboCop to shut down this illegal organ trafficking operation and recover the boy's donor organs in time to save his life.
+4. [Flying Fingers - Volume 1 Mini-Skateboard Basics (1999)](https://www.ebay.com/itm/196868669418)
+   - Umm learn some sick tricks for your fingerboard...
 5. DiC
-6. [Monsters - S02E24 - "The Family Man" (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
-   - In this homage to They Live, Angie (Annie Corley), a single mother whose police officer husband died a year and a half ago, has recently begun dating a psychologist named Warren (Michael O'Gorman). While her teenage daughter Terri (Kelli Rabke) is happy for Angie's new love, her young son Neil (Calvin Armitage) is not. Neil has also been prescribed new glasses, which he doesn't like, prompting him to wear his late father's glasses instead...
+6. [Mr T's Be Somebody (1984)](https://en.wikipedia.org/wiki/Be_Somebody..._or_Be_Somebody%27s_Fool!)
+   - The video proceeds strongly from new wave and R&B culture of the mid-1980s to appeal to children to respect adults, avoid peer pressure, and build self-confidence.
 7. Artie's Workout
-8. Masters Of The Universe Hordak and the Evil Horde UK TV toy advert
-9. Austrailian Garfield Phone Ad
-10. Big Bill Hell's
-11. Katy Perry Slimed
-12. Gonzo Guilt
-13. Madness Colgate Advert
-14. Chipmunk Punk Commercial
-15. LA Gear Commercial (1988)
-16. Boglins Hotline Commercial (1988)
-17. Monster Ballads
-18. [The Adventures of Pete & Pete - S02E04 - "The Big Quiet" (1994)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_2_(1994))
-    - Little Pete copes with the death of his pet lizard Gary while Big Pete struggles to improve his relationship with Dad in hopes of avoiding a lifetime of awkward conversations. Little Pete ends up saving the day by going on his WART radio to announce the passing of Gary and encourages others to take a brief silence for it.
-19. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E19
+8. Big Bill Hell's
+9. Katy Perry Slimed
+10. Gonzo Guilt
+11. Chipmunk Punk Commercial
+12. 5 Neat Guys Neatest Hits
+13. [PBS Video - Mysteries of Deep Space - The Search for Alien Worlds (1997)](https://www.pbs.org/deepspace/broadcast/)
+    -  Since the time of Aristotle, humans have wondered, "Are we alone?" The concluding hour tracks the accelerating search for planets and the presence of life beyond the solar system. 
+14. Punk CD
+15. Diet Coke Ad with Weird Al
+16. The Brak Show - S01E01 - Mr. Bawk Bw Gawk
+17. Downtown - S01E01 - Sin Bin    
+18. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E20
     - The Octopus sees something that he really, really wants.  And then he gets it!
-20. Punk CD
-21. Diet Coke Ad with Weird Al
-22. Jimmy the Cab Driver - Ironic Parody (1996)
-23. Sifl & Olly - A Word With Chester - Acting
-24. Japanese Star Wars Tuna Commercial (1978)
-25. Honda Motocompo / City Ad with Madness! (1981)
-26. Detroit Institute of Arts - You Gotta Have Art!
-27. [Tales From the Darkside - S02E01 - "The Impressionist"](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
-    - Through a combination of blackmail and boredom with his career, nightclub impressionist Spiffy Remo/"Mr. Personalities" (Chuck McCann) is brought to a secret government facility that houses a stubborn alien known as Hoffgosh. Seeing that Hoffgosh communicates primarily in gestures, Remo is tasked with emulating said gestures with absolute perfection in order to communicate with the alien, who happens to hold the secret to nuclear fusion.  Based on the short story "Impersonations" by M. Coleman Easton, adapted by Haskell Barkin.
-28. A&W Family Restaurants - Root Bear Glass (1981)
-29. Colonial Lanes Bowling - Home of Gutterman
-30. Phoone Tawlk (1987)
-31. Nameneko Japanese Punk Rock Kittens 4
-32. [The Outer Limits S03E06 - "Dark Rain" (1997)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_3_(1997))
-    - A chemical war leaves most of humanity unable to reproduce. Only rare couples, such as Sherry and Tim McAllister, are able to have healthy normal children. Sherry and Tim McAllister conceive and become the focus of intense attention from the government. The couple slowly comes to the realization of how important the pregnancy is to the government, and how far it will go to get what it wants...
-33. Dr Bolls Marmalade
-34. Home-Made Playground (1967)
-35. [In Search Of... With Leonard Nimoy - S04E14 - "The San Andreas Fault" (1979)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
-    - Analyzes California's great earthquake fault line to determine whether the long-predicted catastrophic quake can be predicted.
-36. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-37. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-38. Undertale - Napping with Ghost (Outro & Raid out)
+19. Jimmy the Cab Driver - Ironic Parody (1996)
+20. Sifl & Olly - A Word With Chester - Acting
+21. Japanese Star Wars Tuna Commercial (1978)
+22. Honda Motocompo / City Ad with Madness! (1981)
+23. Detroit Institute of Arts - You Gotta Have Art!
+24. A&W Family Restaurants - Root Bear Glass (1981)
+25. Colonial Lanes Bowling - Home of Gutterman
+26. Phoone Tawlk (1987)
+27. Home-Made Playground (1967)
+28. [Worlds Greatest Train Ride Videos - Trans-Siberia (1995)](https://www.themoviedb.org/movie/1160728-world-s-greatest-train-ride-videos-trans-siberia)
+    - The World's Greatest Train Ride" video series takes you on the train adventure of a lifetime! Filled with all the breathtaking excitement of authentic train travel, this exhilarating journey through Russia takes you on a complete rail tour.
+29. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+30. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+31. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 
