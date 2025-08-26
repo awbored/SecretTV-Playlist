@@ -1,59 +1,46 @@
-# 2025/08/19 - SecretTV Playlist
+# 2025/08/26 - SecretTV Playlist
 
 ## General News
 
-- Meh!  And it's... Why is August almost over?!
+- [Paul Reuben](https://en.wikipedia.org/wiki/Paul_Reubens)'s birthday is on 8/27!  We will celebrate the luckiest boy in the world by having Pee-Wee bits in lieu of the Regulars.
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
-2. 900-Freak-Phone
-3. Chevy Astro Van (1985)
-4. [Robocop - S01E07 - "Ghosts of War" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
-   - A band of mercenaries begins terrorizing Delta City, and RoboCop must put a stop to them before they carry out a terrorist attack. However, this is no ordinary band of thugs, as the members of this particular group fancy their own identities after their own childhood superheroes...
-5. DiC
-6. [Monsters - S03E01 - "Stressed Environment" (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_2_(1989%E2%80%9390))
-   - Dr. Elizabeth Porter (Carol Lynley) has spent the last 12 years leading a team of scientists in conducting heavy experimentation on lab rats, regularly subjecting them to environmental stress under the belief that prolonged exposure to said stress will cause their intelligence to rise...
-7. [Police Squad - S01E01 - "A Substantial Gift (The Broken Promise)" (1982)](https://en.wikipedia.org/wiki/A_Substantial_Gift_(The_Broken_Promise))
-   - Sally Decker (Kathryn Leigh Scott), a teller at a credit union, murders her boss so she can steal money from the credit union and pay her orthodontist bills. She kills a customer and frames him for the murder. The Police Squad department is called in to investigate the case. Frank is suspicious about the customer's guilt.
-8. Artie's Workout
-9. Transformers Autobot Cars and Decepticon Planes
-10. Austrailian Garfield Phone Ad
-11. Big Bill Hell's
-12. Katy Perry Slimed
-13. Gonzo Guilt
-14. Madness Colgate Advert
-15. Chipmunk Punk Commercial
-16. LA Gear Commercial (1988)
-17. Boglins Hotline Commercial (1988)
-18. Pepsi Young MC Cool Cans
-19. [The Adventures of Pete & Pete - S02E05 - "Time Tunnel" (1994)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_2_(1994))
-    - On the day that Daylight Saving Time ends in the fall, the Petes traditionally celebrate the extra hour by taking advantage of the "time warp" to do something momentous. This year, however, Big Pete is overcome by hormones and asks Ellen out on an official date. He enlists the help of his nemesis, "Endless" Mike Hellstrom, to help the date go smoothly...
-20. クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus - D01E21
+2. Carl Reiner introduces the young comedian, Pee-Wee Herman
+3. [Robocop - S01E08 - "Zone Five" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
+   - OCP appoints a vigilante group as new neighborhood watch team in order to solve an ongoing drug problem. They are too hasty in their decision, as it becomes clear that they are actually the drug pushers, and using the watch group as a cover for their operation. RoboCop feels he must step in and expose the operation, especially when he finds his son has been recruited by the group.
+4. DiC
+5. [Monsters - S03E02 - "Murray's Monster" (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
+   - In this black comedy, Sherwin (Joe Flaherty), a hen-pecked psychiatrist, is married to Luann (Miriam Flynn), a domineering woman who coddles and suffocates him 24/7. Several years of being passive-aggressively pushed around and talked down to by his wife has given Sherwin a burning hatred for her, and he constantly tries to remedy this by getting his ditzy blonde secretary Debbie (Teresa Ganzel) to sleep with him...
+6. [Police Squad - S01E02 - "Ring of Fear (A Dangerous Assignment)" (1982)](https://en.wikipedia.org/wiki/Police_Squad!#Episodes)
+   - To expose corrupt boxing manager Mr. Martin (Rudy Solari), Frank goes undercover as a manager. Frank makes a deal with boxer Buddy Briggs, whom he trains for a title fight against the current champion "The Champ" (Grand L. Bush)...
+7. Artie's Workout
+8. Transformers Autobot Cars and Decepticon Planes
+9. Austrailian Garfield Phone Ad
+10. Big Bill Hell's
+11. An Evening at the Improv - Pee Wee Herman (1983)
+12. Pee-wee Herman (Paul Reubens) on the Arsenio Hall Show
+13. [The Adventures of Pete & Pete - S02E06 - "Halloweenie" (1994)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_2_(1994))
+    - Little Pete decides to enter the annals of history by breaking the record for most houses visited on Halloween and tries to enlist the help of Big Pete. Big Pete is torn between his loyalty to his brother and the coming-of-age & abandonment of the childhood ritual of trick-or-treating...
+14. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E22
     - The Octopus sees something that he really, really wants.  And then he gets it!
-21. 5 Neat Guys Neatest Hits
-22. Punk CD
-23. Diet Coke Ad with Weird Al
-24. Jimmy the Cab Driver - Ironic Parody (1996)
-25. Sifl & Olly - A Word With Chester - Acting
-26. Japanese Star Wars Tuna Commercial (1978)
-27. Honda Motocompo / City Ad with Madness! (1981)
-28. Detroit Institute of Arts - You Gotta Have Art!
-29. [Tales From the Darkside - S02E02 - "Lifebomb" (1985)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
-    - Ben Martin (Bill Macy), a workaholic corporate executive with an ailing heart, is given the chance to have a "Lifebomb", a medical device that incases him in a life-preserving cocoon should he suffer a heart attack, installed on his back...
-30. A&W Family Restaurants - Root Bear Glass (1981)
-31. Colonial Lanes Bowling - Home of Gutterman
-32. Phoone Tawlk (1987)
-33. Weezer Cover Goes Wrong
-34. [The Outer Limits S03E07 - "The Camp" (1997)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_3_(1997))
-    - For the last twelve generations, humankind has been enslaved by an alien race and imprisoned in concentration camps. One woman, Prisoner 98843 (Harley Jane Kozak), dares to challenge the authority of the Commandant (David Hemblen). Her desire to be free is pitted against the seemingly invincible alien New Masters...
-35. Motobecane 50 Enduro
-36. Home-Made Playground (1967)
-37. [In Search Of... With Leonard Nimoy - S04E15 - "The Missing Heir" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
-    - There is still a $3.2 million fortune that remains unclaimed after a century. To whom does it belong?
-38. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-39. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-40. Undertale - Napping with Ghost (Outro & Raid out)
+15. Pee Wee Herman Takes Dave For A Drive In The Country
+16. [Tales From the Darkside - S02E03 - "Ring Around the Redhead" (1985)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
+    - In a story presented as a mashup of various film genres, Billy Malone (John Heard), an inventor sentenced to death for a murder he didn't commit, tells his story to a journalist named Adele. According to Billy, after an earthquake, a strange, metallic ring appeared in his workshop. Discovering that the ring acted as a gateway to alien planets...
+17. A&W Family Restaurants - Root Bear Glass (1981)
+18. Colonial Lanes Bowling - Home of Gutterman
+19. Phoone Tawlk (1987)
+20. Pee Wee Herman And Dave's Haunted Mansion
+21. [The Outer Limits S03E08 - "Heart's Desire" (1997)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_3_(1997))
+    - A visitor from another world takes over the body of a human preacher in the town of Heart's Desire in the Oregon Territory in 1872. He gives four outlaws a special energy power which they can use to destroy anything they wish as long as they "want it more than anything else."
+22. Motobecane 50 Enduro
+23. Home-Made Playground (1967)
+24. [In Search Of... With Leonard Nimoy - S04E16 - "Vincent Van Gogh" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
+    - A look at the life and death of the great Dutch master—was he really mad? Host Leonard Nimoy, who wrote this installment partially to promote his one-man show Vincent, found evidence that he was not.
+25. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+26. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+27. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 
