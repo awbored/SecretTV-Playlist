@@ -1,4 +1,4 @@
-# 2025/09/09 - SecretTV Playlist
+# 2025/09/16 - SecretTV Playlist
 
 ## General News
 
@@ -9,13 +9,13 @@
 1. Secret TV Roller Coaster (intro)
 2. Chevy Astro Van (1985)
 3. He's the man they call ReVeen!
-4. [Robocop - S01E10 - "Faces of Eve" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
-   - A new miracle product from OCP offers consumers new identities via gene transplant therapy. Things go wrong quickly when Pudface Morgan and his gang become aware of this product, and use it to spring out of prison and commit a murder...
+4. [Robocop - S01E11 - "When Justice Fails" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
+   - RoboCop and Officer Madigan race to save the lives of four astronauts as they go head-to-head against a flamboyant corporate raider who values profits more than safety.
 5. DiC
-6. [Monsters - S03E04 - "Cellmates" (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
-   - Timothy Danforth (Maxwell Caulfield), the arrogant, spoiled, and racist son of a wealthy tycoon, is incarcerated in a Mexican prison after accidentally killing a local boy while speeding and punching his police officer father in the face. He's placed in a jail cell that is allegedly used by the local police to lock up people who have committed horrific offenses, in which the prisoners disappear and are never heard from again...
-7. [Police Squad - S01E04 - "Revenge and Remorse (The Guilty Alibi)" (1982)](https://en.wikipedia.org/wiki/Police_Squad!#Episodes)
-   - Special guest stars: William Shatner, Dr. Joyce Brothers.  The Police Squad department is sent to investigate a bombing at the courthouse. The main suspect is Eddie Casales (Spencer Milligan), a bomber who was previously incarcerated by the victims killed in the explosion. Following the attack on the courthouse, the assistant DA who prosecuted Casales is killed with a bomb hidden in his car. All evidence points to Casales, but Frank thinks it is a setup.
+6. [Monsters - S03E05 - "Outpost" (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
+   - In the distant future, Cara Raymond (Juliet Mills) is inspecting a mining outpost on a hostile alien world for the company she works for. Cara encounters Sebastian (Tony Fields), a strange creature adorned with unusual machinery. Sebastian tells Cara that he was once a human who worked for the company and was dying of a terminal illness. Like many other workers, the company had bioengineered him into a mutant, wiping his memories and giving him a second chance at life...
+7. [Police Squad - S01E05 - "The Butler Did It (A Bird in the Hand)" (1982)](https://en.wikipedia.org/wiki/Police_Squad!#Episodes)
+   - Special guest stars: Robert Goulet, Tommy Lasorda.  Frank, Ed, and Norberg investigate the kidnapping of Terri Burton (Lilibet Stern), the daughter of a wealthy businessman, who was abducted during her 18th birthday party. The kidnappers demand a ransom of $1,000,000. The only witness to the kidnapping is Burton's boyfriend Kingsley Addison (Ken Michelman), who had plans to marry Burton.
 8. Artie's Workout
 9. Transformers Autobot Cars and Decepticon Planes
 10. Austrailian Garfield Phone Ad
@@ -24,9 +24,9 @@
 13. Gonzo Guilt
 14. SCTV Battle of the PBS Stars
 15. Alien 18inch Kenner Action Figure Commercial
-16. [The Adventures of Pete & Pete - S02E08 - "X = Why?" (1994)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_2_(1994))
-    - After getting fed up with algebra word problems, Ellen asks the question high school teachers dread most: "Why (do we have to know this)?" Her inquiry spreads like wildfire throughout the school and soon students are rebelling against the textbook knowledge forced upon them in every class. However, Ellen realizes that things have gone too far when math teacher Ms. Fingerwood disappears as she desperately tries to set things right.
-17. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E24
+16. [The Adventures of Pete & Pete - S02E09 - "On Golden Pete" (1994)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_2_(1994))
+    - The Wrigley family takes a fishing trip, and Big Pete contemplates mortality while Dad tries to catch a legendary fish named Bob. Also, after realizing the cruel fate that could happen to Bob, Big Pete tries to sabotage Dad's attempts on making the catch.  Note: The episode's title is a parody of Ernest Thompson play and 1981 drama film, On Golden Pond.
+17. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E25
     - The Octopus sees something that he really, really wants.  And then he gets it!
 18. Nissin Cup Noodle - Freddie Mercury
 19. Chipmunk Punk Commercial
@@ -34,18 +34,18 @@
 21. Boglins Hotline Commercial (1988)
 22. Punk CD
 23. Diet Coke Ad with Weird Al
-24. [Tales From the Darkside - S02E05 - "Halloween Candy" (1985)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
-    - Mr. Killup (Roy Poole) is a grumpy and misanthropic old man who hates Halloween, often spending the 31st of October tormenting trick-or-treaters who come to his door. This year however, he is visited by a sinister goblin who insistently demands candy...
+24. [Tales From the Darkside - S02E08 - "Distant Signals" (1985)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
+    - Television studio executive Gil Hurn (David Margulies) is approached by Mr. Smith (Lenny Von Dohlen), a mysterious investor who asks him to complete the final episodes of Max Paradise, a short-run detective series from 1965 that was cancelled before said episodes were aired. Mr. Smith and his mysterious backers are willing to pay any price, specifically gold bars, to see the series finished, complete with bringing the original actor, Van Conway (Darren McGavin), out of retirement.  Note: The plot of this episode was somewhat adapted into the Futurama episode "When Aliens Attack")
 25. A&W Family Restaurants - Root Bear Glass (1981)
 26. Colonial Lanes Bowling - Home of Gutterman
 27. Phoone Tawlk (1987)
 28. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
-29. [The Outer Limits S03E10 - "The Awakening" (1997)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_3_(1997))
-    - Beth (Lela Rochon), a woman with alexithymia (a psychiatric disorder whereby an individual cannot process emotions) is a guinea pig for a chip that could restore emotion to alexithymia sufferers. After the chip has been implanted Beth experiences emotions for the first time. She then begins to hear voices, and even sees aliens who kidnap and perform experiments on her...
+29. [The Outer Limits S03E11 - "New Lease" (1997)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_3_(1997))
+    - Dr. James Houghton and Dr. Charles McCamber, working in secret, develop a means of revitalising the dead. After a semi-successful test (a patient is revived but immediately begins a painful deterioration), Dr. Houghton is assaulted and killed in a robbery attempt. He is revived, believing that he has only a few days to live...
 30. Motobecane 50 Enduro
 31. Home-Made Playground (1967)
-32. [In Search Of... With Leonard Nimoy - S04E17 - "Wild Children" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
-    - Can these children survive in civilization? Leonard Nimoy examines several historical cases.
+32. [In Search Of... With Leonard Nimoy - S04E18 - "The Ghost Ship" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
+    - In 1872, the captain and crew of the Mary Celeste vanished without a trace. The sails were set to the wind and breakfast was on the table. Who or what possessed the ship?
 33. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 34. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 35. Undertale - Napping with Ghost (Outro & Raid out)
