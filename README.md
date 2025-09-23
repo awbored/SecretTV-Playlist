@@ -1,49 +1,50 @@
-# 2025/09/16 - SecretTV Playlist
+# 2025/09/23 - SecretTV Playlist
 
 ## General News
 
-- Been waiting all year for it to become fall!  Happy Pre-October!
+- [🎂🎂🎂 HAPPY BIRTHDAY JIM HENSON!!! 🎂🎂🎂](https://en.wikipedia.org/wiki/Jim_Henson) - Born: 9/24/1936
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
-2. Chevy Astro Van (1985)
-3. He's the man they call ReVeen!
-4. [Robocop - S01E11 - "When Justice Fails" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
-   - RoboCop and Officer Madigan race to save the lives of four astronauts as they go head-to-head against a flamboyant corporate raider who values profits more than safety.
-5. DiC
-6. [Monsters - S03E05 - "Outpost" (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
-   - In the distant future, Cara Raymond (Juliet Mills) is inspecting a mining outpost on a hostile alien world for the company she works for. Cara encounters Sebastian (Tony Fields), a strange creature adorned with unusual machinery. Sebastian tells Cara that he was once a human who worked for the company and was dying of a terminal illness. Like many other workers, the company had bioengineered him into a mutant, wiping his memories and giving him a second chance at life...
-7. [Police Squad - S01E05 - "The Butler Did It (A Bird in the Hand)" (1982)](https://en.wikipedia.org/wiki/Police_Squad!#Episodes)
-   - Special guest stars: Robert Goulet, Tommy Lasorda.  Frank, Ed, and Norberg investigate the kidnapping of Terri Burton (Lilibet Stern), the daughter of a wealthy businessman, who was abducted during her 18th birthday party. The kidnappers demand a ransom of $1,000,000. The only witness to the kidnapping is Burton's boyfriend Kingsley Addison (Ken Michelman), who had plans to marry Burton.
-8. Artie's Workout
-9. Transformers Autobot Cars and Decepticon Planes
-10. Austrailian Garfield Phone Ad
-11. Big Bill Hell's
-12. Katy Perry Slimed
-13. Gonzo Guilt
-14. SCTV Battle of the PBS Stars
-15. Alien 18inch Kenner Action Figure Commercial
-16. [The Adventures of Pete & Pete - S02E09 - "On Golden Pete" (1994)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_2_(1994))
-    - The Wrigley family takes a fishing trip, and Big Pete contemplates mortality while Dad tries to catch a legendary fish named Bob. Also, after realizing the cruel fate that could happen to Bob, Big Pete tries to sabotage Dad's attempts on making the catch.  Note: The episode's title is a parody of Ernest Thompson play and 1981 drama film, On Golden Pond.
-17. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E25
+2. Business, Business
+3. RC Cola
+4. [Robocop - S01E12 - "The Human Factor" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
+   -  RoboCop teams-up with his unsuspecting father, a retired police captain, to stop an insane bomber from unleashing a campaign of terror against OCP that could end in nuclear Armageddon.
+I've Grown Accustomed to Your Face 1st Performance
+5. A Change of Face
+6. [Monsters - S03E06 - "The Hole" (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
+   - During the Vietnam War, US Marines Sergeant Kenner (Ahmad Rashad) and Corporal Torres (Antone Pagán), aided by a South Vietnamese lieutenant (Glenn Kubota), blast their way into an underground bunker operated by the Viet Cong. Inside the bunker, the trio discover a mortally wounded guerrilla who tells them with his last words that the bunker is infested with ravenous zombies...
+7. DiC
+8. I Feel Pretty
+9. Inchworm
+10. Red Diamond Coffee
+11. [Police Squad - S01E06 - "Testimony of Evil (Dead Men Don't Laugh)" (1982)](https://en.wikipedia.org/wiki/Police_Squad!#Episodes)
+   - Special guest stars: William Conrad, Dick Clark.  Frank investigates the body of a struggling comedian found at the bottom of a cliff in a car crash. Although the comedian's death appears to be a suicide, Frank soon learns that this comedian was an informant infiltrating a drug ring at the nightclub he worked. To catch the perpetrator, Frank takes the place of the deceased at the nightclub.
+12. Artie's Workout
+13. Beautiful Day
+14. Big Bird Watchers
+15. Marathon Gas
+16. Purina Dog Chow
+17. [The Adventures of Pete & Pete - S02E10 - "Farewell, My Little Viking: Part 1" (1994)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_2_(1994))
+    - The end of Artie's influence over Wellsville comes in two parts. Supervillain John McFlemp (James Rebhorn), head of the International Adult Conspiracy, concocts a dastardly plan to rid the Wellsville parents of the nuisance that is Artie forever, and threatens to destroy all that is unique about the kids of Wellsville. McFlemp extorts Dad and convinces him to get rid of Artie. Meanwhile, Little Pete must deal with his enemy, a school bully named Papercut after defying him by throwing scissors in a game of Rock-Paper-Scissors.
+18. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E26
     - The Octopus sees something that he really, really wants.  And then he gets it!
-18. Nissin Cup Noodle - Freddie Mercury
-19. Chipmunk Punk Commercial
-20. LA Gear Commercial (1988)
-21. Boglins Hotline Commercial (1988)
-22. Punk CD
-23. Diet Coke Ad with Weird Al
-24. [Tales From the Darkside - S02E08 - "Distant Signals" (1985)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
-    - Television studio executive Gil Hurn (David Margulies) is approached by Mr. Smith (Lenny Von Dohlen), a mysterious investor who asks him to complete the final episodes of Max Paradise, a short-run detective series from 1965 that was cancelled before said episodes were aired. Mr. Smith and his mysterious backers are willing to pay any price, specifically gold bars, to see the series finished, complete with bringing the original actor, Van Conway (Darren McGavin), out of retirement.  Note: The plot of this episode was somewhat adapted into the Futurama episode "When Aliens Attack")
-25. A&W Family Restaurants - Root Bear Glass (1981)
-26. Colonial Lanes Bowling - Home of Gutterman
-27. Phoone Tawlk (1987)
-28. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
-29. [The Outer Limits S03E11 - "New Lease" (1997)](https://en.wikipedia.org/wiki/List_of_The_Outer_Limits_(1995_TV_series)_episodes#Season_3_(1997))
-    - Dr. James Houghton and Dr. Charles McCamber, working in secret, develop a means of revitalising the dead. After a semi-successful test (a patient is revived but immediately begins a painful deterioration), Dr. Houghton is assaulted and killed in a robbery attempt. He is revived, believing that he has only a few days to live...
-30. Motobecane 50 Enduro
-31. Home-Made Playground (1967)
+19. Cloverland Cow
+20. Computer Dinner
+21. La Choy Chow Mein - "Wifeless Husband"
+22. Muppet First Appearances - Cookie Monster
+23. Easy Bake Oven Commercial
+24. La Choy Chow Mein - "Sad Bride"
+25. Linit Fabric Finish Commercial
+26. [Tales From the Darkside - S02E10 - "Ursa Minor" (1985)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
+    - A little girl named Susie (Jamie Ohar) blames her birthday present, a stuffed bear named Teddy, for various incidents around the house. Her parents, who don't remember purchasing Teddy in the first place, do not believe her... until Susie's mother (Marilyn Jones) discovers giant claw marks on the walls and...
+27. A&W Family Restaurants - Root Bear Glass (1981)
+28. Bufferin
+29. Flying A Robot
+30. [Friday the 13th -  S01E01 - "The Inheritance" (1987)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
+    - When Micki Foster and her cousin, Ryan Dallion, inherit an antique shop from their late Uncle Lewis Vendredi, they soon meet an old friend of Lewis' named Jack Marshak. He reveals to them that their inheritance comes with a devil's curse. 
+31. Rock n Roll Monster
 32. [In Search Of... With Leonard Nimoy - S04E18 - "The Ghost Ship" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
     - In 1872, the captain and crew of the Mary Celeste vanished without a trace. The sails were set to the wind and breakfast was on the table. Who or what possessed the ship?
 33. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
