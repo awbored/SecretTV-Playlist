@@ -36,69 +36,70 @@
 28. Disney Halloween DTV (10/30/87)
 29. Daffy Duck - The Impatient Patient (1942)
 30. Bugs Bunny - Hair-Raising Hare (1946)
-31. Elvira T-Shirt Commercial
-32. Hair Club for Monsters
-33. Halloween Commercials - CUT-3
-34. Daffy Duck - Birth Of A Notion (1947)
-35. Porky Pig - Scaredy Cat (1948)
-36. Halloween Safety PSA (1985)
-37. Nickelodeon Movie - Cry Baby Lane
-38. Disney Channel - Halloween is Grinch Night, Casper the Friendly Ghost, Frankenweenie, The Halloween That Almost Wasn't - WOC (10/92)
-39. Heinz haunted house advert (1983)
-40. The Adventures of Pete and Pete, The - Short 12 - Halloween
-41. The Adventures of Pete and Pete - S02E06 Halloweenie
-42. Disney - The Legend Of Sleepy Hollow (1949)
-43. Bugs Bunny - Water, Water Every Hare (1952)
-44. Donald Duck - Trick or Treat (1952)
-45. Knott's Halloween Haunt Hanging (1990)
-46. KTVU Halloween (1993)
-47. Halloween Commercials - CUT-4
-48. Bugs Bunny - Broom-Stick Bunny (1956)
-49. Tom and Jerry - The Flying Sorceress (1956)
-50. Elvira Mistress of the Dark - NBC (7-05-91)
-51. NBC WWF Saturday Night's Main Event Halloween WOC (11-2-85)
-52. Paul Lynde Halloween Special (1976); Sigmund and the Sea Monsters - Mr. Show - (1997); KSAT - Maury Povich
-53. The Rocky Horror Video Show (Richard O'Brien)
-54. Headbanger's Halloween (Alice Cooper, Iggy Pop)
-55. Anglia Halloween (1982)
-56. The Decline of Western Civilization II (MTV WOC 1989)
-57. Zappa on MTV (1981)
-58. Disney - Pluto's Judgement Day (1935)
-59. Mickey Mouse - Lonesome Ghosts (1937)
-60. The Party Makeup Video
-61. Halloween Commercials - CUT-5
-62. Tom and Jerry - Switchin Kitten (1961)
-63. Fleischer - The Cobweb Hotel (1936)
-64. The Shining - WOC
-65. Disney - Hell's Bells (1929)
-66. Tales From The Darkside - S02E05 - Halloween Candy (KPLR 11 St. Louis, 10-20-85)
-67. Pee-wee Herman Complete Collection on Letterman (1982-85)
-68. Halloween Commercials - CUT-6
-69. Happy Harmonies - Bottles (1936)
-70. Jeepers Creepers (1939)
-71. Bram Stoker's Dracula (1999)
-72. Perfect Strangers - Halloween EP (1988)
-73. Growing Pains - Happy Halloween 1&2 (10-31-1990)
-74. Family Matters - S08E07 - Stevil
-75. Family Matters - Stevil II - This Time He's Not Alone (10-31-97)
-76. Step by Step - S04E06 - Halloween Ep
-77. Disneys Halloween Treat
-78. It's the Great Pumpkin Charlie Brown Winnie the Pooh halloween (2001)
-79. Skeleton Frolic (1937)
-80. Spook_O_RAMA - Cartoon Collection
-81. The Skeleton Dance (1929)
-82. MTV Station ID - The Witch (1992)
-83. Weather Channel Witch Watch (1991)
-84. Halloween Commercials - CUT-7
-85. Nightmare on Elm Street - WFLD32 Chicago (1987)
-86. Nightmare On Elm Street 4 - The Dream Master (TV23 KTMA - 9/13/1991)
-87. WKBD Detroit TV Halloween Shocktober Bumpers Collection (1989)
-88. WNAC TV64 Monster Bash, Old Halloween Marathon Bumpers
-89. Halloween Commercials - CUT-8
-90. Kidstime
-91. Fox Kids Halloween
-92. Nick At Nite Halloween Munster Mash (10/95)
-93. Son Of Svengoolie - Dracula (5-4-85)
+31. The Peanut Butter Solution (1985)
+32. Elvira T-Shirt Commercial
+33. Hair Club for Monsters
+34. Halloween Commercials - CUT-3
+35. Daffy Duck - Birth Of A Notion (1947)
+36. Porky Pig - Scaredy Cat (1948)
+37. Halloween Safety PSA (1985)
+38. Nickelodeon Movie - Cry Baby Lane
+39. Disney Channel - Halloween is Grinch Night, Casper the Friendly Ghost, Frankenweenie, The Halloween That Almost Wasn't - WOC (10/92)
+40. Heinz haunted house advert (1983)
+41. The Adventures of Pete and Pete, The - Short 12 - Halloween
+42. The Adventures of Pete and Pete - S02E06 Halloweenie
+43. Disney - The Legend Of Sleepy Hollow (1949)
+44. Bugs Bunny - Water, Water Every Hare (1952)
+45. Donald Duck - Trick or Treat (1952)
+46. Knott's Halloween Haunt Hanging (1990)
+47. KTVU Halloween (1993)
+48. Halloween Commercials - CUT-4
+49. Bugs Bunny - Broom-Stick Bunny (1956)
+50. Tom and Jerry - The Flying Sorceress (1956)
+51. Elvira Mistress of the Dark - NBC (7-05-91)
+52. NBC WWF Saturday Night's Main Event Halloween WOC (11-2-85)
+53. Paul Lynde Halloween Special (1976); Sigmund and the Sea Monsters - Mr. Show - (1997); KSAT - Maury Povich
+54. The Rocky Horror Video Show (Richard O'Brien)
+55. Headbanger's Halloween (Alice Cooper, Iggy Pop)
+56. Anglia Halloween (1982)
+57. The Decline of Western Civilization II (MTV WOC 1989)
+58. Zappa on MTV (1981)
+59. Disney - Pluto's Judgement Day (1935)
+60. Mickey Mouse - Lonesome Ghosts (1937)
+61. The Party Makeup Video
+62. Halloween Commercials - CUT-5
+63. Tom and Jerry - Switchin Kitten (1961)
+64. Fleischer - The Cobweb Hotel (1936)
+65. The Shining - WOC
+66. Disney - Hell's Bells (1929)
+67. Tales From The Darkside - S02E05 - Halloween Candy (KPLR 11 St. Louis, 10-20-85)
+68. Pee-wee Herman Complete Collection on Letterman (1982-85)
+69. Halloween Commercials - CUT-6
+70. Happy Harmonies - Bottles (1936)
+71. Jeepers Creepers (1939)
+72. Bram Stoker's Dracula (1999)
+73. Perfect Strangers - Halloween EP (1988)
+74. Growing Pains - Happy Halloween 1&2 (10-31-1990)
+75. Family Matters - S08E07 - Stevil
+76. Family Matters - Stevil II - This Time He's Not Alone (10-31-97)
+77. Step by Step - S04E06 - Halloween Ep
+78. Disneys Halloween Treat
+79. It's the Great Pumpkin Charlie Brown Winnie the Pooh halloween (2001)
+80. Skeleton Frolic (1937)
+81. Spook_O_RAMA - Cartoon Collection
+82. The Skeleton Dance (1929)
+83. MTV Station ID - The Witch (1992)
+84. Weather Channel Witch Watch (1991)
+85. Halloween Commercials - CUT-7
+86. Nightmare on Elm Street - WFLD32 Chicago (1987)
+87. Nightmare On Elm Street 4 - The Dream Master (TV23 KTMA - 9/13/1991)
+88. WKBD Detroit TV Halloween Shocktober Bumpers Collection (1989)
+89. WNAC TV64 Monster Bash, Old Halloween Marathon Bumpers
+90. Halloween Commercials - CUT-8
+91. Kidstime
+92. Fox Kids Halloween
+93. Nick At Nite Halloween Munster Mash (10/95)
+94. Son Of Svengoolie - Dracula (5-4-85)
 
 
 ## Info about SecretTVBot
