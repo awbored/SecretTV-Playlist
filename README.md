@@ -1,52 +1,104 @@
-# 2025/10/21 - SecretTV Playlist
+# 2025/10/28 - 10/31 - SecretTV Playlist
 
 ## General News
 
-- 🎃🎃🎃 It's almost time kids 🎃🎃🎃
+- 🎃🎃🎃 It's now time for the SECRET SPOOPY HALLOWEEN MARATHON!!! 👻👻 We have currated over 50 hours worth of materials to help celebrate your Halloween season!  We will be running the playlist ON LOOP until the morning of November 1st!!  Be good and have a Happy Halloween! 🎃🎃🎃
 
 ## SecretTV Playlist
 
-1. Secret TV Roller Coaster (intro)
-2. Halloween 3 - 8 more days to Halloween - Silver Shamrock
-3. 70's and 80's Halloween Commercials - Cut 5
-4. [Robocop - S01E16 - "The Tin Man" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
-   - As armed Ice Cream trucks and Lunch Catering vans wage a gang war for control of illegal gambling and Gadget falls victim to Lotto-fever, the past haunts RoboCop when an ex-partner returns as a gang-busting vigilante.
-5. DiC
-6. [Monsters - S03E10 - "The Waiting Game" (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
-   - Lieutenant Eric Tyler (Doug McKeon) and Captain Stanley Levitt (Stephen Burleigh) are two Army officers stationed in a nuclear missile silo. A normal day on the job for the soldiers quickly goes downhill when nuclear war breaks out...
-7. Artie's Workout
-8. Pete n Pete - Halloween Short
-9. 70's and 80's Halloween Commercials - Cut 6
-10. Big Bill Hell
-11. Halloween Safety PSA 1985
-12. The Electric Company - Lick a Lolly Song
-13. Boglins Hotline Commercial (1988)
-14. Seattle TV Show Rev with John Keister Heavy Metal
-15. [The Adventures of Pete & Pete - S03E01 - "35 Hours" (1995)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_3_(1995%E2%80%931996))
-    - The Petes are entrusted with the key to the house while Mom and Dad go away on a trip for two days. Just when it looks like their plan to stage the ultimate bicycle race around the house (The Wrigley 500) is about to materialize, Big Pete is struck by hormones and instead chooses to vie for the attention of his latest sweet-heart, Margie Corsall...
-16. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E30
-    - The Octopus sees something that he really, really wants.  And then he gets it!
-17. 70's and 80's Halloween Commercials - Cut 7
-18. Burger King - Simpsons Spooky Light-Ups (2001, USA)
-19. Hair Club for Monsters
-20. Gianellis Italian Sausage more commercials Syracuse NY mid1980s480p
-21. [Tales From the Darkside - S02E14 - "Dream Girl" (1985)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
-    - Theatrical director Andrea Caldwell (Carolyn Seymour) finds herself and her co-workers trapped in the dreams of weaselly stagehand Otto Schrog (Lou Cutell). Able to control reality in his dreams, Otto forces his prisoners put on a poorly-written play in which he is the star, having them cater to his every whim and fulfill his fantasies...
-22. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
-23. Punk!
-24. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
-25. Knott's Halloween Haunt Hanging 1990 (By Rock Garcia)
-26. 70's and 80's Halloween Commercials - Cut 8
-27. [Friday the 13th -  S01E05 - "Hellowe'en" (1987)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
-    - The evil spirit of Uncle Lewis crashes a Halloween party at the shop and seeks to re-enter the living world.
-28. Bram Stoker's Dracula 1974 Trailer
-29. Pee Wee Herman And Dave's Haunted Mansion
-30. [In Search Of... With Leonard Nimoy - S04E23 - "Glenn Miller" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
-    - An inquiry into why the mysterious death—or disappearance—of the great musician was never investigated, and a possible military cover-up.
-31. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-32. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-33. Undertale - Napping with Ghost (Outro & Raid out)
-
+1. Halloween 3 - 8 more days to Halloween - Silver Shamrock
+2. 80s Halloween bumpers
+3. Halloween Commercials - CUT-1
+4. Tex Avery - Who Killed Who (1943)
+5. UPA - The Tell Tale Heart (1953)
+6. Porky Pig - The Wearing Of The Grin (1951)
+7. 1980s Bartz's Party Store Milwaukee Halloween Commercial
+8. Garfield and Great Pumpkin (1985 Tape)
+9. Daffy Duck's Quackbusters (1988)
+10. Burger King - Simpsons Spooky Light-Ups (2001, USA)
+11. The Simpsons - Treehouse of Horror I (10/25/1990)
+12. The Simpsons Treehouse of Horror Marathon (10/30/1994)
+13. Unsolved Mysteries - Halloween Special (10/26/88)
+14. Count Scary WKBD 50 Shocktober bumpers (1986)
+15. Halloween 3
+16. Bugs Bunny - Transylvania 6-5000 (1963)
+17. Fleischer Studios - Swing You Sinners (1930)
+18. Elvira Slice Commercial
+19. Halloween Commercials - CUT-2
+20. Mickey Mouse -The Haunted House (1929)
+21. Popeye the Sailor - Shiver Me Timbers (1934)
+22. Betty Boop's Halloween Party (1933)
+23. WMSN-TV Halloween Scooby Doo and Heathcliff Marathon - 4 hours (1986)
+24. Bram Stoker's Dracula 1974 Trailer
+25. Carol Burnett - I Enjoy Being A Girl
+26. The Lawrence Welk Show - Halloween Special (1978)
+27. Watch Out, Carol! - The Carol Burnett Show
+28. Disney Halloween DTV (10/30/87)
+29. Daffy Duck - The Impatient Patient (1942)
+30. Bugs Bunny - Hair-Raising Hare (1946)
+31. Elvira T-Shirt Commercial
+32. Hair Club for Monsters
+33. Halloween Commercials - CUT-3
+34. Daffy Duck - Birth Of A Notion (1947)
+35. Porky Pig - Scaredy Cat (1948)
+36. Halloween Safety PSA (1985)
+37. Nickelodeon Movie - Cry Baby Lane
+38. Disney Channel - Halloween is Grinch Night, Casper the Friendly Ghost, Frankenweenie, The Halloween That Almost Wasn't - WOC (10/92)
+39. Heinz haunted house advert (1983)
+40. The Adventures of Pete and Pete, The - Short 12 - Halloween
+41. The Adventures of Pete and Pete - S02E06 Halloweenie
+42. Disney - The Legend Of Sleepy Hollow (1949)
+43. Bugs Bunny - Water, Water Every Hare (1952)
+44. Donald Duck - Trick or Treat (1952)
+45. Knott's Halloween Haunt Hanging (1990)
+46. KTVU Halloween (1993)
+47. Halloween Commercials - CUT-4
+48. Bugs Bunny - Broom-Stick Bunny (1956)
+49. Tom and Jerry - The Flying Sorceress (1956)
+50. Elvira Mistress of the Dark - NBC (7-05-91)
+51. NBC WWF Saturday Night's Main Event Halloween WOC (11-2-85)
+52. Paul Lynde Halloween Special (1976); Sigmund and the Sea Monsters - Mr. Show - (1997); KSAT - Maury Povich
+53. The Rocky Horror Video Show (Richard O'Brien)
+54. Headbanger's Halloween (Alice Cooper, Iggy Pop)
+55. Anglia Halloween (1982)
+56. The Decline of Western Civilization II (MTV WOC 1989)
+57. Zappa on MTV (1981)
+58. Disney - Pluto's Judgement Day (1935)
+59. Mickey Mouse - Lonesome Ghosts (1937)
+60. The Party Makeup Video
+61. Halloween Commercials - CUT-5
+62. Tom and Jerry - Switchin Kitten (1961)
+63. Fleischer - The Cobweb Hotel (1936)
+64. The Shining - WOC
+65. Disney - Hell's Bells (1929)
+66. Tales From The Darkside - S02E05 - Halloween Candy (KPLR 11 St. Louis, 10-20-85)
+67. Pee-wee Herman Complete Collection on Letterman (1982-85)
+68. Halloween Commercials - CUT-6
+69. Happy Harmonies - Bottles (1936)
+70. Jeepers Creepers (1939)
+71. Bram Stoker's Dracula (1999)
+72. Perfect Strangers - Halloween EP (1988)
+73. Growing Pains - Happy Halloween 1&2 (10-31-1990)
+74. Family Matters - S08E07 - Stevil
+75. Family Matters - Stevil II - This Time He's Not Alone (10-31-97)
+76. Step by Step - S04E06 - Halloween Ep
+77. Disneys Halloween Treat
+78. It's the Great Pumpkin Charlie Brown Winnie the Pooh halloween (2001)
+79. Skeleton Frolic (1937)
+80. Spook_O_RAMA - Cartoon Collection
+81. The Skeleton Dance (1929)
+82. MTV Station ID - The Witch (1992)
+83. Weather Channel Witch Watch (1991)
+84. Halloween Commercials - CUT-7
+85. Nightmare on Elm Street - WFLD32 Chicago (1987)
+86. Nightmare On Elm Street 4 - The Dream Master (TV23 KTMA - 9/13/1991)
+87. WKBD Detroit TV Halloween Shocktober Bumpers Collection (1989)
+88. WNAC TV64 Monster Bash, Old Halloween Marathon Bumpers
+89. Halloween Commercials - CUT-8
+90. Kidstime
+91. Fox Kids Halloween
+92. Nick At Nite Halloween Munster Mash (10/95)
+93. Son Of Svengoolie - Dracula (5-4-85)
 
 
 ## Info about SecretTVBot
