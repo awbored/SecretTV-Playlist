@@ -17,7 +17,7 @@
 9. Daffy Duck's Quackbusters (1988)
 10. Burger King - Simpsons Spooky Light-Ups (2001, USA)
 11. The Simpsons - Treehouse of Horror I (10/25/1990)
-12. The Simpsons Treehouse of Horror Marathon (10/30/1994)
+12. The Simpsons Treehouse of Horror Marathon II - V (10/30/1994)
 13. Unsolved Mysteries - Halloween Special (10/26/88)
 14. Count Scary WKBD 50 Shocktober bumpers (1986)
 15. Halloween 3
