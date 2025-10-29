@@ -43,7 +43,7 @@
 35. Daffy Duck - Birth Of A Notion (1947)
 36. Porky Pig - Scaredy Cat (1948)
 37. Halloween Safety PSA (1985)
-38. Nickelodeon Movie - Cry Baby Lane
+38. Nickelodeon Movie - Cry Baby Lane (2000)
 39. Disney Channel - Halloween is Grinch Night, Casper the Friendly Ghost, Frankenweenie, The Halloween That Almost Wasn't - WOC (10/92)
 40. Heinz haunted house advert (1983)
 41. The Adventures of Pete and Pete, The - Short 12 - Halloween
