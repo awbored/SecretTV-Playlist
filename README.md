@@ -1,4 +1,4 @@
-# 2025/11/04 - SecretTV Playlist
+# 2025/11/11 - SecretTV Playlist
 
 ## General News
 
@@ -9,48 +9,51 @@
 1. Secret TV Roller Coaster (intro)
 2. Escape from New York - Get a new one
 3. He's the man they call REVEEN
-3. Beavis and Butthead - Star Trek
-4. [Robocop - S01E17 - "Sisters in Crime" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
-   - When his sexist views anger feminists, The OCP Chairman is kidnapped by a band of shapely rebels and forced to do housework, while Chip Chayken and his sexy partner plan to rip-off OCP.
-5. DiC
-6. [Monsters - S03E11 - "Sin-Sop" (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
-   - In the American South, skeptical reporter Laura Daniel (Christine Dunford) meets Helen (Charlotte Booker) at the home of Brother Roy (Christopher Shaw), a reputed faith healer who claims that he can remove sin from people by the gallon, Helen being one of Roy's regular customers. Brother Roy takes the women upstairs, where he shows them the "sin extractor"...
-7. Artie's Workout
-8. Sony Trinitron Hospital Scene
-9. ホ！ホ！ホ！
-10. Big Bill Hell
-11. Transformers G1 Autobot Cars and Decepticon Planes Commercial
-12. The Electric Company - Lick a Lolly Song
-13. SWEETIES Lickin' My Chops
-14. Masters Of The Universe Hordak and the Evil Horde UK TV toy advert
-15. SNL - Cluckin Chicken
-16. Gary Numan - Metal - Sync with Karate
-17. [The Adventures of Pete & Pete - S03E02 - "The Trouble with Teddy" (1995)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_3_(1995%E2%80%931996))
-    - Big Pete offers to let his friend Teddy stay over while his parents are away and begins to notice just how many annoying habits Teddy has. Meanwhile, Little Pete tries to get in touch with the land.
-18. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E31
+4. Beavis and Butthead - Star Trek
+5. [Robocop - S01E18 - "Heartbreakers" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
+   - It's love at first "byte" when Lippencott enters Virtual Reality and falls for Diana Powers, while RoboCop is blackmailed by the kidnapper of his wife Nancy into stealing a top secret weapon that can literally break hearts.
+6. DiC
+7. [Monsters - S03E12 - "A New Woman" (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
+   - In a reimagining of A Christmas Carol, Jessica (Linda Thorson), the villainous, gold-digging mistress of a dying man named Thomas (Tom McDermott), wants Thomas to die as soon as possible so that she can get her hands on his money and his company...
+8. Artie's Workout
+9. Sony Trinitron Hospital Scene
+10. ホ！ホ！ホ！
+11. Big Bill Hell
+12. Transformers G1 Autobot Cars and Decepticon Planes Commercial
+13. The Electric Company - Lick a Lolly Song
+14. SWEETIES Lickin' My Chops
+15. Masters Of The Universe Hordak and the Evil Horde UK TV toy advert
+16. SNL - Cluckin Chicken
+17. Gary Numan - Metal - Sync with Karate
+18. [The Adventures of Pete & Pete - S03E03 - "The Good, the Bad and the Lucky" (1995)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_3_(1995%E2%80%931996))
+    - Little Pete's lucky penny runs out of luck one day, so he, Nona, Monica, and Wayne set out on a journey to recharge it by letting the Midnight Express run over it. Pit Stain, Little Pete's arch nemesis, and his henchmen (Hair Net & Drawstring) catches on and tails them, and Pete is forced to battle Pit Stain without the power of his lucky penny. 
+19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E32
     - The Octopus sees something that he really, really wants.  And then he gets it!
-19. The Count Censored
-20. KatyPerrySlimed
-21. Gonzo Guilt
-22. Home Alone - I Made My Parents Disappear
-23. Gianellis Italian Sausage more commercials Syracuse NY mid1980s480p
-24. [Tales From the Darkside - S02E15 - "A New Lease on Life" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
-    - Archie Fenton (Robert Rothman) moves into the St. George apartment complex to be closer to his new job, where he receives the modern, fully equipped apartment of his dreams. However, after noting that some of his neighbors are frightened and are subsequently going missing...
-25. SCTV The Battle Of the PBS Stars featuring Eugene Levy, Martin Short, Rick Moranis and John Candy
-26. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
-27. Punk!
-28. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
-29. 1989 1-900 Party Line television commercial
-30. Colonial Lanes Bowling - Home of Gutterman
-31. [Friday the 13th -  S01E06 - "The Great Montarro" (1987)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
-    - In order to find out who is using a set of deadly magician boxes, Jack enters a magic competition under his old alias, "Mad Marshak".
-32. Phoone Tawlk (1987)
-33. 809-544-CHAT Party Line (1992)
-34. [In Search Of... With Leonard Nimoy - S04E24 - "Past Lives" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
-    - Can reincarnation be proved? Leonard Nimoy examines the data, testimony, and theories.
-35. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-36. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-37. Undertale - Napping with Ghost (Outro & Raid out)
+20. Cats PSA - Your Childs Life is in Your Hands
+21. The Count Censored
+22. KatyPerrySlimed
+23. Gonzo Guilt
+24. Home Alone - I Made My Parents Disappear
+25. Gianellis Italian Sausage more commercials Syracuse NY mid1980s480p
+26. [Tales From the Darkside - S02E18 - "If the Shoes Fit..." (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
+    - Struggling author Junior P. Harmon (Larry Manetti) hires Alex Kellaway (Charles Knapp), a jolly and obese man, as his new agent. Upon meeting with Junior, Kellaway tells him that there is only one way he can make his novels succeed: animal sacrifice...
+27. SCTV The Battle Of the PBS Stars featuring Eugene Levy, Martin Short, Rick Moranis and John Candy
+28. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
+29. Punk!
+30. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
+31. 1989 1-900 Party Line television commercial
+32. Colonial Lanes Bowling - Home of Gutterman
+33. 3-2-1 Contact "Noisy Quiet: Music" (1980)
+34. De La Soul - 3 feet high TV 1989
+35. [Friday the 13th -  S01E07 - "Doctor Jack" (1987)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
+    - A series of slashings leads the group to a surgeon, Dr. Vincent Howlett (Cliff Gorman), who loves the limelight. To complicate matters, a woman seek revenge on the doctor for her daughter's murder. 
+36. Phoone Tawlk (1987)
+37. 809-544-CHAT Party Line (1992)
+38. [In Search Of... With Leonard Nimoy - S05E01 - "UFO Coverups" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_4_(1979%E2%80%931980))
+    - Examines charges that the U.S. Air Force is hiding alien corpses and the remains of crashed space craft in Hangar 18 of Wright-Patterson Air Force Base in Ohio. 
+39. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+40. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+41. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 
