@@ -1,4 +1,4 @@
-# 2025/11/18 - SecretTV Playlist
+# 2025/11/25 - SecretTV Playlist
 
 ## General News
 
@@ -10,11 +10,11 @@
 2. Escape from New York - Get a new one
 3. He's the man they call REVEEN
 4. Beavis and Butthead - Star Trek
-5. [Robocop - S01E20 - "Nano" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
-   - While arresting a thief, who is suddenly run down by a runaway bus, Detective Madigan is seriously injured and paralyzed. RoboCop investigates and uncovers a criminal using nanobots to override machinery and electronics.
+5. [Robocop - S01E21 - "Corporate Raiders" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
+   - The city is being rocked by anti-corporate violence as RoboCop and Officer Madigan are assigned to bring in a charming ex-terrorist, but a corrupt union leader and his sultry secretary have other plans.
 6. DiC
-7. [Monsters - S03E13 - "Malcolm" (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
-   - Years ago, Malcolm (Ed Lauter) was one of the most talented clarinet players in the world. However, he gave up his fame and fortune to get married, and has since been reduced to a miserable workaholic. His wife Lorna (Carole Shelley) is desperate to get him to start playing again as a means for them to save their marriage...
+7. [Monsters - S03E14 - "Household Gods" (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
+   - In this story, Deborah (Deborah Van Valkenburgh) is a married woman with a career who has just had her first child. Feeling stressed while juggling the responsibilities of her baby, her husband, her job, and keeping the house tidy, she hires a nanny to help take care of the baby while she continues to work from home. All sorts of things go wrong throughout the house...
 8. Artie's Workout
 9. Sony Trinitron Hospital Scene
 10. ホ！ホ！ホ！
@@ -25,9 +25,9 @@
 15. Masters Of The Universe Hordak and the Evil Horde UK TV toy advert
 16. SNL - Cluckin Chicken
 17. Gary Numan - Metal - Sync with Karate
-18. [The Adventures of Pete & Pete - S03E04 - "Splashdown!" (1995)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_3_(1995%E2%80%931996))
-    - Big Pete tries to obtain the coveted position of Senior Lifeguard while Little Pete fights to abolish the hated Adult Swim. Big Pete is forced to choose between the power of the lifeguard chair and his friendship with his brother.
-19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E33
+18. [The Adventures of Pete & Pete - S03E05 - "Dance Fever" (1995)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_3_(1995%E2%80%931996))
+    - Little Pete attends his first school dance and Big Pete develops a crush on the guitarist of the hired band (Luscious Jackson). Pit Stain learns of Little Pete's fear of dancing and tries to exploit it, while Nona tries to avoid the embarrassment of dancing with her "Pop," (Iggy Pop).
+19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E34
     - The Octopus sees something that he really, really wants.  And then he gets it!
 20. Cats PSA - Your Childs Life is in Your Hands
 21. The Count Censored
@@ -35,8 +35,8 @@
 23. Gonzo Guilt
 24. Home Alone - I Made My Parents Disappear
 25. Gianellis Italian Sausage more commercials Syracuse NY mid1980s480p
-26. [Tales From the Darkside - S02E19 - "The Last Car" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
-    - College student Stacey (Begoña Plaza) boards a mysterious train to travel home for Thanksgiving. After being seated in the train's last car, meeting the somewhat bizarre passengers, and witnessing various oddities occur whenever the car passes through a tunnel, Stacey soon discovers a horrific truth about the train...
+26. [Tales From the Darkside - S02E20 - "A Choice of Dreams" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
+    - Jake Corelli (Abe Vigoda) is a mob boss who discovers he is dying of terminal cancer. He is offered the chance to test Afterlife, a scientific process that keeps his brain alive so he can experience peaceful dreams forever after his death...
 27. SCTV The Battle Of the PBS Stars featuring Eugene Levy, Martin Short, Rick Moranis and John Candy
 28. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
 29. Punk!
@@ -45,12 +45,13 @@
 32. Colonial Lanes Bowling - Home of Gutterman
 33. 3-2-1 Contact "Noisy Quiet: Music" (1980)
 34. De La Soul - 3 feet high TV 1989
-35. [Friday the 13th -  S01E08 - "Shadow Boxer" (1987)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
-    - A punchy, broken-down fighter, Tommy Dunn, gets in touch with his dark side. 
+35. [Friday the 13th -  S01E09 - "Root of All Evil" (1987)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
+    - Micki must decide whether to continue tracking down cursed objects or to go marry her fiance, Lloyd the lawyer, while Ryan and Jack look for a hexed mulcher. 
 36. Phoone Tawlk (1987)
 37. 809-544-CHAT Party Line (1992)
-38. [In Search Of... With Leonard Nimoy - S05E02 - "Faith Healing" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
-    - Is faith healing a hoax or holistic medicine?
+38. 1990 Celebrity (1990)
+38. [In Search Of... With Leonard Nimoy - S05E03 - "Lee Harvey Oswald" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
+    - The assassination of John F. Kennedy: was there visual proof of two guns in Dallas and possibly two Oswalds?
 39. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 40. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 41. Undertale - Napping with Ghost (Outro & Raid out)
