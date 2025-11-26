@@ -2,7 +2,7 @@
 
 ## General News
 
-- Halloween is over! (If you want it)
+- Be sure to come back on Thursday and Friday for the annual SecretTV Thanksgiving marathon!  Marathon will start Thursday morning!
 
 ## SecretTV Playlist
 
