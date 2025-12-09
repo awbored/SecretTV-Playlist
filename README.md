@@ -1,4 +1,4 @@
-# 2025/12/02 - SecretTV Playlist
+# 2025/12/09 - SecretTV Playlist
 
 ## General News
 
@@ -10,11 +10,11 @@
 2. Escape from New York - Get a new one
 3. POLICE STORY - The Car Scene
 4. Beavis and Butthead - Anarchy Lawnmower
-5. [Robocop - S01E22 - "Midnight Minus One" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
-   - RoboCop and Officer Madigan race the clock to prove a killer is innocent before he's executed in front of millions of viewers on a hit television show.
+5. [Robocop - S01E23 - "Public Enemies" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
+   - RoboCop must save the President and First Gentleman from an assassination plot hatched by Dr. Mallardo, Chip Chayken, and Pudface Morgan.
 6. DiC
-7. [Monsters - S03E15 - "The Space-Eaters" (1990)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
-   - On a stormy night in New England, Howard (Richard Clarke) and Fredrick (Matt Hulswit), a respective doctor and veteran, are waiting out the storm by playing chess. Suddenly, local citizen Henry Wells (Richard Hughes) appears at the door, suffering from agonizing pain. Upon being let in and examined by Howard, Wells is revealed to be missing his brain...
+7. [Monsters - S03E16 - "The Waiting Room" (1991)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
+   - Benjamin O'Connell (John Saxon) invites himself to travel with his son John (Christian LeBlanc) and John's new wife Katharine (Lisa Waltz) to an empty motel in the mountains to celebrate their honeymoon. That night, John wakes up, goes into a nearby room shrouded in darkness, and disappears...
 8. Artie's Workout
 9. Madness Colgate' TV Advert
 10. Jan Terri - Rock N Roll Santa
@@ -25,9 +25,9 @@
 15. UHF - Spatula City
 16. SNL - Cluckin Chicken
 17. Gary Numan - Metal - Sync with Karate
-18. [The Adventures of Pete & Pete - S03E06 - "Allnighter" (1995)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_3_(1995%E2%80%931996))
-    - Little Pete, Monica, and Wayne get trapped in the school after it closes and are stuck for the night. They attempt to elude a fearsome school legend, whom they are eventually forced to confront.
-19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E35
+18. [The Adventures of Pete & Pete - S03E07 - "Road Warrior" (1995)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_3_(1995%E2%80%931996))
+    - Big Pete and his friends reach the age of responsibility and take Driver's Ed from Mr. Slurm, the shop teacher.
+19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E36
     - The Octopus sees something that he really, really wants.  And then he gets it!
 20. Cats PSA - Your Childs Life is in Your Hands
 21. Detroit Institute of Arts
@@ -35,8 +35,8 @@
 23. Gonzo Guilt
 24. Home Alone - I Made My Parents Disappear
 25. Emmet Otter's Jug Band Christmas Outtakes
-26. [Tales From the Darkside - S02E21 - "Strange Love" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
-    - In 1935, Dr. Philip Carrol (Patrick Kilpatrick) makes a late-night house call to fix the broken leg of a woman named Marie Alcott (Marcia Cross). Marie and her husband Edmund (Harsh Nayyar), who are revealed to be vampires...
+26. [Tales From the Darkside - S02E22 - "The Unhappy Medium" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
+    - Farley Bright (Peter Miller), recently deceased, was a corrupt televangelist and founder of the Church of the Bright Tomorrow. Through his videotaped will, Farley tells his surviving family, niece Jenny, her boyfriend Johnathan, and her mother Caroline (Carolyn Clark, Richard Kuhlman, and Connie Stevens) that he will send them a sign...
 27. Madness - 1981 Honda Motocompo City Ad
 28. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
 29. Punk!
@@ -45,14 +45,14 @@
 32. Colonial Lanes Bowling - Home of Gutterman
 33. 3-2-1 Contact "Noisy Quiet: Music" (1980)
 34. De La Soul - 3 feet high TV 1989
-35. [Friday the 13th -  S01E10 - "Tales of the Undead" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
-    - Ryan witnesses an attack by a character from his favorite comic book. To learn more, Ryan tracks down the comics creator, a bitter man, Jay Star (Ray Walston) with a vendetta against his former business partners.
+35. [Friday the 13th -  S01E11 - "Scarecrow" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
+    - Micki and Ryan head to a small farming town where three people turn up dead each harvest. While investigating, Ryan becomes attached to a young boy who witnessed his father's death. 
 36. Phoone Tawlk (1987)
 37. 809-544-CHAT Party Line (1992)
 38. 1-900-Celebrity (1990)
 39. Zoobooks
-40. [In Search Of... With Leonard Nimoy - S05E04 - "Daredevil Death Wish" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
-    - A look at some of the impossible stunts daredevils attempt, and why they keep trying even after suffering near-fatal injuries. This reflected and echoed one of the That's Incredible! segments, "Incredibly Dangerous," which itself became embroiled in controversy when some of the stuntmen/daredevils it featured were injured severely enough to ruin their careers as such.
+40. [In Search Of... With Leonard Nimoy - S05E05 - "Life After Life" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
+    - The stories of people who claim they have had after-life experiences and say they no longer fear death.
 41. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 42. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 43. Undertale - Napping with Ghost (Outro & Raid out)
