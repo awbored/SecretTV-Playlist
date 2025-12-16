@@ -1,61 +1,28 @@
-# 2025/12/09 - SecretTV Playlist
+# 2025/12/16 - SecretTV Playlist
 
 ## General News
 
-- What the heck?  When did it become December?!
+🎂🎂🎂 Happy 100th Birthday Dick Van Dyke!! 🎂🎂🎂
+
+Tonight we have a few little hidden gems that starred the birthday boy and we're capping the night with a Nick at Nite marathon from 1991!
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
-2. Escape from New York - Get a new one
-3. POLICE STORY - The Car Scene
-4. Beavis and Butthead - Anarchy Lawnmower
-5. [Robocop - S01E23 - "Public Enemies" (1994)](https://en.wikipedia.org/wiki/RoboCop_(live_action_TV_series)#Episodes)
-   - RoboCop must save the President and First Gentleman from an assassination plot hatched by Dr. Mallardo, Chip Chayken, and Pudface Morgan.
-6. DiC
-7. [Monsters - S03E16 - "The Waiting Room" (1991)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
-   - Benjamin O'Connell (John Saxon) invites himself to travel with his son John (Christian LeBlanc) and John's new wife Katharine (Lisa Waltz) to an empty motel in the mountains to celebrate their honeymoon. That night, John wakes up, goes into a nearby room shrouded in darkness, and disappears...
-8. Artie's Workout
-9. Madness Colgate' TV Advert
-10. Jan Terri - Rock N Roll Santa
-11. Big Bill Hell
-12. Colin's Bear Animation
-13. The Electric Company - Lick a Lolly Song
-14. SWEETIES Lickin' My Chops
-15. UHF - Spatula City
-16. SNL - Cluckin Chicken
-17. Gary Numan - Metal - Sync with Karate
-18. [The Adventures of Pete & Pete - S03E07 - "Road Warrior" (1995)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_3_(1995%E2%80%931996))
-    - Big Pete and his friends reach the age of responsibility and take Driver's Ed from Mr. Slurm, the shop teacher.
-19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E36
-    - The Octopus sees something that he really, really wants.  And then he gets it!
-20. Cats PSA - Your Childs Life is in Your Hands
-21. Detroit Institute of Arts
-22. KatyPerrySlimed
-23. Gonzo Guilt
-24. Home Alone - I Made My Parents Disappear
-25. Emmet Otter's Jug Band Christmas Outtakes
-26. [Tales From the Darkside - S02E22 - "The Unhappy Medium" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
-    - Farley Bright (Peter Miller), recently deceased, was a corrupt televangelist and founder of the Church of the Bright Tomorrow. Through his videotaped will, Farley tells his surviving family, niece Jenny, her boyfriend Johnathan, and her mother Caroline (Carolyn Clark, Richard Kuhlman, and Connie Stevens) that he will send them a sign...
-27. Madness - 1981 Honda Motocompo City Ad
-28. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
-29. Punk!
-30. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
-31. 1989 1-900 Party Line television commercial
-32. Colonial Lanes Bowling - Home of Gutterman
-33. 3-2-1 Contact "Noisy Quiet: Music" (1980)
-34. De La Soul - 3 feet high TV 1989
-35. [Friday the 13th -  S01E11 - "Scarecrow" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
-    - Micki and Ryan head to a small farming town where three people turn up dead each harvest. While investigating, Ryan becomes attached to a young boy who witnessed his father's death. 
-36. Phoone Tawlk (1987)
-37. 809-544-CHAT Party Line (1992)
-38. 1-900-Celebrity (1990)
-39. Zoobooks
-40. [In Search Of... With Leonard Nimoy - S05E05 - "Life After Life" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
-    - The stories of people who claim they have had after-life experiences and say they no longer fear death.
-41. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-42. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-43. Undertale - Napping with Ghost (Outro & Raid out)
+2. Crazy Eddie's Christmas Commercial (1985)
+3. The Fabulous Fifties Clip - Dick Van Dyke Learns to Dance
+4. Carol Burnett Show - Painting Musical Number
+5. Dick Van Dyke Show - I Have Everything But You
+6. The Town Santa Forgot, Twelve Days of Christmas with Commercials (NBC December 1993)
+7. Carol Burnett Show - Dance Goes Awry
+8. Kool-Aid Man Shows Us How to Field a Bunt
+9. Jan Terri - Rock n Roll Santa
+10. Carol Burnett Show - When Your Flight Gets Delayed
+11. 100-Year-Old Dick Van Dyke Reacts to His Life in Photos
+12. Nick At Nite Dick Van Dyke Marathon with Commercials (November 1991)
+13. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+14. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+15. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 
