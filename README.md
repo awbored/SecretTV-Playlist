@@ -1,28 +1,58 @@
-# 2025/12/16 - SecretTV Playlist
+# 2025/12/23 - SecretTV Playlist
 
 ## General News
 
-🎂🎂🎂 Happy 100th Birthday Dick Van Dyke!! 🎂🎂🎂
+🎄🎄🎄 The Annual SecretTV Christmas Marathon is on! 🎄🎄🎄
 
-Tonight we have a few little hidden gems that starred the birthday boy and we're capping the night with a Nick at Nite marathon from 1991!
+Please enjoy this specialty currated list of Christmas Specials, Commercials, and everything in between for your holiday enjoyment!  The marathon will run from December 23rd - December 26th!  We have about 28 hours worth of material so the playlist will LOOP through the holiday!
+
+
 
 ## SecretTV Playlist
 
-1. Secret TV Roller Coaster (intro)
-2. Crazy Eddie's Christmas Commercial (1985)
-3. The Fabulous Fifties Clip - Dick Van Dyke Learns to Dance
-4. Carol Burnett Show - Painting Musical Number
-5. Dick Van Dyke Show - I Have Everything But You
-6. The Town Santa Forgot, Twelve Days of Christmas with Commercials (NBC December 1993)
-7. Carol Burnett Show - Dance Goes Awry
-8. Kool-Aid Man Shows Us How to Field a Bunt
-9. Jan Terri - Rock n Roll Santa
-10. Carol Burnett Show - When Your Flight Gets Delayed
-11. 100-Year-Old Dick Van Dyke Reacts to His Life in Photos
-12. Nick At Nite Dick Van Dyke Marathon with Commercials (November 1991)
-13. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-14. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-15. Undertale - Napping with Ghost (Outro & Raid out)
+1. 70s & 80s Christmas Commercials Break 001
+2. Santa's Rap Hotline Commercial
+3. Charlie Brown Christmas Original CBS Airing
+4. SNL TV Funhouse - Charlie Brown Christmas
+5. Rudolph the Red Nose Reindeer & Looney Tunes Christmas Special (CBS Tape)
+6. SNL TV Funhouse - The Narrator That Ruined Christmas
+7. 70s & 80s Christmas Commercials Break 002
+8. America's Most Wanted, The Simpsons Christmas Special, Married With Children, Tracey Ulman Show (FOX Xmas Tape 1989)
+9. Crazy Eddie's Christmas TV Commercial (1985)
+10. The Muppet Christmas Carol (1992)
+11. The Muppet Christmas Carol (1992) - Extras: Christmas Around The World
+12. The Muppet Christmas Carol (1992) - Extras: When Love Is Gone, Extended Scene
+13. Ziggy's Gift & Christmas Comes To Pac-Land (1983/12/08)
+14. 70s & 80s Christmas Commercials Break 003
+15. SPX-90 - Gumby Rap (1987/12/18)
+16. The Town Santa Forgot & Twelve Days of Christmas (NBC Tape 1993/12)
+17. A Nightmare on Elm Street 4 - The Dream Master Christmas Ad (1988)
+18. Will Vinton's Claymation Christmas Celebration
+19. SCTV - Liberace Musical Tribute to the Holidays
+20. 70s & 80s Christmas Commercials Break 004
+21. Emmet Otter's Jug-Band Christmas (Nick Sunday Night Muppets 1992/12/20)
+22. Emmet Otter's Jug Band Christmas Outtakes
+23. SCTV - The Fella That Couldn't Wait For Christmas
+24. 70s & 80s Christmas Commercials Break 005
+25. Garfield Christmas Special
+26. Simpsons Christmas Special, Charlie Brown Christmas Special, Frosty the Snowman, A Very Brady Christmas (FOX & CBS Tape 1989)
+27. Home Alone - "I made my parents disappear"
+28. Gremlins (KPOM 1989/01/01)
+29. Jan Terri - Rock N Roll Santa
+30. How the Grinch Stole Christmas & Making of with Phil Hartman (TNT 1995)
+31. 70s & 80s Christmas Commercials Break 006
+32. I Have Everything But You - Dick Van Dyke & Mary Tyler Moore
+33. Mixed Nuts (1994)
+34. Pee Wee's Playhouse Christmas (CBS 1988/12/24)
+35. MTV Devo "Merry Christmas" Bumper
+36. Elvira's Movie Macabre - Santa Claus Conquers the Martians
+37. SCTV - The Dusty Towne Sexy Holiday Special
+38. 70s & 80s Christmas Commercials Break 007
+39. My So-Called Life - S01E15 - So-Called Angels
+40. Rex - A Dinosaur's Story (1993)
+41. Santa Claus The Movie (ABC 1988/12/24)
+42. 70s & 80s Christmas Commercials Break 008
+43. A Christmas Story (TNT)
 
 
 
