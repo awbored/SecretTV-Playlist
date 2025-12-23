@@ -51,8 +51,9 @@ Please enjoy this specialty currated list of Christmas Specials, Commercials, an
 39. My So-Called Life - S01E15 - So-Called Angels
 40. Rex - A Dinosaur's Story (1993)
 41. Santa Claus The Movie (ABC 1988/12/24)
-42. 70s & 80s Christmas Commercials Break 008
-43. A Christmas Story (TNT)
+42. Ebenezer, starring Jack Palance (1998)
+43. 70s & 80s Christmas Commercials Break 008
+44. A Christmas Story (TNT)
 
 
 
