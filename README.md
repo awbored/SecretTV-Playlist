@@ -4,7 +4,7 @@
 
 🎄🎄🎄 The Annual SecretTV Christmas Marathon is on! 🎄🎄🎄
 
-Please enjoy this specialty currated list of Christmas Specials, Commercials, and everything in between for your holiday enjoyment!  The marathon will run from December 23rd - December 26th!  We have about 28 hours worth of material so the playlist will LOOP through the holiday!
+Please enjoy this specialty curated list of Christmas Specials, Commercials, and everything in between for your holiday enjoyment!  The marathon will run from December 23rd - December 26th!  We have about 28 hours worth of material so the playlist will LOOP through the holiday!
 
 
 
