@@ -54,6 +54,7 @@ Please enjoy this specialty curated list of Christmas Specials, Commercials, and
 42. Ebenezer, starring Jack Palance (1998)
 43. 70s & 80s Christmas Commercials Break 008
 44. A Christmas Story (TNT)
+45. 45. A Muppet Family Christmas (1989)
 
 
 
