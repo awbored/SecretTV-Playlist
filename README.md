@@ -1,60 +1,56 @@
-# 2025/12/23 - SecretTV Playlist
+# 2025/12/30 - SecretTV Playlist
 
 ## General News
 
-🎄🎄🎄 The Annual SecretTV Christmas Marathon is on! 🎄🎄🎄
-
-Please enjoy this specialty curated list of Christmas Specials, Commercials, and everything in between for your holiday enjoyment!  The marathon will run from December 23rd - December 26th!  We have about 28 hours worth of material so the playlist will LOOP through the holiday!
-
-
+- Christmas is over! (if you want it)
 
 ## SecretTV Playlist
 
-1. 70s & 80s Christmas Commercials Break 001
-2. Santa's Rap Hotline Commercial
-3. Charlie Brown Christmas Original CBS Airing
-4. SNL TV Funhouse - Charlie Brown Christmas
-5. Rudolph the Red Nose Reindeer & Looney Tunes Christmas Special (CBS Tape)
-6. SNL TV Funhouse - The Narrator That Ruined Christmas
-7. 70s & 80s Christmas Commercials Break 002
-8. America's Most Wanted, The Simpsons Christmas Special, Married With Children, Tracey Ulman Show (FOX Xmas Tape 1989)
-9. Crazy Eddie's Christmas TV Commercial (1985)
-10. The Muppet Christmas Carol (1992)
-11. The Muppet Christmas Carol (1992) - Extras: Christmas Around The World
-12. The Muppet Christmas Carol (1992) - Extras: When Love Is Gone, Extended Scene
-13. Ziggy's Gift & Christmas Comes To Pac-Land (1983/12/08)
-14. 70s & 80s Christmas Commercials Break 003
-15. SPX-90 - Gumby Rap (1987/12/18)
-16. The Town Santa Forgot & Twelve Days of Christmas (NBC Tape 1993/12)
-17. A Nightmare on Elm Street 4 - The Dream Master Christmas Ad (1988)
-18. Will Vinton's Claymation Christmas Celebration
-19. SCTV - Liberace Musical Tribute to the Holidays
-20. 70s & 80s Christmas Commercials Break 004
-21. Emmet Otter's Jug-Band Christmas (Nick Sunday Night Muppets 1992/12/20)
-22. Emmet Otter's Jug Band Christmas Outtakes
-23. SCTV - The Fella That Couldn't Wait For Christmas
-24. 70s & 80s Christmas Commercials Break 005
-25. Garfield Christmas Special
-26. Simpsons Christmas Special, Charlie Brown Christmas Special, Frosty the Snowman, A Very Brady Christmas (FOX & CBS Tape 1989)
-27. Home Alone - "I made my parents disappear"
-28. Gremlins (KPOM 1989/01/01)
-29. Jan Terri - Rock N Roll Santa
-30. How the Grinch Stole Christmas & Making of with Phil Hartman (TNT 1995)
-31. 70s & 80s Christmas Commercials Break 006
-32. I Have Everything But You - Dick Van Dyke & Mary Tyler Moore
-33. Mixed Nuts (1994)
-34. Pee Wee's Playhouse Christmas (CBS 1988/12/24)
-35. MTV Devo "Merry Christmas" Bumper
-36. Elvira's Movie Macabre - Santa Claus Conquers the Martians
-37. SCTV - The Dusty Towne Sexy Holiday Special
-38. 70s & 80s Christmas Commercials Break 007
-39. My So-Called Life - S01E15 - So-Called Angels
-40. Rex - A Dinosaur's Story (1993)
-41. Santa Claus The Movie (ABC 1988/12/24)
-42. Ebenezer, starring Jack Palance (1998)
-43. 70s & 80s Christmas Commercials Break 008
-44. A Christmas Story (TNT)
-45. A Muppet Family Christmas (1989)
+1. Secret TV Roller Coaster (intro)
+2. Escape from New York - Get a new one
+3. POLICE STORY - The Car Scene
+4. Beavis and Butthead - If meat is bad for you...
+5. [Alien Nation - S01E01 - "Pilot" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
+   - The Francisco family move into a more affluent neighbourhood where they are welcomed by some, but resented by others. The youngest daughter, Emily attempts to go to her new school but is blocked by protesters on her first day. Sikes and George arrive and Sikes compares Newcomers to other minority groups...
+6. DiC
+7. [Monsters - S03E17 - "Leavings" (1991)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
+   - Police officers Mancini and Parkhurst (Tony Shalhoub and John Christopher Jones) bring a homeless man (Ken Costigan) with no arms to the police station. They report to their supervisor, the Inspector (Clifton James), that the homeless man is the latest in a long line of peculiar people they have been running into, each person missing a different body part that they had a few days ago...
+8. Artie's Workout
+9. Madness Colgate' TV Advert
+10. Wendy's Chicken Sandwich commercial 1986
+11. Big Bill Hell
+12. Colin's Bear Animation
+13. The Electric Company - Lick a Lolly Song
+14. SWEETIES Lickin' My Chops
+15. UHF - Spatula City
+16. SNL - James Brown's Celebrity Hot Tub Party
+17. Gary Numan - Metal - Sync with Karate
+18. [The Adventures of Pete & Pete - S03E08 - "Pinned!" (1995)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_3_(1995%E2%80%931996))
+    - Big Pete tries to get a varsity letter and climb to the top of the social ladder the easy way by joining the wrestling team, and finds that individual sports are not a cakewalk. He trains for a confrontation at the big match with "Endless" Mike Hellstrom, and is coached by Ellen, a huge wrestling fan. However, Ellen's efforts to train Big Pete are threatened by the school's wrestling coach, Beano Glattner.
+19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E37
+    - The Octopus sees something that he really, really wants.  And then he gets it!
+20. Cats PSA - Your Childs Life is in Your Hands
+21. Kool-Aid Man Shows us how to field a bunt
+22. KatyPerrySlimed
+23. Gonzo Guilt
+25. National Love Call Cassette Player (Jennifer Connelly) Japanese Commercial
+26. [Tales From the Darkside - S02E23 - "Fear of Floating" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
+    - Arnold Barker (Howard Sherman) is a compulsive liar who miraculously has the ability to float whenever he lies...
+27. Madness - 1981 Honda Motocompo City Ad
+28. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
+29. Punk!
+30. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
+31. 1989 1-900 Party Line television commercial
+32. Colonial Lanes Bowling - Home of Gutterman
+36. Phoone Tawlk (1987)
+37. 809-544-CHAT Party Line (1992)
+38. 1-900-Celebrity (1990)
+39. Zoobooks
+40. [In Search Of... With Leonard Nimoy - S05E06 - "Moon Madness" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
+    - Violence and passion are commonplace when the moon is full. Is there any truth to the Werewolf legends? Leonard Nimoy hosts this historical look at lunacy.
+41. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+42. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+43. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 
