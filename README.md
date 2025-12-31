@@ -2,7 +2,11 @@
 
 ## General News
 
-- Christmas is over! (if you want it)
+Christmas is over! (if you want it)
+
+Tonight we will be starting Alien Nation with the made for TV movie pilot episode.  Because this is a movie length pilot, I have removed Friday the 13th from this week's playlist.  Friday the 13th will continue next week.
+
+There will be no stream on New Years Eve, however on New Years Day, I have submitted a video for the [UB & Friends LIVESTREAM](https://www.youtube.com/watch?v=W9SrV1eBubw).  Please subscribe to my friends, and tune into this celebration on Thursday, 1/1/2026 at NOON Pacific.  Thank you!
 
 ## SecretTV Playlist
 
