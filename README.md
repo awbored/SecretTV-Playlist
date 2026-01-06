@@ -1,12 +1,8 @@
-# 2025/12/30 - SecretTV Playlist
+# 2026/01/06 - SecretTV Playlist
 
 ## General News
 
-Christmas is over! (if you want it)
-
-Tonight we will be starting Alien Nation with the made for TV movie pilot episode.  Because this is a movie length pilot, I have removed Friday the 13th from this week's playlist.  Friday the 13th will continue next week.
-
-There will be no stream on New Years Eve, however on New Years Day, I have submitted a video for the [UB & Friends LIVESTREAM](https://www.youtube.com/watch?v=W9SrV1eBubw).  Please subscribe to my friends, and tune into this celebration on Thursday, 1/1/2026 at NOON Pacific.  Thank you!
+- Happy new year! 🎊🎉🍾
 
 ## SecretTV Playlist
 
@@ -14,11 +10,11 @@ There will be no stream on New Years Eve, however on New Years Day, I have submi
 2. Escape from New York - Get a new one
 3. POLICE STORY - The Car Scene
 4. Beavis and Butthead - If meat is bad for you...
-5. [Alien Nation - S01E01 - "Pilot" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
-   - The Francisco family move into a more affluent neighbourhood where they are welcomed by some, but resented by others. The youngest daughter, Emily attempts to go to her new school but is blocked by protesters on her first day. Sikes and George arrive and Sikes compares Newcomers to other minority groups...
+5. [Alien Nation - S01E02 - "Fountain of Youth" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
+   - Sikes' issues with aging are intensified when he learns that the Newcomer life-span is almost twice that of humans. The death of a police officer during surgery raises questions about the hospital run by Sikes old school friend. After passing out at a party, Sikes finds out that he has been operated on and an alien gland implanted...
 6. DiC
-7. [Monsters - S03E17 - "Leavings" (1991)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
-   - Police officers Mancini and Parkhurst (Tony Shalhoub and John Christopher Jones) bring a homeless man (Ken Costigan) with no arms to the police station. They report to their supervisor, the Inspector (Clifton James), that the homeless man is the latest in a long line of peculiar people they have been running into, each person missing a different body part that they had a few days ago...
+7. [Monsters - S03E18 - "Desirable Alien" (1991)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
+   - Hercules Valvalotus (Tony Spiridakis) is a Greek immigrant working at a dingy Greek restaurant with his best friend, Latino immigrant Luis (Luis Guzmán). Hercules' new case worker Maggie Price (Wendy Makkena) enters the restaurant to investigate Hercules' application for citizenship, noting that the lack of a physical examination renders the application incomplete. Establishing himself as a shameless lothario, Hercules turns on the sexual charm to try and get Maggie to give him a break...
 8. Artie's Workout
 9. Madness Colgate' TV Advert
 10. Wendy's Chicken Sandwich commercial 1986
@@ -29,29 +25,31 @@ There will be no stream on New Years Eve, however on New Years Day, I have submi
 15. UHF - Spatula City
 16. SNL - James Brown's Celebrity Hot Tub Party
 17. Gary Numan - Metal - Sync with Karate
-18. [The Adventures of Pete & Pete - S03E08 - "Pinned!" (1995)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_3_(1995%E2%80%931996))
-    - Big Pete tries to get a varsity letter and climb to the top of the social ladder the easy way by joining the wrestling team, and finds that individual sports are not a cakewalk. He trains for a confrontation at the big match with "Endless" Mike Hellstrom, and is coached by Ellen, a huge wrestling fan. However, Ellen's efforts to train Big Pete are threatened by the school's wrestling coach, Beano Glattner.
-19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E37
+18. [The Adventures of Pete & Pete - S03E09 - "'O Christmas Pete" (1995)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_3_(1995%E2%80%931996))
+    - Little Pete prolongs Christmas for as long as possible after the holiday's end, in an attempt to keep the neighborhood in a constant aura of yuletide joy. His efforts are threatened by a bitter garbage man who enjoys destroying Christmas trees and the holiday spirit they represent. Big Pete is forced to choose either to help his brother prolong Christmas or put an end to it.
+19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E38
     - The Octopus sees something that he really, really wants.  And then he gets it!
 20. Cats PSA - Your Childs Life is in Your Hands
 21. Kool-Aid Man Shows us how to field a bunt
 22. KatyPerrySlimed
 23. Gonzo Guilt
 25. National Love Call Cassette Player (Jennifer Connelly) Japanese Commercial
-26. [Tales From the Darkside - S02E23 - "Fear of Floating" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
-    - Arnold Barker (Howard Sherman) is a compulsive liar who miraculously has the ability to float whenever he lies...
+26. [Tales From the Darkside - S02E24 - "The Casavin Curse" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
+    - Gina Casavin (Catherine Parks), born into a wealthy family, brutally murders her latest lover. She assures the psychologist that analyzes her, Dr. Webster (Scott Lincoln), that she has been cursed...
 27. Madness - 1981 Honda Motocompo City Ad
 28. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
 29. Punk!
 30. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
 31. 1989 1-900 Party Line television commercial
 32. Colonial Lanes Bowling - Home of Gutterman
+35. [Friday the 13th -  S01E12 - "Faith Healer" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
+    - A debunked faith-healer, Stewart Fishoff, acquires real healing-powers, but gets debunked again, and worse, by one of Jack's peculiar old friends, Jerry Scott (Robert A. Silverman).
 36. Phoone Tawlk (1987)
 37. 809-544-CHAT Party Line (1992)
 38. 1-900-Celebrity (1990)
 39. Zoobooks
-40. [In Search Of... With Leonard Nimoy - S05E06 - "Moon Madness" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
-    - Violence and passion are commonplace when the moon is full. Is there any truth to the Werewolf legends? Leonard Nimoy hosts this historical look at lunacy.
+40. [In Search Of... With Leonard Nimoy - S05E07 - "Dangerous Volcanoes" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
+    - Scientists wonder whether California's Mount Shasta, Washington's Mount St. Helens, and other American volcanoes will soon erupt again.
 41. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 42. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 43. Undertale - Napping with Ghost (Outro & Raid out)
