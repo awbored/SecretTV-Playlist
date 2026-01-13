@@ -1,4 +1,4 @@
-# 2026/01/06 - SecretTV Playlist
+# 2026/01/13 - SecretTV Playlist
 
 ## General News
 
@@ -10,11 +10,11 @@
 2. Escape from New York - Get a new one
 3. POLICE STORY - The Car Scene
 4. Beavis and Butthead - If meat is bad for you...
-5. [Alien Nation - S01E02 - "Fountain of Youth" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
-   - Sikes' issues with aging are intensified when he learns that the Newcomer life-span is almost twice that of humans. The death of a police officer during surgery raises questions about the hospital run by Sikes old school friend. After passing out at a party, Sikes finds out that he has been operated on and an alien gland implanted...
+5. [Alien Nation - S01E03 - "Little Lost Lamb" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
+   -  Sikes tries to help a 16-year-old Newcomer prostitute. George deals with the intrusion of Uncle Moodri and his traditional Tenctonese values.
 6. DiC
-7. [Monsters - S03E18 - "Desirable Alien" (1991)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
-   - Hercules Valvalotus (Tony Spiridakis) is a Greek immigrant working at a dingy Greek restaurant with his best friend, Latino immigrant Luis (Luis Guzmán). Hercules' new case worker Maggie Price (Wendy Makkena) enters the restaurant to investigate Hercules' application for citizenship, noting that the lack of a physical examination renders the application incomplete. Establishing himself as a shameless lothario, Hercules turns on the sexual charm to try and get Maggie to give him a break...
+7. [Monsters - S03E19 - "A Face for Radio" (1991)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
+   - Ray Bright (Morton Downey, Jr.) is the arrogant and sleazy host of a late-night "hate radio" program titled The Ray Bright Show. Bright's producer is a hot blonde named Debbie (who was Downey's real life girlfriend and later wife at the time, Lori Krebs). Bright first interviews Cassandra Lefkowitz (Julie Wilson), a psychic who can presumably see futures where people undergo grievous injury and pain...
 8. Artie's Workout
 9. Madness Colgate' TV Advert
 10. Wendy's Chicken Sandwich commercial 1986
@@ -25,31 +25,34 @@
 15. UHF - Spatula City
 16. SNL - James Brown's Celebrity Hot Tub Party
 17. Gary Numan - Metal - Sync with Karate
-18. [The Adventures of Pete & Pete - S03E09 - "'O Christmas Pete" (1995)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_3_(1995%E2%80%931996))
-    - Little Pete prolongs Christmas for as long as possible after the holiday's end, in an attempt to keep the neighborhood in a constant aura of yuletide joy. His efforts are threatened by a bitter garbage man who enjoys destroying Christmas trees and the holiday spirit they represent. Big Pete is forced to choose either to help his brother prolong Christmas or put an end to it.
-19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E38
+18. [The Adventures of Pete & Pete - S03E10 - "Das Bus" (1995)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_3_(1995%E2%80%931996))
+    - Big Pete chooses to become school bus driver Stu Benedict's apprentice for the week to be near Penelope Ghiruto (Selma Blair), while Ellen stocks vending machines.
+19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E39
     - The Octopus sees something that he really, really wants.  And then he gets it!
 20. Cats PSA - Your Childs Life is in Your Hands
 21. Kool-Aid Man Shows us how to field a bunt
 22. KatyPerrySlimed
 23. Gonzo Guilt
+24. Just an albino raccoon... nothing else really
 25. National Love Call Cassette Player (Jennifer Connelly) Japanese Commercial
-26. [Tales From the Darkside - S02E24 - "The Casavin Curse" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_2_(1985%E2%80%931986))
-    - Gina Casavin (Catherine Parks), born into a wealthy family, brutally murders her latest lover. She assures the psychologist that analyzes her, Dr. Webster (Scott Lincoln), that she has been cursed...
+26. [Tales From the Darkside - S03E01 - "The Circus" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_3_(1986%E2%80%931987)))
+    - Dr. Niss (William Hickey) is the founder and ringmaster of the "Exhibition of Wonder", a twisted circus that showcases real-life monsters as its main attractions. Bragg (Kevin O'Connor), a cynical and skeptical newspaper columnist who specializes in debunking charlatans...
 27. Madness - 1981 Honda Motocompo City Ad
 28. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
 29. Punk!
 30. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
-31. 1989 1-900 Party Line television commercial
-32. Colonial Lanes Bowling - Home of Gutterman
-35. [Friday the 13th -  S01E12 - "Faith Healer" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
-    - A debunked faith-healer, Stewart Fishoff, acquires real healing-powers, but gets debunked again, and worse, by one of Jack's peculiar old friends, Jerry Scott (Robert A. Silverman).
+31. Hollywood Dog - Pilot with commercials (1990)
+32. 1989 1-900 Party Line television commercial
+33. Colonial Lanes Bowling - Home of Gutterman
+34. WELDOR
+35. [Friday the 13th -  S01E13 - "The Baron's Bride" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
+    - Micki and Ryan are thrown back in 19th century London along with a murderous, hypnotic vampire, Frank Edwards, who has his eyes on Micki.
 36. Phoone Tawlk (1987)
 37. 809-544-CHAT Party Line (1992)
 38. 1-900-Celebrity (1990)
 39. Zoobooks
-40. [In Search Of... With Leonard Nimoy - S05E07 - "Dangerous Volcanoes" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
-    - Scientists wonder whether California's Mount Shasta, Washington's Mount St. Helens, and other American volcanoes will soon erupt again.
+40. [In Search Of... With Leonard Nimoy - S05E08 - "The Lindbergh Kidnapping" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
+    - Digs for the facts behind the controversy that still rages today, the kidnapping of Charles Lindbergh's baby. Was the wrong man executed for the crime?
 41. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 42. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 43. Undertale - Napping with Ghost (Outro & Raid out)
