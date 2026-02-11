@@ -2,17 +2,19 @@
 
 ## General News
 
+- 🎂🎂 Happy Birthday [Emo Philips](https://en.wikipedia.org/wiki/Emo_Philips) (2/7/1956) 🎂🎂!
 - 💘💘 Hope y'all got your sweethearts on your mind 💘💘
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
 2. Escape from New York - Get a new one
-3. POLICE STORY - The Car Scene
+3. UHF - Emo / Shop Teacher Scene
 4. Beavis and Butthead - If meat is bad for you...
 5. [Alien Nation - S01E06 - "The First Cigar" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
    - Francisco comes under the scrutiny of the IRS and wrestles with the ethics of asking for a loan from an influential Newcomer that he has helped.
 6. DiC
+6. Emo Philips - Awkward Encounters
 7. [Monsters - S03E22 - "Hostile Takeover" (1991)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
    - Crooked corporate executive Lawrence Bauer (Dennis Christopher) instigates a corporate takeover on the company of ethical former CEO Tom Hart (William Lanteau). Lawrence's success stems from the fact that he's partnered up with voodoo priestess Matilde (Pam Grier) for the past year, performing arcane rituals to appease the voodoo gods she worships to gain wealth and power (resulting in a literal interpretation of the term "voodoo economics")...
 8. Artie's Workout
@@ -20,6 +22,7 @@
 10. Wendy's Chicken Sandwich commercial 1986
 11. Big Bill Hell
 12. Colin's Bear Animation
+12. Emo Philips - Edinburgh Comedy Fest 2010
 13. The Electric Company - Lick a Lolly Song
 14. SWEETIES Lickin' My Chops
 15. UHF - Spatula City
@@ -33,6 +36,7 @@
 21. Kool-Aid Man Shows us how to field a bunt
 22. KatyPerrySlimed
 23. Gonzo Guilt
+23. Emo Philips - Is Emo 'Heat Wave Old'?
 24. Just an albino raccoon... nothing else really
 25. National Love Call Cassette Player (Jennifer Connelly) Japanese Commercial
 26. [Tales From the Darkside - S03E04 - "Florence Bravo" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_3_(1986%E2%80%931987))
@@ -41,15 +45,18 @@
 28. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
 29. Punk!
 30. Compilation Bimbo DJ
+30. Emo Philips - Golden Gate Bridge
 30. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
 31. [The Idiot Box - S01E03 (1991)](https://en.wikipedia.org/wiki/The_Idiot_Box_(TV_series))
 31. The Idiot Box - EXTRAS - Art Marine - A Career Overview with Artist David Daniels
+31. Emo Philips - How God works
 32. 1989 1-900 Party Line television commercial
 33. Colonial Lanes Bowling - Home of Gutterman
 34. WELDOR
 35. [Friday the 13th -  S01E16 - "Tattoo" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
     - A compulsive gambler in Chinatown, Tommy Chen, acquires tattoo needles that enable him to win big as long as someone else loses their life. 
 36. Phoone Tawlk (1987)
+36. Emo Philips - Drunk Driving PSA
 37. 809-544-CHAT Party Line (1992)
 38. 1-900-Celebrity (1990)
 39. Zoobooks
