@@ -1,9 +1,8 @@
-# 2026/02/10 - SecretTV Playlist
+# 2026/02/17 - SecretTV Playlist
 
 ## General News
 
-- 🎂🎂 Happy Birthday [Emo Philips](https://en.wikipedia.org/wiki/Emo_Philips) (2/7/1956) 🎂🎂!
-- 💘💘 Hope y'all got your sweethearts on your mind 💘💘
+- 💔💔 Broken hearts are for assholes 💔💔 | Post valentine's day stream, AKA back to the USUAL
 
 ## SecretTV Playlist
 
@@ -11,57 +10,51 @@
 2. Escape from New York - Get a new one
 3. UHF - Emo / Shop Teacher Scene
 4. Beavis and Butthead - If meat is bad for you...
-5. [Alien Nation - S01E06 - "The First Cigar" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
-   - Francisco comes under the scrutiny of the IRS and wrestles with the ethics of asking for a loan from an influential Newcomer that he has helped.
+5. [Alien Nation - S01E07 - "Night of the Screams" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
+   - As Halloween approaches, a series of Newcomer murders seems to follow the pattern of a Tenctonese myth.
 6. DiC
-6. Emo Philips - Awkward Encounters
-7. [Monsters - S03E22 - "Hostile Takeover" (1991)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
-   - Crooked corporate executive Lawrence Bauer (Dennis Christopher) instigates a corporate takeover on the company of ethical former CEO Tom Hart (William Lanteau). Lawrence's success stems from the fact that he's partnered up with voodoo priestess Matilde (Pam Grier) for the past year, performing arcane rituals to appease the voodoo gods she worships to gain wealth and power (resulting in a literal interpretation of the term "voodoo economics")...
+7. [Monsters - S03E23 - "The Maker" (1991)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
+   - A vagrant named Mack (Philip Anglim) takes refuge for the night in an abandoned hotel. He runs into J.J. "Freddy" Fredericks (Eddie Bracken), a jolly former magician-turned-alcoholic who lives in the building and calls himself "the Maker". Freddy demonstrates that his magic gives him the power to conjure anything out of thin air, but every object he summons turns out flawed...
 8. Artie's Workout
 9. Madness Colgate' TV Advert
 10. Wendy's Chicken Sandwich commercial 1986
 11. Big Bill Hell
 12. Colin's Bear Animation
-12. Emo Philips - Edinburgh Comedy Fest 2010
 13. The Electric Company - Lick a Lolly Song
 14. SWEETIES Lickin' My Chops
 15. UHF - Spatula City
 16. SNL - James Brown's Celebrity Hot Tub Party
 17. Gary Numan - Metal - Sync with Karate
-18. [The Adventures of Pete & Pete - S03E13 - "Last Laugh" (1996)](https://en.wikipedia.org/wiki/List_of_The_Adventures_of_Pete_%26_Pete_episodes#Season_3_(1995%E2%80%931996))
-    - Little Pete cooks up his biggest April Fool's prank ever for the upcoming Johnny Hygiene assembly, while Principal Ken Schwinger (Adam West) enlists the help of Pit Stain, Hair Net and Nightbrace to stop him.
-19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E42
+18. [Rocky & Bullwinkle & Friends - S01E01 - "Jet Fuel Formula" (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
+19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E43
     - The Octopus sees something that he really, really wants.  And then he gets it!
 20. Cats PSA - Your Childs Life is in Your Hands
 21. Kool-Aid Man Shows us how to field a bunt
 22. KatyPerrySlimed
 23. Gonzo Guilt
-23. Emo Philips - Is Emo 'Heat Wave Old'?
 24. Just an albino raccoon... nothing else really
 25. National Love Call Cassette Player (Jennifer Connelly) Japanese Commercial
-26. [Tales From the Darkside - S03E04 - "Florence Bravo" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_3_(1986%E2%80%931987))
-    - Following a case of adultery, Dr. David McCall (David Hayward) and his wife Emily (Lori Cardille) move into an old house in which a woman murdered her cheating husband. A man-hating spirit named Florence Bravo decides to recreate the events that led to her husband's death to make Emily her companion...
+26. [Tales From the Darkside - S03E05 - "The Geezenstacks" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_3_(1986%E2%80%931987))
+    - Audrey Hummel (Lana Hirsch), a cheerful little girl, is given a dollhouse by her Uncle Richard (Larry Pine), who explains that the house he originally found it in was empty. Audrey's father Sam (Craig Wasson) soon notices that whatever Audrey describes happening to her doll family, the Geezenstacks, carries over into reality and affects the Hummels as well...
 27. Madness - 1981 Honda Motocompo City Ad
 28. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
 29. Punk!
 30. Compilation Bimbo DJ
-30. Emo Philips - Golden Gate Bridge
 30. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
-31. [The Idiot Box - S01E03 (1991)](https://en.wikipedia.org/wiki/The_Idiot_Box_(TV_series))
-31. The Idiot Box - EXTRAS - Art Marine - A Career Overview with Artist David Daniels
-31. Emo Philips - How God works
+31. [The Idiot Box - S01E04 (1991)](https://en.wikipedia.org/wiki/The_Idiot_Box_(TV_series))
+31. The Idiot Box - EXTRAS - Gang of Idiots - A Conversation with Alex Winter and Actor lee Arenberg
 32. 1989 1-900 Party Line television commercial
 33. Colonial Lanes Bowling - Home of Gutterman
 34. WELDOR
-35. [Friday the 13th -  S01E16 - "Tattoo" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
-    - A compulsive gambler in Chinatown, Tommy Chen, acquires tattoo needles that enable him to win big as long as someone else loses their life. 
+35. [Friday the 13th -  S01E17 - "The Electrocutioner" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
+    - An innocent survivor of an electric chair, Eli Pittman, uses the chair's magic powers to get revenge on those who put him in it.
 36. Phoone Tawlk (1987)
 36. Emo Philips - Drunk Driving PSA
 37. 809-544-CHAT Party Line (1992)
 38. 1-900-Celebrity (1990)
 39. Zoobooks
-40. [In Search Of... With Leonard Nimoy - S05E11 - "Fountain of Youth" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
-    - A look at the various scientific ways people use to stay young for years longer.
+40. [In Search Of... With Leonard Nimoy - S05E12 - "Laugh Therapy" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
+    - Can laughter combat disease? A Nobel Prize winner says he cured himself after doctors gave up hope.
 41. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 42. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 43. Undertale - Napping with Ghost (Outro & Raid out)
