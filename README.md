@@ -39,7 +39,8 @@
 27. Madness - 1981 Honda Motocompo City Ad
 28. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
 29. Punk!
-30. Compilation Bimbo DJ
+30. Zschau - Wolfman Jack 1986
+31. Compilation Bimbo DJ
 30. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
 31. [The Idiot Box - S01E05 (1991)](https://en.wikipedia.org/wiki/The_Idiot_Box_(TV_series))
 31. The Idiot Box - EXTRAS - Lockjaw Speaks - Interview with Director and Co-Star Tom Stern
