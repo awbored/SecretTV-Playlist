@@ -1,8 +1,8 @@
-# 2026/02/24 - SecretTV Playlist
+# 2026/03/10 - SecretTV Playlist
 
 ## General News
 
-- 💔💔 Broken hearts are for assholes 💔💔 | Post valentine's day stream, AKA back to the USUAL
+- 📺📺 We're back! 📺📺
 
 ## SecretTV Playlist
 
@@ -41,24 +41,25 @@
 29. Punk!
 30. Zschau - Wolfman Jack 1986
 31. Compilation Bimbo DJ
-30. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
-31. [The Idiot Box - S01E05 (1991)](https://en.wikipedia.org/wiki/The_Idiot_Box_(TV_series))
-31. The Idiot Box - EXTRAS - Lockjaw Speaks - Interview with Director and Co-Star Tom Stern
-32. 1989 1-900 Party Line television commercial
-33. Colonial Lanes Bowling - Home of Gutterman
-34. WELDOR
-35. [Friday the 13th -  S01E18 - "Brain Drain" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
+32. Billy Dee Williams on Carl Stalling
+33. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
+34. [The Idiot Box - S01E05 (1991)](https://en.wikipedia.org/wiki/The_Idiot_Box_(TV_series))
+35. The Idiot Box - EXTRAS - Lockjaw Speaks - Interview with Director and Co-Star Tom Stern
+36. 1989 1-900 Party Line television commercial
+37. Colonial Lanes Bowling - Home of Gutterman
+38. WELDOR
+39. [Friday the 13th -  S01E18 - "Brain Drain" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
     - A mentally impaired man (Denis Forest) uses a cursed trepanator to steal brain-power from smart people, and his next target is Jack's bride-to-be (Carrie Snodgress).
-36. Phoone Tawlk (1987)
-36. Emo Philips - Drunk Driving PSA
-37. 809-544-CHAT Party Line (1992)
-38. 1-900-Celebrity (1990)
-39. Zoobooks
-40. [In Search Of... With Leonard Nimoy - S05E13 - "Salem Witches" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
+40. Phoone Tawlk (1987)
+41. Emo Philips - Drunk Driving PSA
+42. 809-544-CHAT Party Line (1992)
+43. 1-900-Celebrity (1990)
+44. Zoobooks
+45. [In Search Of... With Leonard Nimoy - S05E13 - "Salem Witches" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
     - Are the witches of Salem still casting spells in Massachusetts?
-41. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-42. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-43. Undertale - Napping with Ghost (Outro & Raid out)
+46. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+47. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+48. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 
