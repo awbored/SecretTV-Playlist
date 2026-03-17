@@ -13,7 +13,7 @@
 5. [Alien Nation - S01E09 - "Three to Tango" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
    -  A series of murders of Binnaum, a rare kind of Tenctonese needed for catalyzing reproduction, raises fears that Purists are trying to stop the Tenctonese from breeding. Francisco asks Albert to be the Binnaum for his and Susan's next child.
 6. DiC
-7. [Maniac Mansion - S01E01 - "The 10th Anniversary Special" (1991)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
+7. [Maniac Mansion - S01E01 - "The 10th Anniversary Special" (1990)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
 8. Artie's Workout
 9. Madness Colgate' TV Advert
 10. Wendy's Chicken Sandwich commercial 1986
