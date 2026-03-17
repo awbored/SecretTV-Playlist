@@ -2,7 +2,7 @@
 
 ## General News
 
-- 📺📺 We're back! 📺📺
+- 🍀🍀 You better be wearing green, or something, something! 🍀🍀
 
 ## SecretTV Playlist
 
