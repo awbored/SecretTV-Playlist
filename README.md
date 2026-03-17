@@ -1,4 +1,4 @@
-# 2026/03/10 - SecretTV Playlist
+# 2026/03/17 - SecretTV Playlist
 
 ## General News
 
@@ -10,11 +10,10 @@
 2. Escape from New York - Get a new one
 3. UHF - Emo / Shop Teacher Scene
 4. Beavis and Butthead - If meat is bad for you...
-5. [Alien Nation - S01E08 - "Contact" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
-   - The murder of an astronomer leads Sikes and Francisco to the discovery of an extra-terrestrial probe passing through the Solar System. But is it friend or foe? Sikes' relations with his Newcomer neighbor, Cathy, develops. George and Susan discuss having another baby.
+5. [Alien Nation - S01E09 - "Three to Tango" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
+   -  A series of murders of Binnaum, a rare kind of Tenctonese needed for catalyzing reproduction, raises fears that Purists are trying to stop the Tenctonese from breeding. Francisco asks Albert to be the Binnaum for his and Susan's next child.
 6. DiC
-7. [Monsters - S03E24 - "The Moving Finger" (1991)](https://en.wikipedia.org/wiki/List_of_Monsters_episodes#Season_3_(1990%E2%80%9391))
-   - Howard "Howie" Mitla (Tom Noonan) is an accountant and television addict who has a particular fondness for quiz shows, always getting the correct answers before the contestants. Howie's wife Violet (Alice Playten) goes out for ice cream while her husband watches his shows. After hearing a noise, Howie witnesses an incredibly long, bony finger poking out of the drain of his bathroom sink...
+7. [Maniac Mansion - S01E01 - "The 10th Anniversary Special" (1991)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
 8. Artie's Workout
 9. Madness Colgate' TV Advert
 10. Wendy's Chicken Sandwich commercial 1986
@@ -25,8 +24,8 @@
 15. UHF - Spatula City
 16. SNL - James Brown's Celebrity Hot Tub Party
 17. Gary Numan - Metal - Sync with Karate
-18. [Rocky & Bullwinkle & Friends - S01E02 - "Jet Fuel Formula" (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
-19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E44
+18. [Rocky & Bullwinkle & Friends - S01E03 - "Bullseye Bullwinkle" or "Destination Moose" (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
+19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E45
     - The Octopus sees something that he really, really wants.  And then he gets it!
 20. Cats PSA - Your Childs Life is in Your Hands
 21. Kool-Aid Man Shows us how to field a bunt
@@ -34,8 +33,8 @@
 23. Gonzo Guilt
 24. Just an albino raccoon... nothing else really
 25. National Love Call Cassette Player (Jennifer Connelly) Japanese Commercial
-26. [Tales From the Darkside - S03E06 - "Black Widows" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_3_(1986%E2%80%931987))
-    - Against the wishes of her reclusive mother Mildred (Margaret O'Brien), trailer park resident Audrey Webster (Theresa Saldana) has decided to marry who she believes to be the man of her dreams. On her wedding night however, Audrey ends up killing and devouring her new husband...
+26. [Tales From the Darkside - S03E07 - "Heretic" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_3_(1986%E2%80%931987))
+    - Harte (Bruce MacVittie), an unscrupulous art dealer, buys a stolen painting of the Spanish Inquisition from a thief. Harte soon regrets his purchase when he is visited by a mysterious monk (Alan Scarfe) who begs him to repent his sins and return the painting...
 27. Madness - 1981 Honda Motocompo City Ad
 28. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
 29. Punk!
@@ -43,20 +42,20 @@
 31. Compilation Bimbo DJ
 32. Billy Dee Williams on Carl Stalling
 33. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
-34. [The Idiot Box - S01E05 (1991)](https://en.wikipedia.org/wiki/The_Idiot_Box_(TV_series))
-35. The Idiot Box - EXTRAS - Lockjaw Speaks - Interview with Director and Co-Star Tom Stern
+34. [The Idiot Box - S01E06 (1991)](https://en.wikipedia.org/wiki/The_Idiot_Box_(TV_series))
+35. The Idiot Box - EXTRAS - Exiting Texas - A Conversation with Tom Stern and Actor John Hawkes
 36. 1989 1-900 Party Line television commercial
 37. Colonial Lanes Bowling - Home of Gutterman
 38. WELDOR
-39. [Friday the 13th -  S01E18 - "Brain Drain" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
-    - A mentally impaired man (Denis Forest) uses a cursed trepanator to steal brain-power from smart people, and his next target is Jack's bride-to-be (Carrie Snodgress).
+39. [Friday the 13th -  S01E19 - "The Quilt of Hathor" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
+    - While searching for a cursed quilt in a reclusive, anti-modern religious community, Ryan falls in love and joins a religious sect. 
 40. Phoone Tawlk (1987)
 41. Emo Philips - Drunk Driving PSA
 42. 809-544-CHAT Party Line (1992)
 43. 1-900-Celebrity (1990)
 44. Zoobooks
-45. [In Search Of... With Leonard Nimoy - S05E13 - "Salem Witches" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
-    - Are the witches of Salem still casting spells in Massachusetts?
+45. [In Search Of... With Leonard Nimoy - S05E14 - "Super Children" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
+    - Investigates scientific efforts to produce a generation of child prodigies; are they born or made?
 46. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 47. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 48. Undertale - Napping with Ghost (Outro & Raid out)
