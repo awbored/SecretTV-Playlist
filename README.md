@@ -1,8 +1,8 @@
-# 2026/03/17 - SecretTV Playlist
+# 2026/03/24 - SecretTV Playlist
 
 ## General News
 
-- 🍀🍀 You better be wearing green, or something, something! 🍀🍀
+- "A computer once beat me at chess, but it was no match for me at kick boxing." ~Emo Philips 
 
 ## SecretTV Playlist
 
@@ -10,13 +10,13 @@
 2. Escape from New York - Get a new one
 3. UHF - Emo / Shop Teacher Scene
 4. Beavis and Butthead - If meat is bad for you...
-5. [Alien Nation - S01E09 - "Three to Tango" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
-   -  A series of murders of Binnaum, a rare kind of Tenctonese needed for catalyzing reproduction, raises fears that Purists are trying to stop the Tenctonese from breeding. Francisco asks Albert to be the Binnaum for his and Susan's next child.
+5. [Alien Nation - S01E10 - "The Game" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
+   - The Day of Descent, the fifth anniversary of the Tenctonese's liberation from slavery with their ship's arrival on Earth, finds Francisco depressed. Matt wonders how come and George says that the Newcomers may be celebrating by a gambling device taken from the ship that is still operational. When Matt asks what game this is, Francisco says it is akin to Russian Roulette.
 6. DiC
-7. [Maniac Mansion - S01E01 - "The 10th Anniversary Special" (1990)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
+7. [Maniac Mansion - S01E02 - "Flystruck (a.k.a. The Trouble with Harry)" (1990)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
 8. Artie's Workout
 9. Madness Colgate' TV Advert
-10. Wendy's Chicken Sandwich commercial 1986
+10. Bird's Eye Crispy Chicken - Great Britain (1995)
 11. Big Bill Hell
 12. Colin's Bear Animation
 13. The Electric Company - Lick a Lolly Song
@@ -24,8 +24,9 @@
 15. UHF - Spatula City
 16. SNL - James Brown's Celebrity Hot Tub Party
 17. Gary Numan - Metal - Sync with Karate
-18. [Rocky & Bullwinkle & Friends - S01E03 - "Bullseye Bullwinkle" or "Destination Moose" (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
-19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E45
+18. Colgate Pump Commercial (Another Madness commercial)
+18. [Rocky & Bullwinkle & Friends - S01E04 - "Squeeze Play" or "Invitation to the Trance" (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
+19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E46
     - The Octopus sees something that he really, really wants.  And then he gets it!
 20. Cats PSA - Your Childs Life is in Your Hands
 21. Kool-Aid Man Shows us how to field a bunt
@@ -33,8 +34,8 @@
 23. Gonzo Guilt
 24. Just an albino raccoon... nothing else really
 25. National Love Call Cassette Player (Jennifer Connelly) Japanese Commercial
-26. [Tales From the Darkside - S03E07 - "Heretic" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_3_(1986%E2%80%931987))
-    - Harte (Bruce MacVittie), an unscrupulous art dealer, buys a stolen painting of the Spanish Inquisition from a thief. Harte soon regrets his purchase when he is visited by a mysterious monk (Alan Scarfe) who begs him to repent his sins and return the painting...
+26. [Tales From the Darkside - S03E08 - "A Serpent's Tooth" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_3_(1986%E2%80%931987))
+    - Controlling mother Pearl King (Renée Taylor) is given a serpent's tooth by a friend, causing her various metaphors and hyperbole to come true. Her newfound power also forces her children to obey her...
 27. Madness - 1981 Honda Motocompo City Ad
 28. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
 29. Punk!
@@ -42,20 +43,20 @@
 31. Compilation Bimbo DJ
 32. Billy Dee Williams on Carl Stalling
 33. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
-34. [The Idiot Box - S01E06 (1991)](https://en.wikipedia.org/wiki/The_Idiot_Box_(TV_series))
-35. The Idiot Box - EXTRAS - Exiting Texas - A Conversation with Tom Stern and Actor John Hawkes
+34. [The Idiot Box - S01E07 - The Best of Idiot Box (1991)](https://en.wikipedia.org/wiki/The_Idiot_Box_(TV_series))
+35. The Idiot Box - EXTRAS - Young, Dumb and Full of Jokes - Interview with Co-Writer Tim Burns
 36. 1989 1-900 Party Line television commercial
 37. Colonial Lanes Bowling - Home of Gutterman
 38. WELDOR
-39. [Friday the 13th -  S01E19 - "The Quilt of Hathor" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
-    - While searching for a cursed quilt in a reclusive, anti-modern religious community, Ryan falls in love and joins a religious sect. 
+39. [Friday the 13th -  S01E20 - "The Quilt of Hathor: The Awakening" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
+    - While searching for a cursed quilt in a reclusive, anti-modern religious community, Ryan falls in love and joins a religious sect.  Part 2: Ryan is framed by the town leader, Josiah Grange, as the mastermind of all the killings. 
 40. Phoone Tawlk (1987)
 41. Emo Philips - Drunk Driving PSA
 42. 809-544-CHAT Party Line (1992)
 43. 1-900-Celebrity (1990)
 44. Zoobooks
-45. [In Search Of... With Leonard Nimoy - S05E14 - "Super Children" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
-    - Investigates scientific efforts to produce a generation of child prodigies; are they born or made?
+45. [In Search Of... With Leonard Nimoy - S05E15 - "The Great Wall of China" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
+    - The story of one of the world's greatest wonders - who built it and why?
 46. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 47. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 48. Undertale - Napping with Ghost (Outro & Raid out)
