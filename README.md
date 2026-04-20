@@ -1,41 +1,40 @@
-# 2026/04/01 - SecretTV Playlist
+# 2026/04/21 - SecretTV Playlist
 
 ## General News
 
-- Question of the day, What is the greatest April Fools prank you have ever pulled?
+- Fun Fact: April 21st, 1934, the Daily Mail publishes the photo of the Loch Ness monster, known as the "surgeon's photograph."
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
 2. Escape from New York - Get a new one
 3. UHF - Emo / Shop Teacher Scene
-4. Candid Camera - All You Can Carry Pumpkins
-5. [Alien Nation - S01E11 - "Chains of Love" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
-   - Sikes and Francisco seek an elusive Newcomer woman - all of whose dates wind up dead. George worries about Susan's fidelity.
-6. DiC
-7. [Maniac Mansion - S01E03 - "Trapped Like Rats" (1990)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
+4. [Alien Nation - S01E12 - "The Red Room" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
+   - A break in at a behavioral lab and a series of execution-style murders dredges up buried memories for Francisco.
+5. DiC
+6. [Maniac Mansion - S01E04 - "Love Thy Neighbour" (1990)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
+7. Chronic Trigger with Snoop Dogg
 8. Artie's Workout
 9. Madness Colgate' TV Advert
 10. Bird's Eye Crispy Chicken - Great Britain (1995)
 11. Big Bill Hell
-12. Candid Camera - Boxless Pizza
-13. The Electric Company - Lick a Lolly Song
-14. SWEETIES Lickin' My Chops
-15. UHF - Spatula City
-16. SNL - James Brown's Celebrity Hot Tub Party
-17. Gary Numan - Metal - Sync with Karate
-18. Colgate Pump Commercial (Another Madness commercial)
-18. [Rocky & Bullwinkle & Friends - S01E05 - "The Scrooched Moose" (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
-19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E47
+12. The Electric Company - Lick a Lolly Song
+13. SWEETIES Lickin' My Chops
+14. UHF - Spatula City
+15. SNL - James Brown's Celebrity Hot Tub Party
+16. Gary Numan - Metal - Sync with Karate
+17. Colgate Pump Commercial (Another Madness commercial)
+18. [Rocky & Bullwinkle & Friends - S01E06 - "Monitored Moose" & "The Carbon Copy Cats" (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
+19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E48
     - The Octopus sees something that he really, really wants.  And then he gets it!
 20. Cats PSA - Your Childs Life is in Your Hands
-21. Kool-Aid Man Shows us how to field a bunt
-22. KatyPerrySlimed
-23. Gonzo Guilt
-24. Candid Camera - Catch a Computer Virus
+21. [Zebra Corner - If "Anti-Drug" Commercials were Real Life - Stoner Sloth/Flat](https://www.youtube.com/watch?v=ly5-X3mxFTo)
+22. Kool-Aid Man Shows us how to field a bunt
+23. KatyPerrySlimed
+24. Gonzo Guilt
 25. National Love Call Cassette Player (Jennifer Connelly) Japanese Commercial
-26. [Tales From the Darkside - S03E09 - "Baker's Dozen" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_3_(1986%E2%80%931987))
-    - In New Orleans, voodoo witch Ruby Cuzzins (Mabel King) owns and operates the Cuzzins Dozens cookie shop, where she bakes and sells cookies with magical properties. Ruby also regularly punishes her assistant and father Aloysius (Vernon Washington), who routinely ran out on her and her mother to get drunk on moonshine, by painfully transforming him into a rat...
+26. [Tales From the Darkside - S03E10 - "Deliver Us From Goodness" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_3_(1986%E2%80%931987))
+    - Valeria Cantrell (Kaiulani Lee), an incredibly generous, wholesome, and faithful housewife, discovers that she has somehow been sainted; granted the ability to perform actual miracles...
 27. Madness - 1981 Honda Motocompo City Ad
 28. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
 29. Punk!
@@ -43,21 +42,20 @@
 31. Compilation Bimbo DJ
 32. Billy Dee Williams on Carl Stalling
 33. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
-34. [The Idiot Box - SHORT MOVIE - The Squeal of Death (1985)](https://en.wikipedia.org/wiki/The_Idiot_Box_(TV_series))
-35. The Idiot Box - EXTRAS - Funny Money - Interview with Producer Krista Montagna
+34. [ZebraCorner - If Anti-Drug Commercials were Real Life - I learned it from watching you!](https://www.youtube.com/watch?v=_Y-woCz4lm4)
+35. [The Kenny Everett Television Show](https://en.wikipedia.org/wiki/The_Kenny_Everett_Television_Show#Series_1_(1982))
 36. 1989 1-900 Party Line television commercial
 37. Colonial Lanes Bowling - Home of Gutterman
 38. WELDOR
-39. [Friday the 13th -  S01E21 - "Double Exposure" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
-    - Ryan sees a famous television newscaster, Winston Knight, hack someone to death with a machete at the same time he was on the air live.
-40. Candid Camera - Upside Down TV
+39. [Friday the 13th -  S01E22 - "The Pirate's Promise" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
+    - Ryan and Micki visit a small seaside town which is haunted by the ghost of a murderous, long-dead pirate Angus McBride. Joe Fenton murders the innocent descendants of McBrides mutinous crew in order to be "rewarded" by the ghost of pirate McBride.
 40. Phoone Tawlk (1987)
 41. Emo Philips - Drunk Driving PSA
 42. 809-544-CHAT Party Line (1992)
 43. 1-900-Celebrity (1990)
 44. Zoobooks
-45. [In Search Of... With Leonard Nimoy - S05E16 - "The Castle of Secrets" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
-    - The saga of the Coral Castle, built by Edward Leedskalnin, a frail hermit who allegedly carved and lifted 1,100 tons of solid stone blocks weighing up to 30 tons each using the secrets of Atlantis.
+45. [In Search Of... With Leonard Nimoy - S05E17 - "The Great Lovers" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
+    - A look at some of history's famous lovers. What drove certain men to pursue sensual pleasure above all else? The program compares the legends of Don Juan and Casanova. Host Leonard Nimoy wrote this installment.
 46. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 47. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 48. Undertale - Napping with Ghost (Outro & Raid out)
