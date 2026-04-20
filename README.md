@@ -13,7 +13,7 @@
    - A break in at a behavioral lab and a series of execution-style murders dredges up buried memories for Francisco.
 5. DiC
 6. [Maniac Mansion - S01E04 - "Love Thy Neighbour" (1990)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
-7. Chronic Trigger with Snoop Dogg
+7. [Chronic Trigger with Snoop Dogg](https://www.youtube.com/watch?v=5lEelz0iUJo)
 8. Artie's Workout
 9. Madness Colgate' TV Advert
 10. Bird's Eye Crispy Chicken - Great Britain (1995)
