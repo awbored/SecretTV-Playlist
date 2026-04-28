@@ -2,7 +2,7 @@
 
 ## General News
 
-- Fun Fact: It's almost May!"
+- Fun Fact: It's almost May!
 
 ## SecretTV Playlist
 
