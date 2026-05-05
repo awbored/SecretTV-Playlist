@@ -1,61 +1,61 @@
-# 2026/04/28 - SecretTV Playlist
+# 2026/05/05 - SecretTV Playlist
 
 ## General News
 
-- Fun Fact: It's almost May!
+- Fun Fact: May the fifth be with you!
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
 2. Escape from New York - Get a new one
-3. UHF - Emo / Shop Teacher Scene
-4. [Alien Nation - S01E13 - "The Spirit of '95" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
-   - As Susan and Buck campaign for Tenctonese suffrage, bombings and kidnappings are linked to the anti-Newcomer "Purist" organization.
+3. Beavis and Butthead - Star Trek
+4. [Alien Nation - S01E14 - "Generation to Generation" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
+   - Several parties claim ownership of a mysterious Tenctonese box that leaves a trail of death in its wake.
 5. DiC
-6. [Maniac Mansion - S01E05 - "Fred's a-Courtin'" (1990)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
+6. [Maniac Mansion - S01E06 - "The Sandman Cometh" (1990)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
 7. Artie's Workout
-8. Madness Colgate' TV Advert
-9. Bird's Eye Crispy Chicken - Great Britain (1995)
+8. Star Wars Cerveza Cristal 001
+9. Star Wars Atari Arcade Game Commercial (1983)
 10. Big Bill Hell
-11. The Electric Company - Lick a Lolly Song
+11. Pepsi Star Wars Episode I Commercial with Jake Lloyd (1999)
 12. SWEETIES Lickin' My Chops
-13. UHF - Spatula City
+13. Star Wars Glasses at Burger King Commercial (1978)
 14. SNL - James Brown's Celebrity Hot Tub Party
 15. Gary Numan - Metal - Sync with Karate
-16. Colgate Pump Commercial (Another Madness commercial)
-17. [Rocky & Bullwinkle & Friends - S01E07 - "Rocky's Dilemma" & "Squirrel in a Stew" (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
-18. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E49
+16. Energizer Bunny - Darth Vader - Commercial (1994)
+17. [Rocky & Bullwinkle & Friends - S01E08 - "The Submarine Squirrel" & "20,000 Leagues Beneath the Sea" (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
+18. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E50
     - The Octopus sees something that he really, really wants.  And then he gets it!
-19. Cats PSA - Your Childs Life is in Your Hands
+19. Star Wars Cerveza Cristal 002
 20. Tales From the Darkside - Claymation Promo
 21. Kool-Aid Man Shows us how to field a bunt
 22. KatyPerrySlimed
 23. Gonzo Guilt
-24. National Love Call Cassette Player (Jennifer Connelly) Japanese Commercial
-25. [Tales From the Darkside - S03E13 - "The Milkman Cometh" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_3_(1986%E2%80%931987))
-    - A mysterious being known as the Milkman (whom no one in the neighborhood has ever actually seen) grants the wishes of people who leave a note with their discarded milk bottles. To the horror of artist Garry Cooley (Robert Forster), he learns that the Milkman can mix up the meaning of the notes he receives if they are written metaphorically...
-26. Madness - 1981 Honda Motocompo City Ad
-27. GLOW Gorgeous Ladies of Wrestling Faberge Organics Commercial Babe & Beastie
-28. Punk!
-29. Zschau - Wolfman Jack 1986
-30. 5 Neat Guys Neatest Hits (SCTV)
-31. Compilation Bimbo DJ
+24. Sifl N Olly - Star Wars
+25. [Tales From the Darkside - S03E14 - "My Ghostwriter - The Vampire" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_3_(1986%E2%80%931987))
+    - Talentless vampire novel author Peter Prentice (Jeff Conaway), known for stealing ideas from his assistant and ghostwriter Jayne, discovers Count Draco (Roy Dotrice), an actual vampire who had been slumbering in the coffin he bought for inspiration...
+26. Pepsi Star Wars Episode 1 Collector Cans Television Commercial (1999)
+27. Star Wars Vintage KENNER Commercial - Boba Fett Mailaway Promotion
+28. Star Wars Vintage KENNER Commercial - Electronic Battle Command Game
+29. Star Wars Vintage KENNER Commercial - Land Of The Jawas
+30. Japanese Star Wars Tuna Commercial (1978)
+31. Star Wars Vintage KENNER Commercial - Landspeeder v2
 32. Billy Dee Williams on Carl Stalling
 33. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
-34. [The Kenny Everett Television Show - S01E02](https://en.wikipedia.org/wiki/The_Kenny_Everett_Television_Show#Series_1_(1982))
+34. [The Kenny Everett Television Show - S01E03](https://en.wikipedia.org/wiki/The_Kenny_Everett_Television_Show#Series_1_(1982))
 35. 1989 1-900 Party Line television commercial
-36. Colonial Lanes Bowling - Home of Gutterman
-37. WELDOR
-38. [Friday the 13th -  S01E23 - "Badge of Honor" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
-    - A bitter, burnt-out cop Russ Sharko (Val Avery) uses a cursed badge to get revenge on the mobsters, led by Victor Haas, who put his dying wife into a brain dead coma. Meanwhile, an old boyfriend of Micki's comes for an extended visit.
+36. Star Wars Vintage KENNER Commercial - Max Rebo Band
+37. Star Wars Cerveza Cristal 003
+38. [Friday the 13th -  S01E24 - "Pipe Dream" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
+    - Ryan is invited to his father's wedding, but learns that his father, Ray (Michael Constantine), has been using a magic pipe to murder his business rivals in the military industry.
 39. Phoone Tawlk (1987)
 40. Emo Philips - Drunk Driving PSA
 41. 809-544-CHAT Party Line (1992)
 42. Boglins Hotline (1988)
 43. 1-900-Celebrity (1990)
-44. Zoobooks
-45. [In Search Of... With Leonard Nimoy - S05E18 - "The Holy Grail" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
-    - Explores the claims that the chalice used by Jesus at the Last Supper may have been found.
+44. Star Wars Vintage KENNER Commercial - Yoda
+45. [In Search Of... With Leonard Nimoy - S05E19 - "The Death of Marilyn Monroe" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
+    - Examines evidence that suggests that the Hollywood star may not have committed suicide.
 46. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 47. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 48. Undertale - Napping with Ghost (Outro & Raid out)
