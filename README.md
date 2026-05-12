@@ -1,64 +1,31 @@
-# 2026/05/05 - SecretTV Playlist
+# 2026/05/12 - SecretTV Playlist
 
 ## General News
 
-- Fun Fact: May the fifth be with you!
+- 🎂🎂🎂 Happy 100th Birthday to David Attenborough!  Thank you for exploring and sharing with us over the years! 🎂🎂🎂
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
-2. Escape from New York - Get a new one
-3. Beavis and Butthead - Star Trek
-4. [Alien Nation - S01E14 - "Generation to Generation" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
-   - Several parties claim ownership of a mysterious Tenctonese box that leaves a trail of death in its wake.
-5. DiC
-6. [Maniac Mansion - S01E06 - "The Sandman Cometh" (1990)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
-7. Artie's Workout
-8. Star Wars Cerveza Cristal 001
-9. Star Wars Atari Arcade Game Commercial (1983)
-10. Big Bill Hell
-11. Pepsi Star Wars Episode I Commercial with Jake Lloyd (1999)
-12. SWEETIES Lickin' My Chops
-13. Star Wars Glasses at Burger King Commercial (1978)
-14. SNL - James Brown's Celebrity Hot Tub Party
-15. Gary Numan - Metal - Sync with Karate
-16. Energizer Bunny - Darth Vader - Commercial (1994)
-17. [Rocky & Bullwinkle & Friends - S01E08 - "The Submarine Squirrel" & "20,000 Leagues Beneath the Sea" (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
-18. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E50
-    - The Octopus sees something that he really, really wants.  And then he gets it!
-19. Star Wars Cerveza Cristal 002
-20. Tales From the Darkside - Claymation Promo
-21. Kool-Aid Man Shows us how to field a bunt
-22. KatyPerrySlimed
-23. Gonzo Guilt
-24. Sifl N Olly - Star Wars
-25. [Tales From the Darkside - S03E14 - "My Ghostwriter - The Vampire" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_3_(1986%E2%80%931987))
-    - Talentless vampire novel author Peter Prentice (Jeff Conaway), known for stealing ideas from his assistant and ghostwriter Jayne, discovers Count Draco (Roy Dotrice), an actual vampire who had been slumbering in the coffin he bought for inspiration...
-26. Pepsi Star Wars Episode 1 Collector Cans Television Commercial (1999)
-27. Star Wars Vintage KENNER Commercial - Boba Fett Mailaway Promotion
-28. Star Wars Vintage KENNER Commercial - Electronic Battle Command Game
-29. Star Wars Vintage KENNER Commercial - Land Of The Jawas
-30. Japanese Star Wars Tuna Commercial (1978)
-31. Star Wars Vintage KENNER Commercial - Landspeeder v2
-32. Billy Dee Williams on Carl Stalling
-33. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
-34. [The Kenny Everett Television Show - S01E03](https://en.wikipedia.org/wiki/The_Kenny_Everett_Television_Show#Series_1_(1982))
-35. 1989 1-900 Party Line television commercial
-36. Star Wars Vintage KENNER Commercial - Max Rebo Band
-37. Star Wars Cerveza Cristal 003
-38. [Friday the 13th -  S01E24 - "Pipe Dream" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
-    - Ryan is invited to his father's wedding, but learns that his father, Ray (Michael Constantine), has been using a magic pipe to murder his business rivals in the military industry.
-39. Phoone Tawlk (1987)
-40. Emo Philips - Drunk Driving PSA
-41. 809-544-CHAT Party Line (1992)
-42. Boglins Hotline (1988)
-43. 1-900-Celebrity (1990)
-44. Star Wars Vintage KENNER Commercial - Yoda
-45. [In Search Of... With Leonard Nimoy - S05E19 - "The Death of Marilyn Monroe" (1980)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
-    - Examines evidence that suggests that the Hollywood star may not have committed suicide.
-46. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-47. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-48. Undertale - Napping with Ghost (Outro & Raid out)
+2. Natural History Magazine - Mr. David Attenborough TV Commercial (1986)
+3. Aardman - The day the gorillas met David Attenborough - Attenborough at 90 - BBC
+4. [The Living Planet - O1 - Building of the Earth (1984)](https://en.wikipedia.org/wiki/The_Living_Planet)
+5. Animal Planet - David Attenborough Presents
+6. Aardman - The day the lyrebird met David Attenborough - Attenborough at 90 - BBC
+7. [Life in the Freezer - 01 - The Bountiful Sea (1993)](https://en.wikipedia.org/wiki/Life_in_the_Freezer)
+8. David Attenborough's The Trials of Life VHS Video Commercial (1996)
+9. Aardman - The day the penguins met David Attenborough - Attenborough at 90 - BBC
+10. [The Private Life of Plants - 01 - Travelling (1995)](https://en.wikipedia.org/wiki/The_Private_Life_of_Plants)
+11. BSB Commercial with Richard Attenborough (1990)
+12. Aardman - These mice are David Attenborough mega-fans ❤️ BBC 'Things We Love'
+13. [Lost Worlds, Vanished Lives - 03 - Dinosaur (1989)](https://en.wikipedia.org/wiki/Lost_Worlds,_Vanished_Lives)
+14. Aardman - The Day I Met Attenborough, Making Of
+15. [Wildlife on One - S04E01 - Squirrel On My Shoulder (1979)](https://en.wikipedia.org/wiki/Wildlife_on_One)
+16. Rank Group TV Advert - Richard Attenborough (1994)
+17. [Life on Earth - 08 - Lords of the Air (1979)](https://en.wikipedia.org/wiki/Life_on_Earth_(TV_series))
+18. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+19. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+20. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 
