@@ -7,22 +7,22 @@
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
-2. Natural History Magazine - Mr. David Attenborough TV Commercial (1986)
-3. Aardman - The day the gorillas met David Attenborough - Attenborough at 90 - BBC
-4. [The Living Planet - O1 - Building of the Earth (1984)](https://en.wikipedia.org/wiki/The_Living_Planet)
-5. Animal Planet - David Attenborough Presents
-6. Aardman - The day the lyrebird met David Attenborough - Attenborough at 90 - BBC
-7. [Life in the Freezer - 01 - The Bountiful Sea (1993)](https://en.wikipedia.org/wiki/Life_in_the_Freezer)
-8. David Attenborough's The Trials of Life VHS Video Commercial (1996)
-9. Aardman - The day the penguins met David Attenborough - Attenborough at 90 - BBC
-10. [The Private Life of Plants - 01 - Travelling (1995)](https://en.wikipedia.org/wiki/The_Private_Life_of_Plants)
-11. BSB Commercial with Richard Attenborough (1990)
-12. Aardman - These mice are David Attenborough mega-fans ❤️ BBC 'Things We Love'
-13. [Lost Worlds, Vanished Lives - 03 - Dinosaur (1989)](https://en.wikipedia.org/wiki/Lost_Worlds,_Vanished_Lives)
-14. Aardman - The Day I Met Attenborough, Making Of
-15. [Wildlife on One - S04E01 - Squirrel On My Shoulder (1979)](https://en.wikipedia.org/wiki/Wildlife_on_One)
-16. Rank Group TV Advert - Richard Attenborough (1994)
-17. [Life on Earth - 08 - Lords of the Air (1979)](https://en.wikipedia.org/wiki/Life_on_Earth_(TV_series))
+2. [Natural History Magazine - Mr. David Attenborough TV Commercial (1986)](https://www.youtube.com/watch?v=4u3OF8MbWfA)
+3. [Aardman - The day the gorillas met David Attenborough - Attenborough at 90 - BBC](https://www.youtube.com/watch?v=A5779w-9XiU)
+4. [The Living Planet - O1 - Building of the Earth (1984)](https://en.wikipedia.org/wiki/The_Living_Planet) - [archive](https://archive.org/details/the-living-planet)
+5. [Animal Planet - David Attenborough Presents](https://www.youtube.com/watch?v=ofOPlcuqxxQ)
+6. [Aardman - The day the lyrebird met David Attenborough - Attenborough at 90 - BBC](https://www.youtube.com/watch?v=tRbXjVd_Lgc)
+7. [Life in the Freezer - 01 - The Bountiful Sea (1993)](https://en.wikipedia.org/wiki/Life_in_the_Freezer) - [archive](https://archive.org/download/bbcdavidattenborough/David%20Attenborough/1993%20-%20Life%20in%20the%20Freezer-%5BKRISH%5D/)
+8. [David Attenborough's The Trials of Life VHS Video Commercial (1996)](https://www.youtube.com/watch?v=JIDJxw5Btgg)
+9. [Aardman - The day the penguins met David Attenborough - Attenborough at 90 - BBC](https://www.youtube.com/watch?v=VeC1AeEIV2g)
+10. [The Private Life of Plants - 01 - Travelling (1995)](https://en.wikipedia.org/wiki/The_Private_Life_of_Plants) - [archive](https://archive.org/download/bbcdavidattenborough/1995%20%20The%20Private%20Life%20of%20Plants/)
+11. [BSB Commercial with Richard Attenborough (1990)](https://www.youtube.com/watch?v=FqwleiAtiLw)
+12. [Aardman - These mice are David Attenborough mega-fans ❤️ BBC 'Things We Love'](https://www.youtube.com/watch?v=LZTrR_L5O6k)
+13. [Lost Worlds, Vanished Lives - 03 - Dinosaur (1989)](https://en.wikipedia.org/wiki/Lost_Worlds,_Vanished_Lives) - [archive](https://archive.org/download/lost_worlds_vanished_lives)
+14. [Aardman - The Day I Met Attenborough, Making Of](https://www.youtube.com/watch?v=z4RqjGo4gvk)
+15. [Wildlife on One - S04E01 - Squirrel On My Shoulder (1979)](https://en.wikipedia.org/wiki/Wildlife_on_One) - [archive](https://archive.org/download/wildlife-on-one-s04e01-squirrel-on-my-shoulder-1979-x264-vhs)
+16. [Rank Group TV Advert - Richard Attenborough (1994)](https://www.youtube.com/watch?v=ngX4niZTAEo)
+17. [Life on Earth - 08 - Lords of the Air (1979)](https://en.wikipedia.org/wiki/Life_on_Earth_(TV_series)) - [archive](https://archive.org/details/life.on.-earth.-s-01-e-08.-lords.of.the.-air-bdrip-x-264-1080p-43-ac-3-2.0-eng-ita-sub-eng)
 18. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 19. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 20. Undertale - Napping with Ghost (Outro & Raid out)
