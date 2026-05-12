@@ -18,11 +18,11 @@
 10. [The Private Life of Plants - 01 - Travelling (1995)](https://en.wikipedia.org/wiki/The_Private_Life_of_Plants) - [archive](https://archive.org/download/bbcdavidattenborough/1995%20%20The%20Private%20Life%20of%20Plants/)
 11. [BSB Commercial with Richard Attenborough (1990)](https://www.youtube.com/watch?v=FqwleiAtiLw)
 12. [Aardman - These mice are David Attenborough mega-fans ❤️ BBC 'Things We Love'](https://www.youtube.com/watch?v=LZTrR_L5O6k)
-13. [Lost Worlds, Vanished Lives - 03 - Dinosaur (1989)](https://en.wikipedia.org/wiki/Lost_Worlds,_Vanished_Lives) - [archive](https://archive.org/download/lost_worlds_vanished_lives)
+13. [Lost Worlds, Vanished Lives - 03 - Dinosaur (1989)](https://en.wikipedia.org/wiki/Lost_Worlds,_Vanished_Lives) - [archive](https://archive.org/details/lost_worlds_vanished_lives)
 14. [Aardman - The Day I Met Attenborough, Making Of](https://www.youtube.com/watch?v=z4RqjGo4gvk)
-15. [Wildlife on One - S04E01 - Squirrel On My Shoulder (1979)](https://en.wikipedia.org/wiki/Wildlife_on_One) - [archive](https://archive.org/download/wildlife-on-one-s04e01-squirrel-on-my-shoulder-1979-x264-vhs)
+15. [Wildlife on One - S04E01 - Squirrel On My Shoulder (1979)](https://en.wikipedia.org/wiki/Wildlife_on_One) - [archive](https://archive.org/details/wildlife-on-one-s04e01-squirrel-on-my-shoulder-1979-x264-vhs)
 16. [Rank Group TV Advert - Richard Attenborough (1994)](https://www.youtube.com/watch?v=ngX4niZTAEo)
-17. [Life on Earth - 08 - Lords of the Air (1979)](https://en.wikipedia.org/wiki/Life_on_Earth_(TV_series)) - [archive](https://archive.org/details/life.on.-earth.-s-01-e-08.-lords.of.the.-air-bdrip-x-264-1080p-43-ac-3-2.0-eng-ita-sub-eng)
+17. [The Miracle of Bali - 03 - Recital Pliatan (1969))](https://en.wikipedia.org/wiki/The_Miracle_of_Bali) - [archive](https://archive.org/details/TheMiracleOfBali1969)
 18. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 19. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 20. Undertale - Napping with Ghost (Outro & Raid out)
