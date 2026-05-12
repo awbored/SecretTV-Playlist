@@ -22,7 +22,7 @@
 14. [Aardman - The Day I Met Attenborough, Making Of](https://www.youtube.com/watch?v=z4RqjGo4gvk)
 15. [Wildlife on One - S04E01 - Squirrel On My Shoulder (1979)](https://en.wikipedia.org/wiki/Wildlife_on_One) - [archive](https://archive.org/details/wildlife-on-one-s04e01-squirrel-on-my-shoulder-1979-x264-vhs)
 16. [Rank Group TV Advert - Richard Attenborough (1994)](https://www.youtube.com/watch?v=ngX4niZTAEo)
-17. [The Miracle of Bali - 03 - Recital Pliatan (1969))](https://en.wikipedia.org/wiki/The_Miracle_of_Bali) - [archive](https://archive.org/details/TheMiracleOfBali1969)
+17. [The Miracle of Bali - 03 - Recital Pliatan (1969)](https://en.wikipedia.org/wiki/The_Miracle_of_Bali) - [archive](https://archive.org/details/TheMiracleOfBali1969)
 18. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 19. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 20. Undertale - Napping with Ghost (Outro & Raid out)
