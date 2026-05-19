@@ -1,31 +1,64 @@
-# 2026/05/12 - SecretTV Playlist
+# 2026/05/19 - SecretTV Playlist
 
 ## General News
 
-- 🎂🎂🎂 Happy 100th Birthday to David Attenborough!  Thank you for exploring and sharing with us over the years! 🎂🎂🎂
+- Fun Fact: pffffttffftttthhhruuuuuuuurrhrhrhffhfufffufuuuruuuuuuurrrt!
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
-2. [Natural History Magazine - Mr. David Attenborough TV Commercial (1986)](https://www.youtube.com/watch?v=4u3OF8MbWfA)
-3. [Aardman - The day the gorillas met David Attenborough - Attenborough at 90 - BBC](https://www.youtube.com/watch?v=A5779w-9XiU)
-4. [The Living Planet - O1 - Building of the Earth (1984)](https://en.wikipedia.org/wiki/The_Living_Planet) - [archive](https://archive.org/details/the-living-planet)
-5. [Animal Planet - David Attenborough Presents](https://www.youtube.com/watch?v=ofOPlcuqxxQ)
-6. [Aardman - The day the lyrebird met David Attenborough - Attenborough at 90 - BBC](https://www.youtube.com/watch?v=tRbXjVd_Lgc)
-7. [Life in the Freezer - 01 - The Bountiful Sea (1993)](https://en.wikipedia.org/wiki/Life_in_the_Freezer) - [archive](https://archive.org/download/bbcdavidattenborough/David%20Attenborough/1993%20-%20Life%20in%20the%20Freezer-%5BKRISH%5D/)
-8. [David Attenborough's The Trials of Life VHS Video Commercial (1996)](https://www.youtube.com/watch?v=JIDJxw5Btgg)
-9. [Aardman - The day the penguins met David Attenborough - Attenborough at 90 - BBC](https://www.youtube.com/watch?v=VeC1AeEIV2g)
-10. [The Private Life of Plants - 01 - Travelling (1995)](https://en.wikipedia.org/wiki/The_Private_Life_of_Plants) - [archive](https://archive.org/download/bbcdavidattenborough/1995%20%20The%20Private%20Life%20of%20Plants/)
-11. [BSB Commercial with Richard Attenborough (1990)](https://www.youtube.com/watch?v=FqwleiAtiLw)
-12. [Aardman - These mice are David Attenborough mega-fans ❤️ BBC 'Things We Love'](https://www.youtube.com/watch?v=LZTrR_L5O6k)
-13. [Lost Worlds, Vanished Lives - 03 - Dinosaur (1989)](https://en.wikipedia.org/wiki/Lost_Worlds,_Vanished_Lives) - [archive](https://archive.org/details/lost_worlds_vanished_lives)
-14. [Aardman - The Day I Met Attenborough, Making Of](https://www.youtube.com/watch?v=z4RqjGo4gvk)
-15. [Wildlife on One - S04E01 - Squirrel On My Shoulder (1979)](https://en.wikipedia.org/wiki/Wildlife_on_One) - [archive](https://archive.org/details/wildlife-on-one-s04e01-squirrel-on-my-shoulder-1979-x264-vhs)
-16. [Rank Group TV Advert - Richard Attenborough (1994)](https://www.youtube.com/watch?v=ngX4niZTAEo)
-17. [The Miracle of Bali - 03 - Recital Pliatan (1969)](https://en.wikipedia.org/wiki/The_Miracle_of_Bali) - [archive](https://archive.org/details/TheMiracleOfBali1969)
-18. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-19. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-20. Undertale - Napping with Ghost (Outro & Raid out)
+2. Escape from New York - Get a new one
+3. Detroit Institute of Arts
+4. [Alien Nation - S01E15 - "Eyewitness News" (1989)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
+   - The line between reality and fantasy blurs when a crossed video phone line lets a boardroom of executives see a sex actress attacked. George becomes swept up in celebrity when a news crew does a week-long special on him.
+5. DiC
+6. [Maniac Mansion - S01E07 - "Good on Ya" (1990)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
+7. Artie's Workout
+8. Chevrolet Astro Van Commercial (1985)
+9. The LaserTour from Perceptronics (1982)
+10. Big Bill Hell
+11. Sounds of the 70's
+12. Nestle Alpine White Sweet Dreams (1986)
+13. Star Wars Glasses at Burger King Commercial (1978)
+14. SNL - James Brown's Celebrity Hot Tub Party
+15. Gary Numan - Metal - Sync with Karate
+16. Taco Bell MC Hammer Escapes Via Parachute Hammer Pants Commercial
+17. [Rocky & Bullwinkle & Friends - S01E09 - "Bars and Stripes Forever" (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
+18. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E51
+    - The Octopus sees something that he really, really wants.  And then he gets it!
+19. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
+20. Tales From the Darkside - Claymation Promo
+21. Kool-Aid Man Shows us how to field a bunt
+22. KatyPerrySlimed
+23. Gonzo Guilt
+24. Pete n Pete Short - Freeze Tag
+25. [Tales From the Darkside - S03E15 - "My Own Place" (1986)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_3_(1986%E2%80%931987))
+    - Yuppie investment banker Sandy Darhaus (Perry Lang), after spending many years being forced to live with roommates for financial security, finally receives a lavish apartment to own for himself. He soon discovers that his new home comes with Ram (Harsh Nayyar), a mysterious guest from India who appears to live in the apartment as well, but who only appears when Sandy is alone.
+26. Faberge Organics Shampoo - GLOW Battle Royal Commercial (1989)
+27. UHF - Beverly Hillbillies
+28. Sky High Solar Powered Radio Helmet
+29. Talking Kermits Once In A Lifetime
+30. Japanese Star Wars Tuna Commercial (1978)
+31. 900-Freak-Phone
+32. Billy Dee Williams on Carl Stalling
+33. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
+34. [The Kenny Everett Television Show - S01E04](https://en.wikipedia.org/wiki/The_Kenny_Everett_Television_Show#Series_1_(1982))
+35. 1-900 Party Line television commercial (1989)
+36. Akumaizer - "he dead"
+37. Living in the 90's CD Commercial
+38. [Friday the 13th -  S01E25 - "What a Mother Wouldn't Do" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_1_(1987%E2%80%9388))
+    - A cursed cradle from the RMS Titanic compels the parents of a sick baby to drown people, in order to save their baby's life. 
+39. Phoone Tawlk (1987)
+40. Emo Philips - Drunk Driving PSA
+41. 809-544-CHAT Party Line (1992)
+42. Boglins Hotline (1988)
+43. Premier Discreet Connections 1-900-FUN-BABES phone chat ad(1991)
+44. Ultimate Romance Line Women For You! 1-900 TV ad (1991)
+45. [In Search Of... With Leonard Nimoy - S05E20 - "Chinese Explorers" (1981)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
+    - Did the Chinese discover America 1,000 years before Columbus? Leonard Nimoy explores claims that a Buddhist monk named Hu-Shen arrived on the American continent in AD 458.
+46. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+47. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+48. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 
