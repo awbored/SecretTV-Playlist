@@ -28,7 +28,7 @@
     - The Octopus sees something that he really, really wants.  And then he gets it!
 19. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
 20. Tales From the Darkside - Claymation Promo
-21. Honoring Joe Negri, Joe Negri on Mr Roger's Neighborhood: How A Player Piano Works
+21. [Honoring Joe Negri, Joe Negri on Mr Roger's Neighborhood: How A Player Piano Works](https://www.youtube.com/watch?v=giaLxo2U8Yw)
 21. Kool-Aid Man Shows us how to field a bunt
 22. KatyPerrySlimed
 23. Gonzo Guilt
