@@ -1,47 +1,67 @@
-# 2026/06/09 - SecretTV Playlist
+# 2026/06/16 - SecretTV Playlist
 
 ## General News
 
-- 🎂🎂🎂 BIG Happy Birthday honors to:
-  - [Prince](https://en.wikipedia.org/wiki/Prince_(musician)) - Born June 7th, 1958
-  - [Jacques Cousteau](https://en.wikipedia.org/wiki/Jacques_Cousteau) - Born June 11th, 1910
-  - [Robert Englund](https://en.wikipedia.org/wiki/Robert_Englund) - Born June 6th, 1947
-  
-In previous years I've honored one or two of these stellar artists, but rarely connected they were all born practically within a week of each other.  Tonight we're gonna celebrate Prince, Jacque Cousteau, and Robert Englund!
+Some live performances have been scheduled for July 11th and July 23rd in Sacramento.  More details: [andrewway.net](https://andrewway.net)
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
 2. Escape from New York - Get a new one
 3. Detroit Institute of Arts
-4. Priiiiince
-5. Prince appear on TODAY for Bryant Gumbel
-6. Prince Emancipation CD Commercial 1996
-7. Prince '91 Special Olympics Rehearsal
-8. Australian Garfield phone ad 1987720p
-9. Muppets Tonight - 201 - The Artist Formerly Known As Prince
-10. Freddy Krueger MTV Spot- Hey Spinal Tap
-11. Prince - Super Bowl 2007 Halftime Show
-12. Michael Jackson and Prince on stage with James Brown LIVE (20th August 1983)
-13. Pizza Planet (1984)
-14. Freddy's Tricks and Treats (1988)
-15. Freddy Krueger MTV Spot- Freddy On Father's Day
-16. Freddy Krueger MTV Spot- Freddy's Clause
-17. Nightmare Cafe - S01E06 - Aliens Ate My Lunch
-18. Cousteau Society 1992 Commercial
-19. Freddy Krueger MTV Spot- Take A Nap Englund
-20. “I’m more handsome, I’m a snappy dresser” - FREDDY KRUEGER Dissing JASON VOORHEES
-21. Santa Freddy Krueger shills for the December release of A Nightmare on Elm Street 4 on VHS (1988)
-22. Let Me Be Your Friend! 1-900 TV commercial (1991)
-23. Ultimate Romance Line Women For You! 1-900 TV ad (1991)
-24. Ecco The Dolphin Commercial with Jacques Cousteau
-25. Carol Burnett Show - Jacque Tooto Parody
-26. Ranier Light Jacques Cousteau Parody Commercial 1988
-27. SCTV ~ JACQUES COUSTEAU'S UNDERSEA WORLD _Mysteries Of The Well_, 1977
-28. Jacques Cousteu - S01E19 - Octopus, Octopus
-29. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-30. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-31. Undertale - Napping with Ghost (Outro & Raid out)
+4. [Alien Nation - S01E18 - "Crossing the Line" (1990)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
+   - Francisco worries that Sikes is hiding something when he cancels his vacation plans to help track down a killer.
+5. DiC
+6. [Maniac Mansion - S01E10 - "Webs, the Really Tangled Kind" (1990)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
+7. Artie's Workout
+8. Chevrolet Astro Van Commercial (1985)
+9. The LaserTour from Perceptronics (1982)
+10. Big Bill Hell
+11. Sounds of the 70's
+12. Nestle Alpine White Sweet Dreams (1986)
+13. Star Wars Glasses at Burger King Commercial (1978)
+14. SNL - James Brown's Celebrity Hot Tub Party
+15. Gary Numan - Metal - Sync with Karate
+16. Taco Bell MC Hammer Escapes Via Parachute Hammer Pants Commercial
+17. [Rocky & Bullwinkle & Friends - S01E12 - "Ace Is Wild" & "The Flying Casket" (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
+    - A disguised Natasha offers Rocky and Bullwinkle a poisoned drink, but the plane hits an air pocket, causing the drink to splatter on the floor and eat through the hull of the plane. With no other ways to kill Rocky and Bullwinkle, Boris and Natasha destroy the plane's instruments and toss out all helpful supplies...
+18. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E54
+    - The Octopus sees something that he really, really wants.  And then he gets it!
+19. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
+20. Tales From the Darkside - Claymation Promo
+21. Kool-Aid Man Shows us how to field a bunt
+22. KatyPerrySlimed
+23. Gonzo Guilt
+24. Pete n Pete Short - Revenge of the Petes
+25. [Tales From the Darkside - S03E18 - "Auld Acquaintances" (1987)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_3_(1986%E2%80%931987))
+    - Mary Hobbs and Elizabeth Eaton (Sally Gracie and Linda Thorson), a pair of powerful witches, meet and ultimately lock themselves in the prison cell where they first met in the 1600s, which has since become part of a museum.
+26. Faberge Organics Shampoo - GLOW Battle Royal Commercial (1989)
+27. Pizza Planet Commercial (1984)
+28. Sky High Solar Powered Radio Helmet
+29. Talking Kermits Once In A Lifetime
+30. Japanese Star Wars Tuna Commercial (1978)
+31. 900-Freak-Phone
+32. Billy Dee Williams on Carl Stalling
+33. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
+34. [The Kenny Everett Television Show - S01E07](https://en.wikipedia.org/wiki/The_Kenny_Everett_Television_Show#Series_1_(1982))
+    - Guest stars: Billy Connolly, Pamela Stephenson, Sheila Steafel, James Hunt, Lulu, Ian Lavender, Susan George and Michael Winner; Musical guests: Chas & Dave
+35. 1-900 Party Line television commercial (1989)
+36. Akumaizer - "he dead"
+37. Living in the 90's CD Commercial
+38. [Friday the 13th -  S02E02 - "The Voodoo Mambo" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_2_(1988%E2%80%9389))
+    - A disinherited man, Carl Walters, uses, and is used by, a bloodthirsty voodoo priestess Laotia who is connected to an old friend of Jack.
+39. Phoone Tawlk (1987)
+40. Emo Philips - Drunk Driving PSA
+41. 809-544-CHAT Party Line (1992)
+42. Boglins Hotline (1988)
+43. Premier Discreet Connections 1-900-FUN-BABES phone chat ad(1991)
+44. Ultimate Romance Line Women For You! 1-900 TV ad (1991)
+45. [In Search Of... With Leonard Nimoy - S05E24 - "Sun Worshippers" (1981)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_5_(1980%E2%80%931981))
+    - Will solar energy free us from dependence on foreign oil? Leonard Nimoy analyzes how solar energy stacks up against fossil fuel and nuclear energy.
+46. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+47. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+48. Undertale - Napping with Ghost (Outro & Raid out)
+
 
 
 
