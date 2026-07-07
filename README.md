@@ -1,27 +1,68 @@
-# 2026/06/30 - SecretTV Playlist
+# 2026/07/07 - SecretTV Playlist
 
 ## General News
 
-- 🎂🎂🎂 Happy 100th Birthday [Mel Brooks](https://en.wikipedia.org/wiki/Mel_Brooks)!!! 🎂🎂🎂 - Tonight we will be celebrating Mel Brooks and all the influence (both good and bad) he has had on us!  Happy birthday sir brooks!  Born June 28, 1926.
-- Other news: Some live performances have been scheduled for July 11th and July 23rd in Sacramento.  More details: [andrewway.net](https://andrewway.net)
+Some live performances have been scheduled for July 11th and July 23rd in Sacramento.  More details: [andrewway.net](https://andrewway.net)
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
 2. Escape from New York - Get a new one
-3. Homer chauffeuring Mel Brooks
-4. Brooks and Reiner - The 2000 Year Old Man (1967)
-5. [The Nutt House - S01E01&2 - "Pilot" (1989)](https://en.wikipedia.org/wiki/The_Nutt_House)
-   - When Big Jake Herder (David Huddleston) of the powerful Texplex hotel chain announces his intention to purchase the failing Nutt House hotel, proprietress Edwina Nutt calls on her ne'er-do-well grandson, Charles Nutt III, to intervene.
-6. Mel Brooks and Anne Bancroft perform Sweet Georgia Brown in Polish
-7. Mel Brooks talks Hitchcock
-8. [High Anxiety](https://en.wikipedia.org/wiki/High_Anxiety) - From 1986 CBS TV airing with commercials
-9. Mel Brooks’ Impressions - The Dick Cavett Show
-10. Mel Brooks & Jiminy Glick Interview
-11. [Spaceballs](https://en.wikipedia.org/wiki/Spaceballs) - From 1992 Fox 61 TV airing with commercials
-12. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-13. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-14. Undertale - Napping with Ghost (Outro & Raid out)
+3. Jerry Lewis Sings Bob Dylan (SCTV)
+4. [Alien Nation - S01E20 - "Gimme, Gimme" (1990)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
+   - George investigates the murder of the chief scientist at a company in which he is heavily invested. Buck, inspired by one of his teachers, protests that the workers at the company are being exploited. Matt sells one of his lottery tickets to Albert, only to see him win.
+5. DiC
+6. [Maniac Mansion - S01E12 - "A Little Old Time Jazz" (1990)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
+7. Artie's Workout
+8. Chevrolet Astro Van Commercial (1985)
+9. The LaserTour from Perceptronics (1982)
+10. Big Bill Hell
+11. Sounds of the 70's
+12. Nestle Alpine White Sweet Dreams (1986)
+13. Star Wars Glasses at Burger King Commercial (1978)
+14. I give 'em one of DEEZ and give 'em one of DOZE
+15. Gary Numan - Metal - Sync with Karate
+16. Taco Bell MC Hammer Escapes Via Parachute Hammer Pants Commercial
+17. [Rocky & Bullwinkle & Friends - S01E14 - "Bullwinkle's Water Follies" & "Antlers Aweigh" (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
+    - While falling down the waterfall, Bullwinkle is snagged on a Mooseberry branch. Rocky ties a rope to a tree at the top of the falls and swings from the end of it to grab Bullwinkle. In attempting to do so, Bullwinkle swings him and Rocky to land, causing the Mooseberry branch to become unattached to the falls and attached to him...
+18. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E56
+    - The Octopus sees something that he really, really wants.  And then he gets it!
+19. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
+20. Tales From the Darkside - Claymation Promo
+21. Kool-Aid Man Shows us how to field a bunt
+22. KatyPerrySlimed
+23. Gonzo Guilt
+24. Pete n Pete Short - Crack the Whip
+25. [Tales From the Darkside - S03E20 - "The Swap" (1987)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_3_(1986%E2%80%931987))
+    - Bubba (Charles Ludlam), a lecherous and wealthy man covered in skin lesions, discovers that his wife Anna Belle (Maria Manuche) is having an affair with handyman Claude Altoose (Jim Wlcek), and that the duo plan to murder him for his money. Upon learning this, Bubba turns to the spells of his late mother, a powerful sorceress, to ensure that their plot doesn't succeed by swapping bodies with someone else...
+26. Faberge Organics Shampoo - GLOW Battle Royal Commercial (1989)
+27. Pizza Planet Commercial (1984)
+28. LA Gear
+29. Amazon Women on the Moon - No Soul Simmons
+30. Japanese Star Wars Tuna Commercial (1978)
+31. 900-Freak-Phone
+32. Billy Dee Williams on Carl Stalling
+33. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
+34. [The Kenny Everett Television Show - S02E01](https://en.wikipedia.org/wiki/The_Kenny_Everett_Television_Show#Series_2_(1983))
+    - Guest stars: Burt Kwouk, Mel Smith, Ted Moult, Mike Moran, John Arnatt, Lou Hirsch, Sheila Steafel, Tony Osoba and Frank Williams; Musical guests: Modern Romance
+35. 1-900 Party Line television commercial (1989)
+36. Akumaizer - "he dead"
+37. Living in the 90's CD Commercial
+38. [Friday the 13th -  S02E04 - "Tails I Live, Heads You Die" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_2_(1988%E2%80%9389))
+    - The leader of a Satanic cult, Sylvan Winters (Colin Fox), brings powerful, long-dead magicians, Carl Naft and Tiriel, back to life. Together, they plan to summon Satan himself, and to "rule the world, in His name".
+39. Phoone Tawlk (1987)
+40. Emo Philips - Drunk Driving PSA
+41. 809-544-CHAT Party Line (1992)
+42. Boglins Hotline (1988)
+43. Premier Discreet Connections 1-900-FUN-BABES phone chat ad(1991)
+44. Ultimate Romance Line Women For You! 1-900 TV ad (1991)
+45. [In Search Of... With Leonard Nimoy - S06E02 - "Biofeedback" (1981)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_6_(1981%E2%80%931982))
+    - A revealing study of how computers are now healing the sick and building sports champions.
+46. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+47. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+48. Undertale - Napping with Ghost (Outro & Raid out)
+
+
 
 
 ## Info about SecretTVBot
