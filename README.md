@@ -4,7 +4,10 @@
 
 Some live performances have been scheduled for July 23rd in Sacramento.  More details: [andrewway.net](https://andrewway.net)
 
-🎂🎂 Happy Birthday [Patrick Stewart (1940/07/13)](https://en.wikipedia.org/wiki/Patrick_Stewart) & [Harrison Ford (1942/07/13)](https://en.wikipedia.org/wiki/Harrison_Ford) 🎂🎂
+🎂🎂 Birthdays 🎂🎂
+- [Patrick Stewart (1940/07/13)](https://en.wikipedia.org/wiki/Patrick_Stewart)
+- [Harrison Ford (1942/07/13)](https://en.wikipedia.org/wiki/Harrison_Ford)
+- [Cheech Marin (1946/07/13)](https://en.wikipedia.org/wiki/Cheech_Marin)
 
 (Sorry no birthday related videos.  Star Trek and Star Wars would deffo get me in twitch trouble! 🫨)
 
