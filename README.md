@@ -9,13 +9,12 @@ Some live performances have been scheduled for July 23rd in Sacramento.  More de
 - [Harrison Ford (1942/07/13)](https://en.wikipedia.org/wiki/Harrison_Ford)
 - [Cheech Marin (1946/07/13)](https://en.wikipedia.org/wiki/Cheech_Marin)
 
-(Sorry no birthday related videos.  Star Trek and Star Wars would deffo get me in twitch trouble! 🫨)
-
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
 2. Escape from New York - Get a new one
 3. Jerry Lewis Sings Bob Dylan (SCTV)
+3. Cheech and Chong - Mexican Americans
 4. [Alien Nation - S01E21 - "The Touch" (1990)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
    -  Cathy finds a boy she knew from the ship, but suspects he has been abused.
 5. DiC
@@ -26,6 +25,7 @@ Some live performances have been scheduled for July 23rd in Sacramento.  More de
 10. Big Bill Hell
 11. Sounds of the 70's
 12. Nestle Alpine White Sweet Dreams (1986)
+12. Harrison Ford  - Kirin Lager Beer commercial
 13. Star Wars Glasses at Burger King Commercial (1978)
 14. I give 'em one of DEEZ and give 'em one of DOZE
 15. Gary Numan - Metal - Sync with Karate
@@ -33,6 +33,7 @@ Some live performances have been scheduled for July 23rd in Sacramento.  More de
 17. [Rocky & Bullwinkle & Friends - S01E15 (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
 18. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E57
     - The Octopus sees something that he really, really wants.  And then he gets it!
+19. Porsche 911 - Patrick Stewart Commercial (1995)
 19. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
 20. Tales From the Darkside - Claymation Promo
 21. Kool-Aid Man Shows us how to field a bunt
