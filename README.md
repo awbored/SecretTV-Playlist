@@ -35,7 +35,7 @@ This week we will be watching [Bugs Bunny's Looney Tunes All Star 50th Anniversa
 22. KatyPerrySlimed
 23. Gonzo Guilt
 24. Pete n Pete Short - Dr Pratt
-25. [Tales From the Darkside - S04E01 - "Beetles" (1987)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_4_(1987%E2%80%931988)
+25. [Tales From the Darkside - S04E01 - "Beetles" (1987)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_4_(1987%E2%80%931988))
     - Archeologist Arthur Hartley (Rod McCary) has recently come into the possession of a stolen sarcophagus filled with treasure. He is visited by a mysterious man known as Hammid Bey (Sirri Murad), who warns him against touching the mummy that is also housed in the sarcoghagus, as it is cursed...
 26. Faberge Organics Shampoo - GLOW Battle Royal Commercial (1989)
 27. Pizza Planet Commercial (1984)
