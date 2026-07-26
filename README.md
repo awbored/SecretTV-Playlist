@@ -1,18 +1,22 @@
-# 2026/07/21 - SecretTV Playlist
+# 2026/07/28 - SecretTV Playlist
 
 ## General News
 
-There will be no music show (or game night) on Thursday, July 23rd, as I will be performing in Sacramento at Two Rivers Brewery.  More details: [andrewway.net](https://andrewway.net)
+🎂🐰🎂 Happy Birthday [Bugs Bunny](https://en.wikipedia.org/wiki/Bugs_Bunny)! 🎂🐰🎂
+
+Bugs Bunny first premiered as an official character on July 27th, 1940 in [A Wild Hare](https://en.wikipedia.org/wiki/A_Wild_Hare).  Although, bug's preliminary character was in [Porky's Hare Hunt](https://en.wikipedia.org/wiki/Porky's_Hare_Hunt), April 30th, 1938.
+
+This week we will be watching [Bugs Bunny's Looney Tunes All Star 50th Anniversary](https://www.youtube.com/watch?v=4JC88SjQ3ac) which aired in 1985.  To make room for this special, we will skip Maniac Mansion & Bullwinkle this week.  They will return next week!
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
 2. Escape from New York - Get a new one
 3. Jerry Lewis Sings Bob Dylan (SCTV)
-4. [Alien Nation - S01E22 - "Green Eyes" (1990)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
-   - Tensions between partners erupt when Francisco passes the Detective 2 exam and is promoted over Sikes. Matt becomes uncomfortable with his attraction to Cathy. The mysterious death of a Newcomer judge points to a lethal bacterium being used as a weapon.
+4. [Alien Nation - Movie 1 / Part 1 - "Dark Horizon" (1994)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
+   - An Overseer named Ahpossno comes to Earth to take the slaves, and all humans, back to the mothership.
 5. DiC
-6. [Maniac Mansion - S01E14 - "Good Cheer on Ya" (1990)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
+6. Bugs Bunny's Looney Tunes All Star 50th Anniversary
 7. Artie's Workout
 8. Chevrolet Astro Van Commercial (1985)
 9. The LaserTour from Perceptronics (1982)
@@ -23,40 +27,38 @@ There will be no music show (or game night) on Thursday, July 23rd, as I will be
 14. I give 'em one of DEEZ and give 'em one of DOZE
 15. Gary Numan - Metal - Sync with Karate
 16. Taco Bell MC Hammer Escapes Via Parachute Hammer Pants Commercial
-17. [Rocky & Bullwinkle & Friends - S01E16 (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
-18. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E58
+18. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E59
     - The Octopus sees something that he really, really wants.  And then he gets it!
 19. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
 20. Tales From the Darkside - Claymation Promo
 21. Kool-Aid Man Shows us how to field a bunt
 22. KatyPerrySlimed
 23. Gonzo Guilt
-24. Pete n Pete Short - Licking
-25. [Tales From the Darkside - S03E22 - "The Enormous Radio" (1987)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_3_(1986%E2%80%931987))
-    - During the Great Depression, married couple Irene and Jim (Christine Estabrook and John Rothman) purchase a new radio. Irene discovers that the radio is able to pick up signals from other tenants in their apartment building, so she uses it to constantly eavesdrop on her neighbors, growing obsessed with peering into their private lives.
+24. Pete n Pete Short - Dr Pratt
+25. [Tales From the Darkside - S04E01 - "Beetles" (1987)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_4_(1987%E2%80%931988)
+    - Archeologist Arthur Hartley (Rod McCary) has recently come into the possession of a stolen sarcophagus filled with treasure. He is visited by a mysterious man known as Hammid Bey (Sirri Murad), who warns him against touching the mummy that is also housed in the sarcoghagus, as it is cursed...
 26. Faberge Organics Shampoo - GLOW Battle Royal Commercial (1989)
 27. Pizza Planet Commercial (1984)
 28. LA Gear
 29. Amazon Women on the Moon - No Soul Simmons
 30. Japanese Star Wars Tuna Commercial (1978)
 31. 900-Freak-Phone
-32. Billy Dee Williams on Carl Stalling
 33. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
-34. [The Kenny Everett Television Show - S02E03](https://en.wikipedia.org/wiki/The_Kenny_Everett_Television_Show#Series_2_(1983))
-    - Guest stars: John Bluthal, Mike Grady, Jack Haig, Willie Rushton, Mike Moran, Mel Smith and Eli Woods; Musical guests: U2
+34. [The Kenny Everett Television Show - S02E04](https://en.wikipedia.org/wiki/The_Kenny_Everett_Television_Show#Series_2_(1983))
+    - Guest stars: Sabina Franklyn, Tim Barrett, Lou Hirsch, Eli Woods, John Bluthal, Robin Parkinson, P.G. Stephens, Burt Kwouk, Joanna Lumley, Jack Scott, Jacqueline Clarke, Sheila Steafel and Terry Wogan; Musical guests: Duran Duran
 35. 1-900 Party Line television commercial (1989)
 36. Akumaizer - "he dead"
 37. Living in the 90's CD Commercial
-38. [Friday the 13th -  S02E06 - "Master of Disguise" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_2_(1988%E2%80%9389))
-    - While providing antiques to a film set, Micki catches the eye of an up-and-coming actor, William Pratt, whose good looks mask an ugly agenda.
+38. [Friday the 13th -  S02E07 - "Wax Magic" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_2_(1988%E2%80%9389))
+    - Ryan gets close to the wife of a jealous wax sculptor, Alwen Chase, while investigating a series of axe-murders at a local carnival.
 39. Phoone Tawlk (1987)
 40. Emo Philips - Drunk Driving PSA
 41. 809-544-CHAT Party Line (1992)
 42. Boglins Hotline (1988)
 43. Premier Discreet Connections 1-900-FUN-BABES phone chat ad(1991)
 44. Ultimate Romance Line Women For You! 1-900 TV ad (1991)
-45. [In Search Of... With Leonard Nimoy - S06E04 - "M.I.A.'s" (1981)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_6_(1981%E2%80%931982))
-    - An investigation into a highly controversial and emotional question: Are American servicemen still lingering in prison in Vietnam?
+45. [In Search Of... With Leonard Nimoy - S06E05 - "The Elephant Man" (1981)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_6_(1981%E2%80%931982))
+    - From side-show freak to the friend of royalty, review the true story of the horribly disfigured Joseph Merrick.
 46. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 47. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 48. Undertale - Napping with Ghost (Outro & Raid out)
