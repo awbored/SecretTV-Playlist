@@ -13,7 +13,7 @@ This week we will be watching [Bugs Bunny's Looney Tunes All Star 50th Anniversa
 1. Secret TV Roller Coaster (intro)
 2. Escape from New York - Get a new one
 3. Jerry Lewis Sings Bob Dylan (SCTV)
-4. [Alien Nation - Movie 1 / Part 1 - "Dark Horizon" (1994)](https://en.wikipedia.org/wiki/Alien_Nation_(TV_series)#Episodes)
+4. [Alien Nation - Movie 1 / Part 1 - "Dark Horizon" (1994)](https://en.wikipedia.org/wiki/Alien_Nation:_Dark_Horizon)
    - An Overseer named Ahpossno comes to Earth to take the slaves, and all humans, back to the mothership.
 5. DiC
 6. Bugs Bunny's Looney Tunes All Star 50th Anniversary
