@@ -16,7 +16,7 @@ This week we will be watching [Bugs Bunny's Looney Tunes All Star 50th Anniversa
 4. [Alien Nation - Movie 1 / Part 1 - "Dark Horizon" (1994)](https://en.wikipedia.org/wiki/Alien_Nation:_Dark_Horizon)
    - An Overseer named Ahpossno comes to Earth to take the slaves, and all humans, back to the mothership.
 5. DiC
-6. Bugs Bunny's Looney Tunes All Star 50th Anniversary
+6. [Bugs Bunny's Looney Tunes All Star 50th Anniversary](https://www.imdb.com/title/tt0463931/)
 7. Artie's Workout
 8. Chevrolet Astro Van Commercial (1985)
 9. The LaserTour from Perceptronics (1982)
