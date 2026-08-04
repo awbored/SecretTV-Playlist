@@ -42,7 +42,7 @@ Things are neat!
 31. 900-Freak-Phone
 32. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
 33. [Friday the 13th -  S02E08 - "Read My Lips" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_2_(1988%E2%80%9389))
-    - An old friend of Micki's is about to marry a ventriloquist, Edgar 
+    - An old friend of Micki's is about to marry a ventriloquist, Edgar van Horne, whose sharp-humored dummy does not approve.
 34. 1-900 Party Line television commercial (1989)
 35. Akumaizer - "he dead"
 36. Living in the 90's CD Commercial
