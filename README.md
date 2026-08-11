@@ -1,18 +1,20 @@
-# 2026/08/04 - SecretTV Playlist
+# 2026/08/11 - SecretTV Playlist
 
 ## General News
 
-Things are neat!
+New music performances have been uploaded to my youtube:
+- [2026/07/11 - AW at Art Glass, Sacramento](https://www.youtube.com/watch?v=EfpFT6oEmeE)
+- [2026/07/23 - Two Rivers Audio](https://www.youtube.com/watch?v=4hSS_UU2das)
 
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
 2. Escape from New York - Get a new one
 3. Jerry Lewis Sings Bob Dylan (SCTV)
-4. [Alien Nation - Movie 1 / Part 2 - "Dark Horizon" (1994)](https://en.wikipedia.org/wiki/Alien_Nation:_Dark_Horizon)
-   - An Overseer named Ahpossno comes to Earth to take the slaves, and all humans, back to the mothership.
+4. [Alien Nation - Movie 2 / Part 1 - "Body and Soul" (1995)](https://en.wikipedia.org/wiki/Alien_Nation:_Body_and_Soul)
+   - Sikes and Francisco are called in to a case when a mysterious young girl, who looks part Newcomer, part human, appears. Her huge, brutish counterpart tries to free her from the precinct, and their bizarre relationship turns out to be the result of a slaveship medical experiment. Meanwhile, Cathy and Matt are going to sex school, in preparation of becoming intimate, while Buck distresses his parents by his anti-human opinions.
 5. DiC
-6. [Maniac Mansion - S01E15 - "Brainiac Mansion" (1990)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
+6. [Maniac Mansion - S01E16 - "Little Big Fly" (1991)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
 7. Artie's Workout
 8. Chevrolet Astro Van Commercial (1985)
 9. The LaserTour from Perceptronics (1982)
@@ -23,17 +25,17 @@ Things are neat!
 14. I give 'em one of DEEZ and give 'em one of DOZE
 15. Gary Numan - Metal - Sync with Karate
 16. Taco Bell MC Hammer Escapes Via Parachute Hammer Pants Commercial
-17. [Rocky & Bullwinkle & Friends - S01E17 (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
-18. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E60
+17. Pete n Pete Short - Spy Work
+18. [Rocky & Bullwinkle & Friends - S01E18 (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
+19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E61
     - The Octopus sees something that he really, really wants.  And then he gets it!
-19. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
-20. Tales From the Darkside - Claymation Promo
-21. Kool-Aid Man Shows us how to field a bunt
-22. KatyPerrySlimed
-23. Gonzo Guilt
-24. Pete n Pete Short - Watching Artie
-25. [Tales From the Darkside - S04E02 - "Mary, Mary" (1987)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_4_(1987%E2%80%931988))
-    - Mary Jones (Margaret Whitton), a photographer who suffers from cripplingly low self-esteem, isolates herself from the world and turns to dolls and mannequins for friendship. Mary also becomes gripped with fear after a neighbor, David (A.C. Weary), makes romantic advances towards her, believing herself not to be worthy his or anyone's love...
+20. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
+21. Tales From the Darkside - Claymation Promo
+22. Kool-Aid Man Shows us how to field a bunt
+23. KatyPerrySlimed
+24. Gonzo Guilt
+25. [Tales From the Darkside - S04E03 - "The Spirit Photographer" (1987)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_4_(1987%E2%80%931988))
+    - Paranormal investigator Algernon Colesbury (Frank Hamilton) invents a special camera capable of taking perfect photographs of ghosts. Ignoring the skepticism of his best friend Harry Bainbridge (Richard Clarke), Algernon has purchased a haunted house so he can use it as a testing site for the camera, hoping to once and for all prove to the world that ghosts do exist.
 26. Faberge Organics Shampoo - GLOW Battle Royal Commercial (1989)
 27. Pizza Planet Commercial (1984)
 28. LA Gear
@@ -41,22 +43,21 @@ Things are neat!
 30. Japanese Star Wars Tuna Commercial (1978)
 31. 900-Freak-Phone
 32. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
-33. [Friday the 13th -  S02E08 - "Read My Lips" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_2_(1988%E2%80%9389))
-    - An old friend of Micki's is about to marry a ventriloquist, Edgar van Horne, whose sharp-humored dummy does not approve.
+33. [Friday the 13th -  S02E09 - "13 O’Clock" (1988)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_2_(1988%E2%80%9389))
+    - A rich man, Henry Wilkerson's ambitious trophy-wife, Reatha Wilkerson, (Gwynyth Walsh) murders him for his magical stopwatch. Two street-kids witness the murder, and appeal to Curious Goods for help.
 34. 1-900 Party Line television commercial (1989)
 35. Akumaizer - "he dead"
 36. Living in the 90's CD Commercial
-37. [The Kenny Everett Television Show - S02E05](https://en.wikipedia.org/wiki/The_Kenny_Everett_Television_Show#Series_2_(1983))
-    - Guest stars: Martin Shaw, Mike Moran and Barry Cryer; Musical guests: Spandau Ballet
-van Horne, whose sharp-humored dummy does not approve.
+37. [The Kenny Everett Television Show - S02E06](https://en.wikipedia.org/wiki/The_Kenny_Everett_Television_Show#Series_2_(1983))
+    - Guest stars: Sheila Steafel, Roy Kinnear, Aimi MacDonald, Lou Hirsch, Mike Moran and Richard Todd; Musical guests: The Thompson Twins
 38. Phoone Tawlk (1987)
 39. Emo Philips - Drunk Driving PSA
 40. 809-544-CHAT Party Line (1992)
 41. Boglins Hotline (1988)
 42. Premier Discreet Connections 1-900-FUN-BABES phone chat ad(1991)
 43. Ultimate Romance Line Women For You! 1-900 TV ad (1991)
-44. [In Search Of... With Leonard Nimoy - S06E06 - "The Lincoln Conspiracy" (1981)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_6_(1981%E2%80%931982))
-    - Cracks "the case of the 19th century"—how the assassination of Abraham Lincoln was meticulously planned and abominably executed.
+44. [In Search Of... With Leonard Nimoy - S06E07 - "Jim Jones" (1981)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_6_(1981%E2%80%931982))
+    - The story that shocked the world—how Jim Jones, the cult Svengali from California, convinced over 900 of his followers to follow him—first to a commune in Guyana and then into suicide.
 45. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 46. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 47. Undertale - Napping with Ghost (Outro & Raid out)
