@@ -16,16 +16,17 @@ New music performances have been uploaded to my youtube:
 
 1. Secret TV Roller Coaster (intro)
 2. [Tim Curry Commerical - Me and My Girl at the Golden Gate Theater in San Francisco (1987)](https://www.youtube.com/watch?v=vrNFmWu7SLg)
-3. [Dolly - Dollywood commercial (1988)](https://www.youtube.com/watch?v=vI7HuK2BfWk)
-4. [The Muppet Show - S02E18 - Starring Jay P Morgan (03/06/1978)](https://muppet.fandom.com/wiki/Episode_218:_Jaye_P._Morgan)
+3. Transformers - Blaster Blues with commercials
+4. [Dolly - Dollywood commercial (1988)](https://www.youtube.com/watch?v=vI7HuK2BfWk)
+5. [The Muppet Show - S02E18 - Starring Jay P Morgan (03/06/1978)](https://muppet.fandom.com/wiki/Episode_218:_Jaye_P._Morgan)
    - Jaye P. has trouble dealing with the wackiness of the show, especially the constant explosions. Matters take a turn for the worse when J.P. Grosse arrives at the theater for an inspection. 
-5. [Tim Curry Commercial - Japanese Xerox A Color (1998)](https://www.youtube.com/watch?v=S4lA9otVKLA)
-6. [Tim Curry & Gina Bellman - Guinness Original - UK TV Advert - Terence Donovan - Magician (1993)](https://www.youtube.com/watch?v=aGM2iC1htz4)
-7. [Dolly - Pigeon Forge Tennessee Television Commercial (1991)](https://www.youtube.com/watch?v=LS0vW8IE7Vg)
-8. [Dolly - Golden Nugget TV Commercial with Dolly Parton "Steve" (1987)](https://www.youtube.com/watch?v=LwhoH2smOl8)
-9. [Dolly Parton Show - S01E01 (1987)](https://en.wikipedia.org/wiki/Dolly_(1987_TV_series)#Episodes)
+6. Artie's Workout
+7. [Tim Curry Commercial - Japanese Xerox A Color (1998)](https://www.youtube.com/watch?v=S4lA9otVKLA)
+8. [Tim Curry & Gina Bellman - Guinness Original - UK TV Advert - Terence Donovan - Magician (1993)](https://www.youtube.com/watch?v=aGM2iC1htz4)
+9. [Dolly - Pigeon Forge Tennessee Television Commercial (1991)](https://www.youtube.com/watch?v=LS0vW8IE7Vg)
+10. [Dolly - Golden Nugget TV Commercial with Dolly Parton "Steve" (1987)](https://www.youtube.com/watch?v=LwhoH2smOl8)
+11. [Dolly Parton Show - S01E01 (1987)](https://en.wikipedia.org/wiki/Dolly_(1987_TV_series)#Episodes)
    - Guest star(s): Dudley Moore, Hulk Hogan, Paul Reubens as Pee-wee Herman, Oprah Winfrey, and Ed Koch
-10. Artie's Workout
 11. [Dolly - Dolly Parton's Dollywood Theme Park Television Commercial (1990s)](https://www.youtube.com/watch?v=AI8gM0WdadM)
 12. [Tim Curry SNL Special - Rocky Horror Shop](https://www.youtube.com/watch?v=pyeyqSFdMhg)
 13. Dolly - Date with Kermit (10/25/1987)
