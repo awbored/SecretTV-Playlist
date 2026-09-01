@@ -1,8 +1,12 @@
-# 2026/08/25 - SecretTV Playlist
+# 2026/09/01 - SecretTV Playlist
 
 ## General News
 
-August 27th, a large group of us will be playing A Big Walk, starting at 5:00 pm Pacific!  
+💜💜💜 This last week was a hard week for celebrity passing.  Today's TV We're going to honor the lives of
+- [Dolly Parton 1/19/1946 - 08/25/2026](https://en.wikipedia.org/wiki/Dolly_Parton)
+- [Tim Curry 4/19/1946 - 08/25/2026](https://en.wikipedia.org/wiki/Tim_Curry)
+- [Peter Cullen 07/28/1941 - 08/26/2026](https://en.wikipedia.org/wiki/Peter_Cullen)
+- [Jaye P Morgan 12/03/1931 - 08/24/2026](https://en.wikipedia.org/wiki/Jaye_P._Morgan)
 
 New music performances have been uploaded to my youtube:
 - [2026/07/11 - AW at Art Glass, Sacramento](https://www.youtube.com/watch?v=EfpFT6oEmeE)
@@ -11,59 +15,30 @@ New music performances have been uploaded to my youtube:
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
-2. Escape from New York - Get a new one
-3. Jerry Lewis Sings Bob Dylan (SCTV)
-4. [Alien Nation - Movie 3 / Part 1 - "Millenium" (1996)](https://en.wikipedia.org/wiki/Alien_Nation:_Millennium)
-   - It's December 1999 and as the end of the millennium approaches, people are attempting to find spiritual enlightenment. However, a few people want to skip all the work that entails. A holy Tenctonese relic in the hands of a heretic is giving them a shortcut but it's not quite as easily controlled as she says.
-5. DiC
-6. [Maniac Mansion - S01E18 - "Turner: The Boss" (1991)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
-7. Artie's Workout
-8. Pee Wee Herman guest hosts the Joan Rivers Show
-9. The LaserTour from Perceptronics (1982)
-10. Big Bill Hell
-11. Sounds of the 70's
-12. Cal Worthington (1984)
-13. Star Wars Glasses at Burger King Commercial (1978)
-14. I give 'em one of DEEZ and give 'em one of DOZE
-15. Steamed Hams but its Jungle Music
-16. Taco Bell MC Hammer Escapes Via Parachute Hammer Pants Commercial
-17. Pete n Pete Short - Burping Room
-18. [Rocky & Bullwinkle & Friends - S01E20 (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
-19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E63
-    - The Octopus sees something that he really, really wants.  And then he gets it!
-20. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
-21. Tales From the Darkside - Claymation Promo
-22. Kool-Aid Man Shows us how to field a bunt
-23. KatyPerrySlimed
-24. Gonzo Guilt
-25. [Tales From the Darkside - S04E05 - "No Strings" (1987)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_4_(1987%E2%80%931988))
-    - Eddie Minelli (T.J. Castronova), a cruel and twisted mob boss, has his subordinate Nicky (Bradley Fisher) kidnap noted puppeteer Aldo De Calasuro (Barry Dennen), whereupon Eddie forces him to string up the corpse of his murdered rival Fat Paulie (Derek Doughran). With his floozy Tiffany (Cameron Milzer) at his side, Eddie celebrates the defeat of his rival by watching Aldo puppeteer the corpse to put on a one-man show where "Paulie" praises Eddie, but the result of such an act is unexpected for all involved.
-26. Faberge Organics Shampoo - GLOW Battle Royal Commercial (1989)
-27. Pizza Planet Commercial (1984)
-28. LA Gear
-29. Pee Wee & Letterman Take a Drive in the Country
-30. Japanese Star Wars Tuna Commercial (1978)
-31. 900-Freak-Phone
-32. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
-33. [Friday the 13th -  S02E11 - "The Sweetest Sting" (1989)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_2_(1988%E2%80%9389))
-    - A beekeeper Elroy McCabe (Art Hindle) uses a swarm of vampiric bees to provide terminal patients with new bodies, and to extort money and services from them afterwards.
-34. 1-900 Party Line television commercial (1989)
-35. Akumaizer - "he dead"
-36. Fun Rock (1988)
-37. [The Kenny Everett Television Show - S02E08 (1983)](https://en.wikipedia.org/wiki/The_Kenny_Everett_Television_Show#Series_2_(1983))
-    - Guest stars: Alfred Marks, Daniel Peacock and Su Pollard; Musical guests: Chas & Dave
-38. Phoone Tawlk (1987)
-39. Emo Philips - Drunk Driving PSA
-40. 809-544-CHAT Party Line (1992)
-41. Boglins Hotline (1988)
-42. Premier Discreet Connections 1-900-FUN-BABES phone chat ad(1991)
-43. Ultimate Romance Line Women For You! 1-900 TV ad (1991)
-44. [In Search Of... With Leonard Nimoy - S06E09 - "The Tower of London Murders" (1981)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_6_(1981%E2%80%931982))
-    - How the destiny of England was changed by the disappearance of young princes from the fabled Tower. Were they murdered on the orders of their uncle, Richard III of England?
-45. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
-46. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
-47. Undertale - Napping with Ghost (Outro & Raid out)
-
+2. [Tim Curry Commerical - Me and My Girl at the Golden Gate Theater in San Francisco (1987)](https://www.youtube.com/watch?v=vrNFmWu7SLg)
+3. [Dolly - Dollywood commercial (1988)](https://www.youtube.com/watch?v=vI7HuK2BfWk)
+4. [The Muppet Show - S02E18 - Starring Jay P Morgan (03/06/1978)](https://muppet.fandom.com/wiki/Episode_218:_Jaye_P._Morgan)
+   - Jaye P. has trouble dealing with the wackiness of the show, especially the constant explosions. Matters take a turn for the worse when J.P. Grosse arrives at the theater for an inspection. 
+5. [Tim Curry Commercial - Japanese Xerox A Color (1998)](https://www.youtube.com/watch?v=S4lA9otVKLA)
+6. [Tim Curry & Gina Bellman - Guinness Original - UK TV Advert - Terence Donovan - Magician (1993)](https://www.youtube.com/watch?v=aGM2iC1htz4)
+7. [Dolly - Pigeon Forge Tennessee Television Commercial (1991)](https://www.youtube.com/watch?v=LS0vW8IE7Vg)
+8. [Dolly - Golden Nugget TV Commercial with Dolly Parton "Steve" (1987)](https://www.youtube.com/watch?v=LwhoH2smOl8)
+9. [Dolly Parton Show - S01E01 (1987)](https://en.wikipedia.org/wiki/Dolly_(1987_TV_series)#Episodes)
+   - Guest star(s): Dudley Moore, Hulk Hogan, Paul Reubens as Pee-wee Herman, Oprah Winfrey, and Ed Koch
+10. Artie's Workout
+11. [Dolly - Dolly Parton's Dollywood Theme Park Television Commercial (1990s)](https://www.youtube.com/watch?v=AI8gM0WdadM)
+12. [Tim Curry SNL Special - Rocky Horror Shop](https://www.youtube.com/watch?v=pyeyqSFdMhg)
+13. Dolly - Date with Kermit (10/25/1987)
+14. [Tim Curry Commerical - Nickelodeon The Big Help' Advert with Tim Curry, Annie Potts, Steve Carell, Over The Top](https://www.youtube.com/watch?v=T1s6Ru_79xM)
+15. Dolly - With Miss Piggy (11/15/1987)
+16. [Tim Curry & Gina Bellman - Guinness Original - UK TV Advert - Terence Donovan - Dark Chamber (1993)](https://www.youtube.com/watch?v=McAtqeIpZVM)
+17. [Dolly - Breeze Detergent Commercial](https://www.youtube.com/watch?v=mhrvb5w6RHY)
+18. Dolly - With Miss Piggy (04/16/1988)
+19. [Tim Curry supports public broadcasting](https://www.youtube.com/watch?v=ndR6ykz_CP4)
+20. [Muppet Treasure Island - Starring Tim Curry (KVUE 01/31/1997)](https://en.wikipedia.org/wiki/Muppet_Treasure_Island)
+21. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+22. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+23. Undertale - Napping with Ghost (Outro & Raid out)
 
 
 
