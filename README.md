@@ -5,6 +5,7 @@
 New music performances have been uploaded to my youtube:
 - [2026/07/11 - AW at Art Glass, Sacramento](https://www.youtube.com/watch?v=EfpFT6oEmeE)
 - [2026/07/23 - Two Rivers Audio](https://www.youtube.com/watch?v=4hSS_UU2das)
+- [2026/09/15 - Anime Aliens at Make-Out Room](https://www.youtube.com/watch?v=qvH0QdhierY)
 
 ## SecretTV Playlist
 
