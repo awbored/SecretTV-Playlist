@@ -1,4 +1,4 @@
-# 2026/09/08 - SecretTV Playlist
+# 2026/09/22 - SecretTV Playlist
 
 ## General News
 
@@ -11,10 +11,10 @@ New music performances have been uploaded to my youtube:
 1. Secret TV Roller Coaster (intro)
 2. Escape from New York - Get a new one
 3. Amazon - Short Attention Span
-4. [Alien Nation - Movie 3 / Part 2 - "Millenium" (1996)](https://en.wikipedia.org/wiki/Alien_Nation:_Millennium)
-   - It's December 1999 and as the end of the millennium approaches, people are attempting to find spiritual enlightenment. However, a few people want to skip all the work that entails. A holy Tenctonese relic in the hands of a heretic is giving them a shortcut but it's not quite as easily controlled as she says.
+4. [Alien Nation - Movie 4 / Part 1 - "The Enemy Within" (1996)](https://en.wikipedia.org/wiki/Alien_Nation:_The_Enemy_Within)
+   - When Detectives Sikes and Francisco are presented with the mysterious death of an Eeno, Matt is stupefied to discover that George had rudely snubbed the case. He, like most Newcomers, reviles the outcast Eenos. As the case unfolds, George has to reassess his prejudices, and George's family help save the city from an alien threat originating in an Eeno waste disposal facility.
 5. DiC
-6. [Maniac Mansion - S01E20 - "The Live Show" (1991)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
+6. [Maniac Mansion - S01E22 - "The Cliffhanger" (1991)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
 7. Artie's Workout
 8. Zorak as Space Ghost promo
 9. Twin Peaks Georgia Coffee Commercial [FULL MINISERIES]
@@ -25,39 +25,39 @@ New music performances have been uploaded to my youtube:
 14. I give 'em one of DEEZ and give 'em one of DOZE
 15. Steamed Hams but its Jungle Music
 16. Taco Bell commercial - Young MC
-17. Pete n Pete Short - Route 34
-18. [Rocky & Bullwinkle & Friends - S01E21 (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
-19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D01E64
+17. Pete n Pete Short - Halloween
+18. [Rocky & Bullwinkle & Friends - S01E22 (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
+19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D02E01
     - The Octopus sees something that he really, really wants.  And then he gets it!
 20. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
 21. Tales From the Darkside - Claymation Promo
 22. Kool-Aid Man Shows us how to field a bunt
 23. Akumaizer - "he dead"
 24. Gonzo Guilt
-25. [Tales From the Darkside - S04E06 - "The Grave Robber" (1987)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_4_(1987%E2%80%931988))
-    - Unscrupulous but cowardly grave robber Harold Gormley (Daren Kelly) and his girlfriend Aileen (Polly Draper) discover an Egyptian tomb filled with treasure. In the process, they awaken Tapok (Arnold Stang), a short-tempered mummy who was once Lord Chamberlain to the Pharaoh...
-26. Sifl N Olly - Word With Chester - Acting
+25. [Tales From the Darkside - S04E07 - "The Yattering and Jack" (1987)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_4_(1987%E2%80%931988))
+    - A diminutive demon known as The Yattering (Phil Fondacaro) is assigned by Beelzebub (Tom Newman) to obtain the soul of pickle salesman Jack Polo (Antony Carbone); intending to drive him insane to the point where he renounces his faith in God...
+26. Sifl N Olly - Word With Chester - Fake Blood
 27. Pizza Planet Commercial (1984)
 28. They Live Trailer (JP Superbowl XXIII Broadcast 1989)
 29. Tim Curry - Japanese Xerox A Color Commercial (1998)
 30. Japanese Star Wars Tuna Commercial (1978)
 31. Sony Walkman Feel The Music Commercial (1981)
 32. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
-33. [Friday the 13th -  S02E12 - "The Playhouse" (1989)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_2_(1988%E2%80%9389))
-    - Two abused children, Mike and Janine Carlson, are connected with a mysterious rash of disappearing children.
+33. [Friday the 13th -  S02E13 - "Eye of Death" (1989)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_2_(1988%E2%80%9389))
+    - Another antique dealer and formerly one of Jack's business rivals, Atticus Rook, is time-traveling and getting collectible Civil War artifacts straight from the battlefields. While trying to stop him, Ryan becomes trapped in the past.
 34. 1-900 Party Line television commercial (1989)
 35. La Choy Dragon Grocery Store
 36. Fun Rock (1988)
-37. [The Kenny Everett Television Show - S03E01 (1985)](https://en.wikipedia.org/wiki/The_Kenny_Everett_Television_Show#Series_3_(1985))
-    -  Guest stars: Jeffrey Holland, Sheila Steafel, John Wells and Bernie Winters; Musical guests: Tears For Fears
+37. [The Kenny Everett Television Show - S03E02 (1985)](https://en.wikipedia.org/wiki/The_Kenny_Everett_Television_Show#Series_3_(1985))
+    - Guest stars: Vicki Michelle, Lionel Blair, John Wells, Peter Woods, Jeffrey Wickham and Frank Thornton; Musical guests: The Flying Pickets
 38. Phoone Tawlk (1987)
 39. Tim Curry supports public broadcasting
 40. 809-544-CHAT Party Line (1992)
 41. Boglins Hotline (1988)
 42. Premier Discreet Connections 1-900-FUN-BABES phone chat ad(1991)
 43. Ultimate Romance Line Women For You! 1-900 TV ad (1991)
-44. [In Search Of... With Leonard Nimoy - S06E10 - "The Aztec Conquest" (1981)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_6_(1981%E2%80%931982))
-    - Why did the great Montezuma surrender to Cortes without fighting? What part did Aztec legend about a bearded white god play in the ultimate downfall of the Aztec Empire?
+44. [In Search Of... With Leonard Nimoy - S06E11 - "Houdini's Secrets" (1981)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_6_(1981%E2%80%931982))
+    - Probes the still-mysterious secrets of the world's greatest escape artist, including the theory that Houdini came back after death.
 45. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 46. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 47. Undertale - Napping with Ghost (Outro & Raid out)
