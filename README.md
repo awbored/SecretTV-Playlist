@@ -9,6 +9,8 @@ New music performances have been uploaded to my youtube:
 - [2026/07/23 - Two Rivers Audio](https://www.youtube.com/watch?v=4hSS_UU2das)
 - [2026/09/15 - Anime Aliens at Make-Out Room](https://www.youtube.com/watch?v=qvH0QdhierY)
 
+Next performance will be Oct 2nd in Oakland, more info [on my website](https://andrewway.net)
+
 ## SecretTV Playlist
 
 1. Secret TV Roller Coaster (intro)
