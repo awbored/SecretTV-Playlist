@@ -1,6 +1,8 @@
-# 2026/09/22 - SecretTV Playlist
+# 2026/09/29 - SecretTV Playlist
 
 ## General News
+
+🎂🎂 Happy Birthday [Jim Henson (9/24/1936)](https://en.wikipedia.org/wiki/Jim_Henson) 🎂🎂
 
 New music performances have been uploaded to my youtube:
 - [2026/07/11 - AW at Art Glass, Sacramento](https://www.youtube.com/watch?v=EfpFT6oEmeE)
@@ -12,53 +14,53 @@ New music performances have been uploaded to my youtube:
 1. Secret TV Roller Coaster (intro)
 2. Escape from New York - Get a new one
 3. Amazon - Short Attention Span
-4. [Alien Nation - Movie 4 / Part 1 - "The Enemy Within" (1996)](https://en.wikipedia.org/wiki/Alien_Nation:_The_Enemy_Within)
+4. [Alien Nation - Movie 4 / Part 2 - "The Enemy Within" (1996)](https://en.wikipedia.org/wiki/Alien_Nation:_The_Enemy_Within)
    - When Detectives Sikes and Francisco are presented with the mysterious death of an Eeno, Matt is stupefied to discover that George had rudely snubbed the case. He, like most Newcomers, reviles the outcast Eenos. As the case unfolds, George has to reassess his prejudices, and George's family help save the city from an alien threat originating in an Eeno waste disposal facility.
 5. DiC
-6. [Maniac Mansion - S01E22 - "The Cliffhanger" (1991)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_1_(1990%E2%80%9391))
+6. [Maniac Mansion - S02E01 - "Luck Be a Lady This Season" (1991)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_2_(1991%E2%80%9392))
 7. Artie's Workout
-8. Zorak as Space Ghost promo
+8. Jim Henson Short - Java
 9. Twin Peaks Georgia Coffee Commercial [FULL MINISERIES]
 10. Big Bill Hell
 11. Mr. Gatti's Pizza Louisville KY Delivery Commercial (1985)
-12. Cal Worthington (1984)
+12. Jim Henson Short - Big Bird Watchers
 13. Star Wars Glasses at Burger King Commercial (1978)
 14. I give 'em one of DEEZ and give 'em one of DOZE
-15. Steamed Hams but its Jungle Music
-16. Taco Bell commercial - Young MC
-17. Pete n Pete Short - Halloween
-18. [Rocky & Bullwinkle & Friends - S01E22 (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
-19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D02E01
+15. Jim Henson Short - Flying A Robot
+16. Jim Henson Short - RC Cola 1
+17. Pete n Pete Short - The Dot
+18. [Rocky & Bullwinkle & Friends - S01E23 (1959)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_1_(1959%E2%80%9360))
+19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D02E02
     - The Octopus sees something that he really, really wants.  And then he gets it!
-20. Isaac Asimov's Robots VCR Mystery Game Commercial (1988)
+20. Jim Henson Short - Purina Dog Chow
 21. Tales From the Darkside - Claymation Promo
 22. Kool-Aid Man Shows us how to field a bunt
 23. Akumaizer - "he dead"
 24. Gonzo Guilt
-25. [Tales From the Darkside - S04E07 - "The Yattering and Jack" (1987)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_4_(1987%E2%80%931988))
-    - A diminutive demon known as The Yattering (Phil Fondacaro) is assigned by Beelzebub (Tom Newman) to obtain the soul of pickle salesman Jack Polo (Antony Carbone); intending to drive him insane to the point where he renounces his faith in God...
+25. [Tales From the Darkside - S04E08 - "Seymourlama" (1987)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_4_(1987%E2%80%931988))
+    - Henry and Ellen Strand (David Gale and Kathleen Doyle) are visited one night by Chai Fung and Madame Wu (Divine and Cathy Lipinski), representatives of a small Himalayan country known as Lo Poa. The Strands are surprised to learn that the duo have come to collect their teenage son Seymour (J. D. Roth), who has been signified by an ancient religious prophecy to become the next lama of their nation...
 26. Sifl N Olly - Word With Chester - Fake Blood
 27. Pizza Planet Commercial (1984)
 28. They Live Trailer (JP Superbowl XXIII Broadcast 1989)
 29. Tim Curry - Japanese Xerox A Color Commercial (1998)
-30. Japanese Star Wars Tuna Commercial (1978)
-31. Sony Walkman Feel The Music Commercial (1981)
+30. Jim Henson Short - Munchos
+31. Jim Henson Short - Pak Nit- Rumple Wrinkle Shrinkel Stretchelstiltzkin
 32. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
-33. [Friday the 13th -  S02E13 - "Eye of Death" (1989)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_2_(1988%E2%80%9389))
-    - Another antique dealer and formerly one of Jack's business rivals, Atticus Rook, is time-traveling and getting collectible Civil War artifacts straight from the battlefields. While trying to stop him, Ryan becomes trapped in the past.
+33. [Friday the 13th -  S02E14 - "Face of Evil" (1989)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_2_(1988%E2%80%9389))
+    - An aging super-model, Tabitha Robbins, uses the cursed compact to revive her career, at the cost of her competition's lives.
 34. 1-900 Party Line television commercial (1989)
 35. La Choy Dragon Grocery Store
 36. Fun Rock (1988)
-37. [The Kenny Everett Television Show - S03E02 (1985)](https://en.wikipedia.org/wiki/The_Kenny_Everett_Television_Show#Series_3_(1985))
-    - Guest stars: Vicki Michelle, Lionel Blair, John Wells, Peter Woods, Jeffrey Wickham and Frank Thornton; Musical guests: The Flying Pickets
+37. [The Kenny Everett Television Show - S03E03 (1985)](https://en.wikipedia.org/wiki/The_Kenny_Everett_Television_Show#Series_3_(1985))
+    - Guest stars: Tim Brooke-Taylor, Jeffrey Holland, Sheila Steafel, Joanna Lumley and Lennie Bennett; Musical guests: Godley & Creme
 38. Phoone Tawlk (1987)
 39. Tim Curry supports public broadcasting
-40. 809-544-CHAT Party Line (1992)
+40. Jim Henson Short - RC Cola 2
 41. Boglins Hotline (1988)
-42. Premier Discreet Connections 1-900-FUN-BABES phone chat ad(1991)
-43. Ultimate Romance Line Women For You! 1-900 TV ad (1991)
-44. [In Search Of... With Leonard Nimoy - S06E11 - "Houdini's Secrets" (1981)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_6_(1981%E2%80%931982))
-    - Probes the still-mysterious secrets of the world's greatest escape artist, including the theory that Houdini came back after death.
+42. Jim Henson Short - Only Five Minutes More
+43. Jim Henson Short - Wilsons Meat
+44. [In Search Of... With Leonard Nimoy - S06E12 - "Hiroshima Survivors" (1981)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_6_(1981%E2%80%931982))
+    - A revealing study of the wounds suffered by survivors of the first A-bomb blast, which killed more than 80,000 Japanese civilians on August 6, 1945.
 45. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
 46. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
 47. Undertale - Napping with Ghost (Outro & Raid out)
