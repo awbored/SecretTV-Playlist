@@ -2,6 +2,8 @@
 
 ## General News
 
+No music or game stream on 10/8 as I will be out.
+
 New music performances have been uploaded to my youtube:
 - [2026/07/11 - AW at Art Glass, Sacramento](https://www.youtube.com/watch?v=EfpFT6oEmeE)
 - [2026/07/23 - Two Rivers Audio](https://www.youtube.com/watch?v=4hSS_UU2das)
