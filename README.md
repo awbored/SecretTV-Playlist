@@ -131,7 +131,8 @@ The Secret Spoopy TV Marathon will start on Tuesday, October 27th, at 6:00pm Pac
 125. 70's & 80's Halloween Commercial Cut 8
 
 
-## [Commands and Info on SecretTVBot](https://github.com/awbored/SecretTV-Playlist/blob/main/SecretTVBot-Info.md)
+## Commands and Info on SecretTVBot
+- More info on [SecretTVBot Page](https://github.com/awbored/SecretTV-Playlist/blob/main/SecretTVBot-Info.md)
 
 ## Music News
 
