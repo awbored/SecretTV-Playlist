@@ -6,6 +6,8 @@ The Secret Spoopy TV Marathon will start on Tuesday, October 27th, at 6:00pm Pac
 
 ...Full playlist coming soon!
 
+<span style="color:purple">purple test</span>
+
 
 ## [Commands and Info on SecretTVBot](https://github.com/awbored/SecretTV-Playlist/blob/main/SecretTVBot-Info.md)
 
