@@ -1,4 +1,4 @@
-# 2026/10/27-2026/11/01 - 🎃🎃🎃 Secret Spoopy TV Marathon 🎃🎃🎃
+# 2026/10/27-11/01 - 🎃🎃🎃 Secret Spoopy TV Marathon 🎃🎃🎃
 
 ## SecretTV Playlist
 
