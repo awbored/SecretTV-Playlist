@@ -64,11 +64,11 @@ The Secret Spoopy TV Marathon will start on Tuesday, October 27th, at 6:00pm Pac
 58. Elvira Mistress of the Dark (NBC 7/05/91)
 59. The Rocky Horror Video Show (MTV 10/31/1989)
 60. Headbanger's Halloween (MTV 10/31/1989)
-61. *TGIF* - 001 - Growing Pains - Happy Halloween 1&2 - 10-31-1990
-62. *TGIF* - 002 - Step by Step - S04E06
-63. *TGIF* - 003 - Family Matters - S08E07 - Stevil
-64. *TGIF* - 004 - Family Matters - S09E07 - Stevil II - This Time He's Not Alone - (10/31/1997)
-65. *TGIF* - 005 - PERFECT STRANGERS HALLOWEEN (1988)
+61. *TGIF* - Growing Pains - Happy Halloween 1&2 - 10-31-1990
+62. *TGIF* - Step by Step - S04E06
+63. *TGIF* - Family Matters - S08E07 - Stevil
+64. *TGIF* - Family Matters - S09E07 - Stevil II - This Time He's Not Alone - (10/31/1997)
+65. *TGIF* - PERFECT STRANGERS HALLOWEEN (1988)
 66. *Cartoon Short* - Fleischer - The Cobweb Hotel (1936)
 67. 1980s Bartz's Party Store Milwaukee Halloween Commercial
 68. Michael Jacksons - Ghosts (05/09/1997)
