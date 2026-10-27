@@ -13,8 +13,8 @@ The Secret Spoopy TV Marathon will start on Tuesday, October 27th, at 6:00pm Pac
 7. KXVO Pumpkin Dance
 8. Claymation Comedy of Horrors (1991)
 9. Italian Halloween Commercials - Curated by [Holiday Special](https://twitch.tv/djholidayspecial)
-10. Garfield's Halloween Adventure (10/1985) - **halloween-cartoon-specials-oct-1985**
-11. It's the Great Pumpkin Charlie Brown (10/1985) - **halloween-cartoon-specials-oct-1985**
+10. Garfield's Halloween Adventure (10/1985)
+11. It's the Great Pumpkin Charlie Brown (10/1985)
 12. Daffy Duck's Quackbusters (1988)
 13. Elvira T-Shirt Commercial
 14. Cartoon - Jeepers Creepers (1939)
@@ -27,7 +27,7 @@ The Secret Spoopy TV Marathon will start on Tuesday, October 27th, at 6:00pm Pac
 21. Knott's Halloween Haunt Hanging, By Rock Garcia (1990)
 22. Count Scary WKBD 50 Shocktober bumpers 1986 (Put before halloween 3)
 23. Weather Channel Witch Watch (1991)
-24. Monster Vision - Halloween 3 (TNT) - **My VHS Saga Part 3**
+24. Monster Vision - Halloween 3 (TNT)
 25. Unsolved Mysteries - Halloween Special (10/26/88)
 26. Cartoon - Porky Pig - Scaredy Cat (1948)
 27. 900 Numbers - Creep Phone 1-900 Horror Phone Number Ad #1 (1988)
@@ -44,12 +44,12 @@ The Secret Spoopy TV Marathon will start on Tuesday, October 27th, at 6:00pm Pac
 38. The Adventures of Pete and Pete - S02E06 - Halloweenie
 39. Cartoon - Disney - The Legend Of Sleepy Hollow (1949)
 40. Pac-Man - S01E04 - Pacula; It's A Hole; Trick Or Chomp (MeTV 3/16/2025)
-41. Scooby Doo & Heathcliff Halloween specials (WMSN 1986) - **WMSN-TV 1986 WOC Halloween Scooby Doo Heathcliff**
+41. Scooby Doo & Heathcliff Halloween specials (WMSN 1986)
 42. Grinch's Halloween (ABC - 10/30/1980)
 43. The Channel 20 WTXX Kids Time Zone
 44. Heinz Haunted House (1983)
 45. Cry Baby Lane (Nick 10/28/2000)
-46. Nick At Nite Halloween Munster Mash (Nick - 10/1995) - **nick-at-nite-halloween-munster-mash-10-xx-95**
+46. Nick At Nite Halloween Munster Mash (Nick - 10/1995)
 47. 70's & 80's Halloween Commercial Cut 3
 48. Tales from the Darkside - S01E00 - Trick or Treat (written by George Romero)
 49. Bram Stoker's Dracula 1974 Trailer
@@ -60,15 +60,15 @@ The Secret Spoopy TV Marathon will start on Tuesday, October 27th, at 6:00pm Pac
 54. MTV Station ID - The Witch (MTV 1992)
 55. MTV Shocktober Weekend Halloween TV (1990)
 56. Elvira Slice Commercial
-57. Elvira MTV Marathon (MTV 10/31/1984) - **Elvira MTV Marathon 1984-10-31**
+57. Elvira MTV Marathon (MTV 10/31/1984)
 58. Elvira Mistress of the Dark (NBC 7/05/91)
-59. The Rocky Horror Video Show (MTV 10/31/1989) - **MTV Halloween (Oct 31 1989) [Nanto]**
-60. Headbanger's Halloween (MTV 10/31/1989) - **MTV Halloween (Oct 31 1989) [Nanto]**
-61. TGIF - 001 - Growing Pains - Happy Halloween 1&2 - 10-31-1990 - **TGIF**
-62. TGIF - 002 - Step by Step - S04E06 - **TGIF**
-63. TGIF - 003 - Family Matters - S08E07 - Stevil - **TGIF**
-64. TGIF - 004 - Family Matters - S09E07 - Stevil II - This Time He's Not Alone - (10/31/1997) - **TGIF**
-65. TGIF - 005 - PERFECT STRANGERS HALLOWEEN (1988) - **TGIF**
+59. The Rocky Horror Video Show (MTV 10/31/1989)
+60. Headbanger's Halloween (MTV 10/31/1989)
+61. TGIF - 001 - Growing Pains - Happy Halloween 1&2 - 10-31-1990
+62. TGIF - 002 - Step by Step - S04E06
+63. TGIF - 003 - Family Matters - S08E07 - Stevil
+64. TGIF - 004 - Family Matters - S09E07 - Stevil II - This Time He's Not Alone - (10/31/1997)
+65. TGIF - 005 - PERFECT STRANGERS HALLOWEEN (1988)
 66. Cartoon - Fleischer - The Cobweb Hotel (1936)
 67. 1980s Bartz's Party Store Milwaukee Halloween Commercial
 68. Michael Jacksons - Ghosts (05/09/1997)
@@ -93,12 +93,11 @@ The Secret Spoopy TV Marathon will start on Tuesday, October 27th, at 6:00pm Pac
 87. Hair Club for Monsters
 88. Cartoon - Bugs Bunny - Water, Water Every Hare (1952)
 89. 900 Numbers - Masters Of The Universe 1 900 Number TV Commercial
-90. The Shining (ABC 06/02/85) - **The Shinning ABC 06-02-85**
+90. The Shining (ABC 06/02/85)
 91. 70's & 80's Halloween Commercial Cut 5
 92. 900 Numbers - 900-9099-CRY
 93. It's the Great Pumpkin Charlie Brown; Winnie the Pooh Halloween (ABC 2001)
 94. Cartoon - Tom and Jerry - Switchin Kitten (1961)
-95. Cartoon - Spook O Rama
 96. 900 Numbers - House of Horrors 900 Number Commercial (1989)
 97. The Decline of Western Civilization II (MTV WOC 1989)
 98. Zappa Halloween Show (MTV 1981)
