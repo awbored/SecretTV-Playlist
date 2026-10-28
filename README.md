@@ -45,7 +45,7 @@ The Secret Spoopy TV Marathon will start on Tuesday, October 27th, at 6:00pm Pac
 39. *Cartoon Short* - Disney - The Legend Of Sleepy Hollow (1949)
 40. Pac-Man - S01E04 - Pacula; It's A Hole; Trick Or Chomp (MeTV 3/16/2025) *30 min*
 41. Scooby Doo & Heathcliff Halloween specials Marathon (WMSN 1986) *6 hours* 
-42. Grinch's Halloween (ABC - 10/30/1980) *30 min*
+42. Grinch's Halloween & The Halloween that Almost Wasn't (ABC - 10/30/1980) *1 hour*
 43. The Channel 20 WTXX Kids Time Zone *30 min*
 44. Heinz Haunted House (1983)
 45. *Movie* - Cry Baby Lane (Nick 10/28/2000) *2 hours*
