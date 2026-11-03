@@ -1,133 +1,58 @@
-# 2026/10/27-11/01 - 🎃🎃🎃 Secret Spoopy TV Marathon 🎃🎃🎃
+# 2026/11/03 - SecretTV Playlist
 
 ## SecretTV Playlist
 
-The Secret Spoopy TV Marathon will start on Tuesday, October 27th, at 6:00pm Pacific and will run ON LOOP until morning of November 1st.  Please enjoy this large list over 80 hours of curated Halloween goodies and have a good and safe Halloween!
+1. Secret TV Roller Coaster (intro)
+2. Escape from New York - Get a new one
+3. 1984 Cal Worthington Chevrolet Commercial - Sacramento - Tiger one
+4. [M.A.N.T.I.S. - S01E00 - Pilot Movie](https://en.wikipedia.org/wiki/M.A.N.T.I.S.#Episodes)
+7. Artie's Workout
+8. Do the Mario
+9. Twin Peaks Georgia Coffee Commercial [FULL MINISERIES]
+10. Big Bill Hell
+11. WELDOR
+12. Cornucopia
+13. ACME Brand Rapture Parking Device
+14. I give 'em one of DEEZ and give 'em one of DOZE
+15. Teenage Mutant Hardcore Turtles
+16. Masters Of The Universe 1 900 Number TV Commercial
+17. Pete n Pete Short - Pete's Theory
+18. [Rocky & Bullwinkle & Friends - S02E01 (1960)](https://en.wikipedia.org/wiki/List_of_Rocky_and_Bullwinkle_episodes#Season_2_(1960%E2%80%9361))
+19. [クレクレタコラ / Kure Kure Takora / Gimme Gimme Octopus](https://en.wikipedia.org/wiki/Kure_Kure_Takora) - D02E06
+    - The Octopus sees something that he really, really wants.  And then he gets it!
+20. Detroit Institute of Arts
+21. Tales From the Darkside - Claymation Promo
+22. Star Wars Glasses at Burger King Commercial (1978)
+23. Crazy Eddie's (1985)
+24. Gonzo Guilt
+25. [Tales From the Darkside - S04E12 - "The Deal" (1988)](https://en.wikipedia.org/wiki/List_of_Tales_from_the_Darkside_episodes#Season_4_(1987%E2%80%931988))
+    - Aspiring screenwriter Tom Dash (Bradley Whitford) has moved to Hollywood to become the next big thing in the movie industry. Unfortunately, his work is continuously rejected by film studios all throughout the town. Out of options, Tom is offered help with his plight by his neighbor Donald (Allen Garfield), who claims to have connections in the movie business. Little does Tom realize that Donald is actually the Devil...
+26. Sifl & Olly - A Word With Chester - Tranquilized
+27. Pizza Planet Commercial (1984)
+28. They Live Trailer (JP Superbowl XXIII Broadcast 1989)
+29. Tim Curry - Japanese Xerox A Color Commercial (1998)
+30. WARNING SIGNS OF SATANIC BEHAVIOR
+31. Punk CD - 90s commercial
+32. A&W Family Restaurants - World's Greatest Float Maker, Snoopy (1988)
+33. [Friday the 13th -  S02E18 - "A Friend to the End" (1989)](https://en.wikipedia.org/wiki/List_of_Friday_the_13th:_The_Series_episodes#Season_2_(1988%E2%80%9389))
+    - While Micki and Ryan track down a sculptor, DeJager, who turns her models into stone statues, Micki's lonely nephew, J.B, finds a new, dangerous playmate, Ricky.
+34. 1-900 Party Line television commercial (1989)
+35. La Choy Dragon Grocery Store
+36. Fun Rock (1988)
+37. [The Kenny Everett Television Show - S03E07 (1985)](https://en.wikipedia.org/wiki/The_Kenny_Everett_Television_Show#Series_3_(1985))
+    - Guest stars: Fiona Fullerton, David Peacock, Willie Rushton and Sheila Steafel; Musical guest: David Cassidy
+38. Phoone Tawlk (1987)
+39. Let Me Be Your Friend! 1-900 1-to-1 TV commercial (1991)
+40. Premier Discreet Connections, 1-900-Fun Babes, etc (1992)
+41. Boglins Hotline (1988)
+42. 1991 One On One 1-900 phone line television commercial.
+43. 1991 phone line ads 1-900-740-DUCK, 900-HOT-HOTT, HOT-GALS, etc
+44. [In Search Of... With Leonard Nimoy - S06E16 - "Spirit Voices" (1981)](https://en.wikipedia.org/wiki/In_Search_of..._(TV_series)#Season_6_(1981%E2%80%931982))
+    - Do loved ones call back to us from their next lives? Leonard Nimoy examines historical claims of voices from the beyond, as well as scientific research into the possibility of spirit voices.
+45. The Ed Sullivan Show - The Sound of Music Kids - So Long, Farewell
+46. Secret Pee-Wee - Rawr Rawr Rawr 🐊🐊🐊
+47. Undertale - Napping with Ghost (Outro & Raid out)
 
-1. Katey Sagal - Halloween Bumper (KTVU 1993)
-2. 70's & 80's Halloween Commercial Cut 1
-3. *Cartoon Short* - Betty Boop's Halloween Party (1933)
-4. Burger King - Simpsons Spooky Light-Ups (USA 2001)
-5. The Simpsons - Treehouse of Horror I (Fox 10/25/1990) *30 min*
-6. The Simpsons Treehouse of Horror Marathon (Fox 10/30/1994) *2 hours*
-7. KXVO Pumpkin Dance
-8. Claymation Comedy of Horrors (1991) *30 min*
-9. Italian Halloween Commercials - Curated by [Holiday Special](https://twitch.tv/djholidayspecial)
-10. Garfield's Halloween Adventure (10/1985) *30 min*
-11. It's the Great Pumpkin Charlie Brown (10/1985) *30 min*
-12. Daffy Duck's Quackbusters (1988) *1.5 hours*
-13. Elvira T-Shirt Commercial
-14. *Cartoon Short* - Jeepers Creepers (1939)
-15. *Cartoon Short* - Popeye the Sailor - Shiver Me Timbers (1934)
-16. The Party Makeup Video *30 min*
-17. *900 Numbers* - Bunny
-18. *Cartoon Short* - Mickey Mouse -The Haunted House (1929)
-19. Halloween 3 - 8 more days to Halloween - Silver Shamrock
-20. *Cartoon Short* - Happy Harmonies Bottles (1936)
-21. Knott's Halloween Haunt Hanging, By Rock Garcia (1990) *10 min*
-22. Count Scary WKBD 50 Shocktober bumpers 1986 (Put before halloween 3)
-23. Weather Channel Witch Watch (1991)
-24. *Movie* - Monster Vision - Halloween 3 (TNT) *2 hours*
-25. Unsolved Mysteries - Halloween Special (10/26/88) *1 hour*
-26. *Cartoon Short* - Porky Pig - Scaredy Cat (1948)
-27. *900 Numbers* - Creep Phone 1-900 Horror Phone Number Ad #1 (1988)
-28. *Cartoon Short* - UPA - The Tell Tale Heart (1953)
-29. *Movie* - USA Up All Night - Night Of The Living Dead (USA 10/17/1997) *2 hours*
-30. 70's & 80's Halloween Commercial Cut 2
-31. *Cartoon Short* - Silly Symphonies - The Skeleton Dance (1929)
-32. Scream (FOX 06/01/2000) *2 hours*
-33. *Cartoon Short* - Tom and Jerry - The Flying Sorceress (1956)
-34. *900 Numbers* - 976-Wake
-35. Halloween Safety PSA (1985) *20 min*
-36. *Cartoon Short* - Mickey Mouse - Lonesome Ghosts (1937)
-37. Pete n Pete - Halloween Short *7 min*
-38. The Adventures of Pete and Pete - S02E06 - Halloweenie *30 min*
-39. *Cartoon Short* - Disney - The Legend Of Sleepy Hollow (1949)
-40. Pac-Man - S01E04 - Pacula; It's A Hole; Trick Or Chomp (MeTV 3/16/2025) *30 min*
-41. Scooby Doo & Heathcliff Halloween specials Marathon (WMSN 1986) *6 hours* 
-42. Grinch's Halloween & The Halloween that Almost Wasn't (ABC - 10/30/1980) *1 hour*
-43. The Channel 20 WTXX Kids Time Zone *30 min*
-44. Heinz Haunted House (1983)
-45. *Movie* - Cry Baby Lane (Nick 10/28/2000) *2 hours*
-46. Nick At Nite Halloween Munster Mash (Nick - 10/1995) *6 hours*
-47. 70's & 80's Halloween Commercial Cut 3
-48. Tales from the Darkside - S01E00 - Trick or Treat (written by George Romero) *1 hour*
-49. Bram Stoker's Dracula 1974 Trailer
-50. Tales from the Darkside - S02E05 - Halloween Candy (written by Tom Savini) *1 hour*
-51. *Cartoon Short* - Skeleton Frolic (1937)
-52. Tales from the Darkside - S04E14 - The Cutty Black Sow (written by Richard Glass) *1 hour*
-53. Friday The 13th The Series - S01E05 - Hellowe'en (1987) *1 hour*
-54. MTV Station ID - The Witch (MTV 1992)
-55. MTV Shocktober Weekend Halloween TV (1990)
-56. Elvira Slice Commercial
-57. Elvira MTV Marathon (MTV 10/31/1984) *6 hours??*
-58. Elvira Mistress of the Dark (NBC 7/05/91) *2 hours*
-59. The Rocky Horror Video Show (MTV 10/31/1989) *2 hours*
-60. Headbanger's Halloween (MTV 10/31/1989) *2 hours*
-61. *TGIF* - Growing Pains - Happy Halloween 1&2 - 10-31-1990 *1 hour*
-62. *TGIF* - Step by Step - S04E06 *30 min*
-63. *TGIF* - Family Matters - S08E07 - Stevil *30 min*
-64. *TGIF* - Family Matters - S09E07 - Stevil II - This Time He's Not Alone - (10/31/1997) *30 min*
-65. *TGIF* - PERFECT STRANGERS HALLOWEEN (1988) *30 min*
-66. *Cartoon Short* - Fleischer - The Cobweb Hotel (1936)
-67. 1980s Bartz's Party Store Milwaukee Halloween Commercial
-68. Michael Jacksons - Ghosts (05/09/1997)
-69. *Cartoon Short* - Bugs Bunny - Transylvania 6-5000 (1963)
-70. 80s Halloween bumpers
-71. *900 Numbers* - 900-SPELLIT
-72. *Cartoon Short* - Donald Duck - Trick or Treat (1952)
-73. *Movie* - Nightmare on Elm Street - (WFLD 32 Chicago 1987) *2 hours*
-74. *900 Numbers* - Wally Wingert a Freddy Kreuger in 1989 900 Commercial 001
-75. *Movie* - Nightmare On Elm Street 4 - The Dream Master (KTMA 23 9/13/1991) *2 hours* 
-76. *900 Numbers* - Wally Wingert a Freddy Kreuger in 1989 900 Commercial 002
-77. Freddys Nightmares - Freddy's Tricks and Treats (1988) *1 hour*
-78. 70's & 80's Halloween Commercial Cut 4
-79. Freddys Nightmares - Photo Finish (1989) *1 hour*
-80. Freddys Nightmares - The Making of a Nightmare (1990) *1 hour*
-81. WNAC TV64 Monster Bash & Old Halloween Marathon Bumpers
-82. Halloween Commercials (USA - 1990s)
-83. *900 Numbers* - 900-909-4MAC
-84. Freddys Nightmares - BONUS 01 Afterhours (1989)
-85. *Cartoon Short* - Daffy Duck - Birth Of A Notion (1947)
-86. Freddys Nightmares - BONUS 02 Monsters - A Bond of Silk (1989)
-87. Hair Club for Monsters
-88. *Cartoon Short* - Bugs Bunny - Water, Water Every Hare (1952)
-89. *900 Numbers* - Masters Of The Universe 1 900 Number TV Commercial
-90. *Movie* - The Shining (ABC 06/02/85) *3 hours?*
-91. 70's & 80's Halloween Commercial Cut 5
-92. *900 Numbers* - 900-9099-CRY
-93. It's the Great Pumpkin Charlie Brown; Winnie the Pooh Halloween (ABC 2001) *1 hour*  
-95. *Cartoon Short* - Tom and Jerry - Switchin Kitten (1961)
-96. *900 Numbers* - House of Horrors 900 Number Commercial (1989)
-97. The Decline of Western Civilization II (MTV WOC 1989) *1 hour*
-98. Zappa Halloween Show (MTV 1981) *2 hours*
-99. *900 Numbers* - 900-Hot-Hints
-100. Anglia Halloween (1982)
-101. *Cartoon Short* - Daffy Duck - The Impatient Patient (1942)
-102. Disney Channel Halloweentown Marathon (2004)
-103. Disney Channel Halloween is Grinch Night, Casper the Friendly Ghost, Frankenweenie, The Halloween That Almost Wasn't (Disney 10/1992)
-104. Disney Halloween DTV (10/30/87)
-105. *Cartoon Short* - Porky Pig - The Wearing Of The Grin (1951)
-106. *900 Numbers* - 976-Psyc
-107. *Cartoon Short* - Disney - Hell's Bells (1929)
-108. Paul Lynde Halloween Special '76; Sigmund and the Sea Monsters; Mr. Show; Maury Povich (KSAT 1997)
-109. *900 Numbers* - Dial-An-Insult
-110. *900 Numbers* - Freddy Freaker
-111. *Cartoon Short* - Bugs Bunny - Broom-Stick Bunny (1956)
-112. Son Of Svengoolie - Dracula (WFLD 5/4/1985) *2 hours*
-113. 70's & 80's Halloween Commercial Cut 6
-114. *900 Numbers* - Halloween Hotline 1-900 Number Commercial
-115. *Cartoon Short* - Tex Avery - Who Killed Who (1943)
-116. *Movie* - Bram Stoker's Dracula (1999/11/13) *2 hours*
-117. *Cartoon Short* - Disney - Pluto's Judgement Day (1935)
-118. *Movie* - Kung Fu from Beyond the Grave (Yin Ji)
-119. *Movie* - Zapatlela (1993)
-120. *Cartoon Short* - Fleischer Studios - Swing You Sinners (1930)
-121. *Cartoon Short* - Bugs Bunny - Hair-Raising Hare (1946)
-122. WKBD Detroit TV Halloween Shocktober Bumpers Collection (WKBD 1989)
-123. 70's & 80's Halloween Commercial Cut 7
-124. *900 Numbers* - 900-909-Elvis
-125. 70's & 80's Halloween Commercial Cut 8
 
 
 ## Commands and Info on SecretTVBot
@@ -135,7 +60,9 @@ The Secret Spoopy TV Marathon will start on Tuesday, October 27th, at 6:00pm Pac
 
 ## Music News
 
-New music performances have been uploaded to my youtube:
+Upcoming live performances are on my [website](https://andrewway.net)
+
+Recent music performances that have been uploaded to my youtube:
 - [2026/07/11 - AW at Art Glass, Sacramento](https://www.youtube.com/watch?v=EfpFT6oEmeE)
 - [2026/07/23 - Two Rivers Audio](https://www.youtube.com/watch?v=4hSS_UU2das)
 - [2026/09/15 - Anime Aliens at Make-Out Room](https://www.youtube.com/watch?v=qvH0QdhierY)
