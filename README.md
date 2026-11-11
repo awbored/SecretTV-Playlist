@@ -2,12 +2,14 @@
 
 ## SecretTV Playlist
 
+🎂🎂🎂 [Happy Birthday Ennio Morricone (11/10/1928)](https://en.wikipedia.org/wiki/Ennio_Morricone) 🎂🎂🎂
+
 1. Secret TV Roller Coaster (intro)
 2. Escape from New York - Get a new one
 3. 1984 Cal Worthington Chevrolet Commercial - Sacramento - Tiger one
 4. [M.A.N.T.I.S. - S01E01 - "First Steps" (1994)](https://en.wikipedia.org/wiki/M.A.N.T.I.S.#Episodes)
 5. DiC
-6. [Maniac Mansion - S02E05 - "Man and Machine" (1991)](https://en.wikipedia.org/wiki/Maniac_Mansion_(TV_series)#Season_2_(1991%E2%80%9392))
+6. 🎂 - [Ennio Morricone - BBC2 Documentary](https://www.imdb.com/title/tt0379276/)
 7. Artie's Workout
 8. Do the Mario
 9. Twin Peaks Georgia Coffee Commercial [FULL MINISERIES]
